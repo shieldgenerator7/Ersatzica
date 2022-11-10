@@ -632,7 +632,7 @@ Huripka ran at him with a charge punch. He blocked it, but still got knocked bac
 
 "What was that?" Awsoodoo complained.
 
-"You want to win, don't you?"
+Huripka raised an eyebrow. "You want to win, don't you?"
 
 "You gotta make it believable or else it won't count!"
 
@@ -640,68 +640,74 @@ Huripka grumbled.
 
 "Round 4: Go!"
 
-Huripka leapt in close and went for a tail swipe. Trip collection close and Winfrey Tail swipe. A sudden. The city blocked it but still got knocked outside. He jabbed her with a pack of a beat. But only caught her backside. Trip. Trip. Hippo. Jumped in the air and try to do a backflip. Ended up on her back. She slapped the. She would have slapped. A pseudo in the face, but he dodged. And she hit him in the wing instead. He spun around until. Swiped her in the underneath the chin. Only slightly cutting herself thick skin.
+Huripka leapt in close and went for a tail swipe. Awsoodoo blocked it but still got knocked aside. He jabbed her with a peck of his beak, but only caught her backside. Huripka jumped in the air and tried to do a backflip, but ended up on her back. Her hand swung wide and slapped Awsoodoo in the face, but he dodged it, and she hit him in the wing instead. He spun around in a tail swipe, cutting her on the underside of the chin. Her thick skin reduced the damage and it didn’t start bleeding right away.
 
-Point a sudo. The referee raised his left wing. Places.
+“Point: Awsoodoo!” The referee raised his left wing. “Places!”
 
-Wow, Sudo is really making a comeback. Oh. A woman is being extremely aggressive, which doesn't seem to be serving her well. She throwing the match.
+“Wow, Awsoodoo is really making a comeback! Awoomoon is being really aggressive, which doesn't seem to be serving her well. Is she throwing the match?”
 
-Rebecca, you have to make it more believable. The referee in the audience thinks that you're. Throwing the match on purpose.
+“Huripka, you have to make it more believable. The referee and the audience thinks that you're throwing the match on purpose.”
 
-Pause. Isn't that what you want me to do? Backspace line. Remove line.
+“Well, that's because I am.”
 
-Well, that's because I am.
+“Yeah, but don't make it so obvious.”
 
-Yeah, but don't make it so obvious.
+“Round 5: Go!”
 
-Wow, these fighters are sure tense with that last round determines who wins. Whoever wins gets the black sash.! Nice. Oh.
+Awsoodoo put up his wings to preemptively block an attack. However, Huripka stood still, waiting for *his* attack. He circled her looking for an opening, and she circled him looking for a way in. They circled each other for a while.
 
-Round 5 go.!:
+“Come on, make a move!” Awsoodoo said.
 
-The city put up his wings in an effort to preemptively block. However, a move. However, Rebecca stood there still. Waiting for his attack. He circled her looking for an opening, and she circled him looking. 4 weigh in. The circle each other for a while new line Come on, make it move, pseudo said.
+“Why? Because you know that you can’t hit me and then I’ll counterattack.”
 
-Why? Because you know that. You won't hit me and all counterattack.
+“And then I'll block that counterattack and counterattack back.”
 
-And then I'll block that counterattack and counter attack back.
+“We'll see about that.”
 
-We'll see about that. Flipkart right up in. Punched. Punch the studio in the neck. But the sudu dodged. It's broken for a counterattack. Cricket. His tails fun and pseudo hitter the back of the neck instead. Succo. Fortunately for a sudu trip this tail. Was blocked by his already outstretched wing. Otherwise, he would be. Hit in the neck. People spun around to face him and punched him in the chest. Knocking him backwards. He uses wings to stop himself, like last time. And they flew up in the air and dive bomb herica. Have got dodge rolled out of the way. Did they circle each other again?
+Huripka charged in and punched Awsoodoo in the neck, but he dodged. He went for a counterattack. Huripka tail spun and Awsoodoo hit her in the back of the neck instead. Fortunately for Awsoodoo, Huripka’s spinning tail was blocked by his already-outstretched wing. Otherwise, he would have been hit in the neck. Huripka spun around to face him and punched him in the chest, knocking him backwards. He used his wings to stop himself, like last time, and then flew up in the air and dive bombed Huripka. She dodge rolled out of the way. They circled each other again.
 
-Wow, seems to be a stalemate. Both of those are equally competent. This is gonna be a close one.!
+“Wow, seems to be a stalemate! Both of them are equally competent. This is gonna be a close one!”
 
-Reply. Up for HR punch and. At the last moment she got on all fours and tail spun Right's neck. Wow, that's weird that. Detection doesn't count as input for purposes of keeping windows open windows from going into sleep mode. That's weird. Umm. To see you. But into the air. And grabs a woman's tail with his. Cloth seat. He didn't have enough power to lift her into the air, so he spun around instead. But being that through on all four. You still have very much effect. Instead, she. Pull their tail down. Him. Grounded the sudo. She leapt into the air and swiped at us as neck. But he dodge rolled. He tail swiped her and hit her in the belly. 2 Dodge rolled away too late. And ended up on the end of the edge of the arena. A suited dug into the dirt and caught up one big powerful flat. In. Use the amount of number dodge roll to blow her off the edge of the arena. Retail slipped outside the circle and touched the ground.
+Huripka went up for charge punch but at the last moment she got on all fours and tail spun at his neck. Awsoodoo flapped into the air. He grabbed Awoomoon’s tail with his claw feet. He didn't have enough power to lift her into the air, so he spun her around instead. But she was on all fours, thus stabilizing against the spin. She pulled her tail down, causing Awsoodoo to crash into the ground. She leapt into the air and swiped at his neck, but he dodge rolled. He tail swiped her and hit her in the belly. Huripka dodge rolled away too late, and ended up with a belly cut and an inch from the arena’s edge. Awsoodoo dug into the dirt and flapped up one big powerful flap. He used the power of his wings and the momentum of her dodge roll to blow her off the edge of the arena. Her tail slipped outside the circle and touched the ground.
 
-Point a sudo. The referee raises left wing. Winner a sudo.!
+“Point: Awsoodoo!” The referee raised his left wing. “Winner: Awsoodoo!”
 
-The crowd cheered. Oh Sue do oh Sue do Ohh Sue do.
+The crowd cheered. “Aw-soodoo! Aw-soodoo! Aw-soodoo!”
 
-The referee brought out a. Black sash. And handed it to. Oh. Sue faku sufu. You had just walked up on the stage. Suzaku. Presented stash to. As you do. For your triumph in this combat, you have earned this black sash. A studio vowed to accept it. Subaru. Place it around his son's neck. Then held up his wings and glory. Wow.
+The referee brought out a black sash and handed it to Soofawkoo, who had just walked up on the stage. Soofawkoo presented the sash to Awsoodoo. “For your triumph in this combat, you have earned this black sash.”
 
-Wow, what a fight. Asuda in. A woman were equally matched, despite a woman being a wolf and not having any sash or training whatsoever. This is truly a stunning. Hi. But as sudo being a Peacock, naturally eats it out in the in the end. Probably once again that. Superior fighters. Even below black sash level. Speaking of black slash level, congratulations are sudu for finally getting to the black sash. You're writing star. We hope you go far.!
+Awsoodoo bowed to accept it. Soofawkoo placed it around his son's neck. He held up his wings in glory.
 
-A woman stood off to the side. Nice. OK, um. Previous mile, that's her friend got the glory he wanted. She silently walked off the stage. But the referee stopped her.
+“Wow, what a fight. Awsoodoo and Awoomoon were equally matched, despite Awoomoon being a wolf and not having any sash or training whatsoever. This is truly a stunning. But of course, Awsoodoo as a peacock, naturally eeks it out in the in the end. Showing once again that peacocks are the superior fighters, even below black sash level. Speaking of black slash level, congratulations to Awsoodoo for finally earning the black sash. You're a rising star! We hope you go far!”
 
-The referee pulled out a brown sash. Introduction and for getting second place in the tournament. You automatically earn the brown sash. Congratulations on earning this Brown, Sasha Oh Moon. He tried placing it around her neck, but it wouldn't fit, so she offered up his her arm instead and he placed it around her arm. It fit tightly, but it works. The referee held up her her arm. Elaine.
+“Aw-soodoo! Aw-soodoo! Aw-soodoo!”
 
-The crowd cheered wildly. Moon. Moon.
+Huripka stood off to the side. She smiled at her friend getting the glory he wanted. She silently walked off the stage. But the referee stopped her.
 
-A woman let out a howl. Craving wild?
+The referee pulled out a brown sash. “Awoomoon, for getting second place in the tournament, you automatically earn the brown sash. Congratulations on earning this brown sash Awoomoon!” He tried placing it around her neck, but it wouldn't fit, so she offered up her arm instead and he placed it around that. It fit tightly, but it worked. The referee held up her arm.
 
-The next day. Assuming that ripka at the river. Parika. Yeah, I do like.
+The crowd cheered. “Aw-woomoon! Aw-woomoon! Aw-woomoon!”
 
-He rested. Hero. Heroin. Heropa. Heropa. Sudo. Called. Or should I say Ah Woo moon? Levi.
+*AWOOOOOO!* Awoomoon let out a howl. “Victory!”
 
-Robert didn't respond. Instead, she spun around, tail swiping and the feet. Knocking him off balance led. She punched him in the chest. He staggered backward. A few feet. More than enough to knock him outside of the ring, if there was one.
+The crowd went wild.
 
-How? City pride? What was that for?
+The next day, Awsoodoo met Huripka at the river. “Huripka?” he called. “Or should I say, Awoomoon?”
 
-Purple smiled. Now we're even. We're friends again.
+Huripka didn't respond. Instead, she spun around, tail swiping him in the feet and knocking him off balance. She punched him in the chest. He staggered backward a few feet. More than enough to knock him outside of the ring, if there was one.
 
-Lucido smiled. Hi. Thanks for that win. Now I can start my box ash training.
+“Ow.” Awsoodoo cried. “What was that for?”
 
-Wait, so black sash isn't the last stash?
+Huripka smiled. “Now we're even. We're friends again.”
 
-No, this is only the first of the backslashes. There's three more after this. Naturally, my father has all four of them. No, I get to start on the next one. Which is. Petrification training.
+Awsoodoo smiled through a wince. “Thanks for that win. Now I can start my black sash training.”
 
-Win that thing where you. Do a beam from your tail and you turn something into stone.
+“Wait, so black sash isn't the last stash?”
 
-Yes. And it was more complicated than that, especially when you factor in combat. I'm gonna be a master fighter. Turning things stone and. Destroying them. They are formidable force. Remind. Purple smiled. Yes, you will. Yes, we will.
+“No, it’s only the first of the back sashes. There's three more after this. Naturally, my father has all four of them. Now, I get to start on the next one. Which is petrification training.”
+
+“Petrification, that thing where you turn people to stone?”
+
+“Yes. And it’s a bit more complicated than that, especially when you factor in combat. I'm gonna be a master fighter. Turning things to stone and destroying them. I’ll be a formidable force!”
+
+Huripka smiled. “Yes, you will. *We* will.”
