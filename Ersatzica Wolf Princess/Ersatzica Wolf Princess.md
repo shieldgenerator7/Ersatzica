@@ -1413,29 +1413,3 @@ She looked around and found a tree branch from another tree close enough to tran
 Once she hits the ground, and breaks her legs, it's all over. There's no way she can run away, fight them off, or persuade them otherwise. It's all hopeless now—
 
 Ersatzica's feet made contact with the ground, and the boots absorbed all the impact. The springs compressed and the bottom plate slid forward, sending Ersatzica tumbling onto her hands. She was completely fine. She landed behind the wolves. So far not one of them seemed to have noticed that she escaped. The shaking tree was an eerily effective distraction. She ran off without a sound.
-
-Alright let's test this dictation feature see how well it can I say break down what I s batter backspace word oh enter
-
-Contact with the ground the boots absorbed all the impact the springs compressing the bottom plate slid forward sending a substitute tumbling hunter hands she was completely so far not one of them seemed to have noticed that she escaped shaking tree wasn't merely affecting struction she ran off without a sound
-
-For SAT's feet oh I'd how could I expect to know the name but that's super annoying
-
-This is a sentence this is also a sentence OK I guess it's good for stream of consciousness but it's not good for just heard you had you had to go back OK
-
-Results of her pick up the boots and examined them they were red bold red metal and gold trim. She slid her hand along with the metal piece on the front. It was extremely shiny despite being covered in dirt. This is a period in the middle of sentence. OK super hard divine.
-
-Alright, let's see how well this auto dictation works. I'm expecting you to add commas. They're mostly periods and also potentially commas. Yes, it actually doesn't. But does it add exclamation marks? It adds question marks. Yes. OK, no exclamation marks. OK, that's fine. Um, what about onomatopoeias?
-
-Wack. Boom. Tick. Bush.
-
-OK, so not so well with onomatopoeias, but it does do pretty well with the automatic. The automatic. What do you call it? Automatic punctuation. That's what I'm looking for. Because you read this thing. Or suspicious feet made contact with the ground, and her boots split in half when she. No, they didn't put in half. What are we talking about? OK, let's pick something up then.
-
-Resultset was running through the forest. Her sisters and her brother were right behind her. They were running towards the wolves that were in the camp at the edge of the river, waiting for the cats to come ashore. The vote of emissaries was filled with treasures from the cat's Kingdom. They were trying to bribe the rules into a peace offering, but really the rules were hoping for a battle. The Bulls were very bloodthirsty race. As you can tell, they are equipped for battle in every sense of the word. They know exactly how to fight every single species on the planet. They are the top fighters in the whole world. Wolves. OK, it does not word. I guess I don't say it properly. This action might be very good way to write, I'm not sure. Before though for sure. Turn off microphone. Stop. OK, dictation started again. Uh. And we say stop dictating in a moment. OK new line
-
-OK, so this is uh. The test works to do alts. Um, press the alt button plus the key next to the one. I think it's like that. Till they. Till they. OK, it doesn't know till they. You know the symbol that appears above and in the Spanish language sometimes. It's like the second apostrophe button. Yeah, just press Alt plus, second apostrophe and. Umm. Then it will start dictating, which is good. I keep my arms in there. It keeps my arms in there. Umm. I could spell it. ERSATZICA. I can spell names, but that is gonna be so hard to do. Um, over and over again. Like every time I had to sit characters name I have to spell it. That's not gonna be fun. No.
-
-Can I spell words? START. OK, but why is it OK? And it doesn't know slang, apparently., nice. I love that. I did weird things. Didn't get all my words it it said the comma in a weird place. Wait, wait new line
-
-Does it do emphasis? Please woman, I need this. That is not what I meant to say. Home. But no, I don't know how to make it through emphasis. Baby dictating sadly. When to do it? *OK, now it's emphasis.* OK. And I can turn it back off. Was just saying italics. Can I do italics in the middle of a sentence? Would you italics, please? If you can even call it that. No, it doesn't work. OK, let's see. Would you *Please.* Turn off that music. If you can even call it that. Hi still does great things. The dictation still does weird things when you try to do italics in the middle of a sentence. Oh, it seems. Working OK.
-
-I think I might try doing the dictation thing to write. Sorry is not sure yet. Um. First item requires. Editing it afterwards, there's no way you could dictate and have it be a good rough draft. You gotta. Go back and edit all the weird stuff. It doesn't put in all the character names. That's gonna be a chore. I'll try it out, see how it goes. Hopefully those OK.
