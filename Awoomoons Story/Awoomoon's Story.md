@@ -711,3 +711,29 @@ Awsoodoo smiled through a wince. “Thanks for that win. Now I can start my blac
 “Yes. And it’s a bit more complicated than that, especially when you factor in combat. I'm gonna be a master fighter. Turning things to stone and destroying them. I’ll be a formidable force!”
 
 Huripka smiled. “Yes, you will. *We* will.”
+
+And they did. The next day, Awsoodoo showed up to Pea-Fo training, and behind him was none other than Huripka.
+
+Soofawkoo nodded at her and held his head up high, higher than normal. He glowed like a proud father would.
+
+She bowed back, humbling smiling.
+
+“Class, today we have two announcements. First, as many of you may know by now, Awsoodoo has finally earned his black sash!”
+
+They all cheered.
+
+“Second, I’d like you to welcome a new pupil, Awoomoon!” He gestured to the wolf in the back row.
+
+“But my name is Huripka and I’ve been here before—”
+
+Soofawkoo held up a hand. “Awoomoon here has earned a brown sash by placing second in the tournament, getting bested by none, other than Awsoodoo. Welcome, Awoomoon!”
+
+“Welcome, Awoomoon!” The class repeated.
+
+Awoomoon took two bows.
+
+“Welcome, *Awoomoon*.” Awsoodoo bowed jokingly.
+
+Awoomoon smirked. “Not you too.” She playfully pushed him.
+
+She trained with them, sparred with them, and exchanged tips with them. Although she couldn’t learn any of the petrifying moves, and still didn’t know half of the brown sash moves, she knew exactly how to counter them. Soofawkoo regularly had her present her counters to show to the newer pupils. She helped train a new generation of peacock fighters, enhancing Pea-Fo with her own wolf moves.
