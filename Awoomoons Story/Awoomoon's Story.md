@@ -639,3 +639,69 @@ Huripka ran at him with a charge punch. He blocked it, but still got knocked bac
 Huripka grumbled.
 
 "Round 4: Go!"
+
+Huripka leapt in close and went for a tail swipe. Trip collection close and Winfrey Tail swipe. A sudden. The city blocked it but still got knocked outside. He jabbed her with a pack of a beat. But only caught her backside. Trip. Trip. Hippo. Jumped in the air and try to do a backflip. Ended up on her back. She slapped the. She would have slapped. A pseudo in the face, but he dodged. And she hit him in the wing instead. He spun around until. Swiped her in the underneath the chin. Only slightly cutting herself thick skin.
+
+Point a sudo. The referee raised his left wing. Places.
+
+Wow, Sudo is really making a comeback. Oh. A woman is being extremely aggressive, which doesn't seem to be serving her well. She throwing the match.
+
+Rebecca, you have to make it more believable. The referee in the audience thinks that you're. Throwing the match on purpose.
+
+Pause. Isn't that what you want me to do? Backspace line. Remove line.
+
+Well, that's because I am.
+
+Yeah, but don't make it so obvious.
+
+Wow, these fighters are sure tense with that last round determines who wins. Whoever wins gets the black sash.! Nice. Oh.
+
+Round 5 go.!:
+
+The city put up his wings in an effort to preemptively block. However, a move. However, Rebecca stood there still. Waiting for his attack. He circled her looking for an opening, and she circled him looking. 4 weigh in. The circle each other for a while new line Come on, make it move, pseudo said.
+
+Why? Because you know that. You won't hit me and all counterattack.
+
+And then I'll block that counterattack and counter attack back.
+
+We'll see about that. Flipkart right up in. Punched. Punch the studio in the neck. But the sudu dodged. It's broken for a counterattack. Cricket. His tails fun and pseudo hitter the back of the neck instead. Succo. Fortunately for a sudu trip this tail. Was blocked by his already outstretched wing. Otherwise, he would be. Hit in the neck. People spun around to face him and punched him in the chest. Knocking him backwards. He uses wings to stop himself, like last time. And they flew up in the air and dive bomb herica. Have got dodge rolled out of the way. Did they circle each other again?
+
+Wow, seems to be a stalemate. Both of those are equally competent. This is gonna be a close one.!
+
+Reply. Up for HR punch and. At the last moment she got on all fours and tail spun Right's neck. Wow, that's weird that. Detection doesn't count as input for purposes of keeping windows open windows from going into sleep mode. That's weird. Umm. To see you. But into the air. And grabs a woman's tail with his. Cloth seat. He didn't have enough power to lift her into the air, so he spun around instead. But being that through on all four. You still have very much effect. Instead, she. Pull their tail down. Him. Grounded the sudo. She leapt into the air and swiped at us as neck. But he dodge rolled. He tail swiped her and hit her in the belly. 2 Dodge rolled away too late. And ended up on the end of the edge of the arena. A suited dug into the dirt and caught up one big powerful flat. In. Use the amount of number dodge roll to blow her off the edge of the arena. Retail slipped outside the circle and touched the ground.
+
+Point a sudo. The referee raises left wing. Winner a sudo.!
+
+The crowd cheered. Oh Sue do oh Sue do Ohh Sue do.
+
+The referee brought out a. Black sash. And handed it to. Oh. Sue faku sufu. You had just walked up on the stage. Suzaku. Presented stash to. As you do. For your triumph in this combat, you have earned this black sash. A studio vowed to accept it. Subaru. Place it around his son's neck. Then held up his wings and glory. Wow.
+
+Wow, what a fight. Asuda in. A woman were equally matched, despite a woman being a wolf and not having any sash or training whatsoever. This is truly a stunning. Hi. But as sudo being a Peacock, naturally eats it out in the in the end. Probably once again that. Superior fighters. Even below black sash level. Speaking of black slash level, congratulations are sudu for finally getting to the black sash. You're writing star. We hope you go far.!
+
+A woman stood off to the side. Nice. OK, um. Previous mile, that's her friend got the glory he wanted. She silently walked off the stage. But the referee stopped her.
+
+The referee pulled out a brown sash. Introduction and for getting second place in the tournament. You automatically earn the brown sash. Congratulations on earning this Brown, Sasha Oh Moon. He tried placing it around her neck, but it wouldn't fit, so she offered up his her arm instead and he placed it around her arm. It fit tightly, but it works. The referee held up her her arm. Elaine.
+
+The crowd cheered wildly. Moon. Moon.
+
+A woman let out a howl. Craving wild?
+
+The next day. Assuming that ripka at the river. Parika. Yeah, I do like.
+
+He rested. Hero. Heroin. Heropa. Heropa. Sudo. Called. Or should I say Ah Woo moon? Levi.
+
+Robert didn't respond. Instead, she spun around, tail swiping and the feet. Knocking him off balance led. She punched him in the chest. He staggered backward. A few feet. More than enough to knock him outside of the ring, if there was one.
+
+How? City pride? What was that for?
+
+Purple smiled. Now we're even. We're friends again.
+
+Lucido smiled. Hi. Thanks for that win. Now I can start my box ash training.
+
+Wait, so black sash isn't the last stash?
+
+No, this is only the first of the backslashes. There's three more after this. Naturally, my father has all four of them. No, I get to start on the next one. Which is. Petrification training.
+
+Win that thing where you. Do a beam from your tail and you turn something into stone.
+
+Yes. And it was more complicated than that, especially when you factor in combat. I'm gonna be a master fighter. Turning things stone and. Destroying them. They are formidable force. Remind. Purple smiled. Yes, you will. Yes, we will.
