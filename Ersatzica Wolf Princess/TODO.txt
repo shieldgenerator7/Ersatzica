@@ -1,0 +1,6 @@
+[Revisions]
+* Wryonin uses good hearing instead of scope to make long-ranged shot on escaping cat holding boots, Wryonin is an audiophile
+* Don't hand wave lemilays ability at the beginning. Make it so one can easily figure out shes using Hindsight and how shes using it to get information
+* Describe path to wolf village near end of chapter 1
+* Have wryonin check in on ersie in chapter 2
+* Make a scene where its more obvious how lemilay's Hindsight works (maybe when theyre going back to the village)
