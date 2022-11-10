@@ -1,8 +1,8 @@
-# Ersatzica
+Ersatzica Wolf Princess
 
 # Prologue
 
-[https://youtu.be/OykiLWjpOzY](https://youtu.be/OykiLWjpOzY)
+<https://youtu.be/OykiLWjpOzY>
 
 Half past Moon Howl, the cat warriors stalked swiftly through the night. Their glowing green eyes streaked through the darkness. On their silent paws they skated through the forest, seeking their target. Their golden fur swayed in the wind. They carried nothing but their courage in their hearts and their spears in their hands. They filtered through the rough forest path until they came upon a steep hill. Their legs sprang them into the air and their claws grabbed onto the cliffside. One claw hand at a time they climbed up.
 
@@ -32,7 +32,7 @@ She pantomimed a roar and charged forward with silent footsteps. She lunged at t
 
 She stopped in her tracks. Her wide eyes darted back and forth at the moonlit scene. It was a new wolf mother feeding her newborns. The four newborns were all wrangling each other vying for a turn. The cat leader put her hand on her own belly. Lumps from inside her squirmed and rubbed against her hand. She turned her attention back to the wolf mother. The wolfess had a soft smile on her face, and her eyebrows were relaxed. She stared into those deep green eyes of the cat leader.
 
-[https://youtu.be/git6DCXSqjE](https://youtu.be/git6DCXSqjE)
+<https://youtu.be/git6DCXSqjE>
 
 "Pantrinome," the wolf mother gently whispered, as if welcoming a friend. "Meet my babies." She took Pantrinome's hand and placed it on the first pup. "This is Wryonin. He's the first one." Pantrinome's claws sheathed as her hand was moved to the next pup. "This one's Lemilay. She's got this pretty birthmark on her forehead." The wolf mother rubbed a thumb lovingly over the second pup's head. Then she brushed some dirt off the third one. "This is Mudrich. I don't know how she manages to get so dirty." Pantrinome's muscles relaxed as her hand lay on the fourth pup. "Meet Ersatzica. She lets the other pups have so many turns, I'm worried she's going to get sick."
 
