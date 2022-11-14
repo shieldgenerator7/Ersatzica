@@ -737,3 +737,193 @@ Awoomoon took two bows.
 Awoomoon smirked. “Not you too.” She playfully pushed him.
 
 She trained with them, sparred with them, and exchanged tips with them. Although she couldn’t learn any of the petrifying moves, and still didn’t know half of the brown sash moves, she knew exactly how to counter them. Soofawkoo regularly had her present her counters to show to the newer pupils. She helped train a new generation of peacock fighters, enhancing Pea-Fo with her own wolf moves.
+
+# Chapter 4
+
+“Dad!” Awoomoon burst through the medic doorway to find her father laying in a bed. “Are you ok? What happened?” She knelt down next to the bed.
+
+“Huripka, daughter, there’s nothing to worry about.” Dad looked at her and rubbed her head.
+
+“You were attacked!” She leaned into his hand. “Are you hurt?”
+
+“Yes, the bandits did manage to hit me.” He parted the fur on his upper shin to reveal a new scar. The closed wound itself had been sealed and cleaned, but the fur around it still had dried blood on it. “But I fended them off. It takes more than that to defeat your old man.” He sat up and rested his hands on his knees, as if about to get up.
+
+“And it’s going to take more than my healing magic to get your old man back on his feet.” A bear a head taller than Dad walked into the room. She wiped her fire-burnt palm on her medic apron. “Lay back down, Frestiyen, you need some time for your bones to heal.” Her frown was accentuated by a long saber tooth protruding from her upper jaw, which was trickle bleeding from the gum.
+
+“Ah, Lersha, how’d you know I was trying to escape?” Frestiyen smiled.
+
+Lersha licked her saber tooth. She pushed Frestiyen back onto the bed. “Now lay back down before I give in to my temptations.”
+
+“How long is he going to be in bed?” Huripka asked.
+
+“Hi, Awoomoon,” she said, reaching down to ruffle the hair on Awoomoon’s head. “Don’t worry, Daddy’s just got a little booboo in his leg. He’s going to need to stay beddy-bye for a little whi-whi.”
+
+Awoomoon’s ears pinned back. “Dr. Lersha, I’m not a little wolf pup anymore. Please give me a straight answer.”
+
+“I’m sorry dear, you’re just so cuuute that I keep forgetting.” She patted her twice more on the head.
+
+Awoomoon grumbled.
+
+“Ok, Awoomoon. Your father’s wound has been closed, yes, but—Frestiyen!” She pointed at his knee rising up on the bed.
+
+Frestiyen lowered it, stifling a giggle.
+
+“He still has a fractured tibia. He won’t be able to stand or walk until it heals.” She parted his leg fur to check on it, and gave it a gentle rub.
+
+*AWOOO!* Frestiyen playfully howled. “Injury!”
+
+“You’re such a cry baby.” She complained. She turned to Awoomoon to whisper. “I have him on pain numbifiers. He can’t feel a thing. Make sure you watch him so he doesn’t try to walk.”
+
+Awoomoon nodded. “Wait, he’s coming home?”
+
+“Yes, Mikus and Sinitid are coming to transport him home.” She smiled and patted Awoomoon on the head one last time before leaving. “Take care now, Awoomoon.”
+
+“Thanks, Medic Lersha.”
+
+Awoomoon waited and talked with her father while waiting for the two beavers to come and transport him home. They came and floated him home on the stretcher they brought. Awoomoon stayed by her father’s side the rest of the day, and even slept by his bed on the floor next to him. The whole she watched, making sure he didn’t move his leg.
+
+The next morning, she made him breakfast in bed. “Here you go, dad.” She put a tray of food on the bed next to him.
+
+“Oh wow that looks delicious!” He licked his lips. “Do you want to start, or shall I?”
+
+“You go ahead.”
+
+“Ok.” *AWOOOO!* He howled just loud enough for it to go through the room, but not much further. “Food!”
+
+*AWOOOO!* Awoomoon responded. “Food!”
+
+“Aw-Oooo!” came another voice. “May I come in?”
+
+Awoomoon opened the door.
+
+“Soofawkoo! My old friend!” Frestiyen held up a pancake. “Come to join us for breakfast?”
+
+Soofawkoo pushed past Awoomoon to sniff the plate. “Needs more flour.” His head twitched to look in Awoomoon’s direction. He bowed his head. “Awoomoon.”
+
+Awoomoon bowed back. “Master Soofawkoo.”
+
+His head snapped back to Frestiyen. “How is your injury?”
+
+“Can’t feel a thing. Not sure if that’s good or bad.”
+
+Awoomoon shut the door.
+
+Frestiyen raised a finger. “Huripka—"
+
+Soofawkoo gave him a quizzical glance. “Who?”
+
+Frestiyen coughed in his fist. “Awoomoon?”
+
+“Yes, dad?”
+
+“You can go ahead and go meet your friend. I won’t keep you.”
+
+“It’s ok, dad. I told Awsoodoo to meet me tomorrow instead.” She grabbed a pancake and chowed down.
+
+“Of course you did, my little wolf pup.” He patted her head.
+
+“Dad…” Awoomoon whisper-grumbled. “Not in front of Master Soofawkoo.”
+
+“Right right.” He coughed. “Well, it’s ok. Soofawkoo is here, he can take care of me for a little bit while you go have fun.”
+
+“What?” She looked at Soofawkoo.
+
+He nodded. “Take a break, Awoomoon. Dismissed.”
+
+She eyed them both suspiciously, but left all the same. But not before taking another pancake. She left and shut the door behind her. Ears pinned up against the door, she listened in.
+
+“So what can I help you with?”
+
+“I got word from the guards. A lot of them are pulling double duty trying to fill in for me. Apparently I’m hard to replace. Which is why—” *COUGH* “I need to—” *COUGH COUGH*. He cleared his throat. *TOK TOK*. *CGH*. “Which is why I need to get back out there as soon as I can.”
+
+“I advise against this course of action. Your leg will not heal perfectly while standing.”
+
+“Which is why I need your help. If you petrify my leg, I can go back out there on guard duty.”
+
+“But then your leg won’t heal.”
+
+“Eh, I don’t walk around that much anyway. Might as well be a statue for as much as I move.” He chuckled.
+
+Soofawkoo didn’t laugh. “Ok, I will do it. But only as a temporary measure, understood?”
+
+“Agreed.”
+
+Awoomoon burst through the door. Soofawkoo was standing askew, tail splayed, grey-eyed feather fully bared. Frestiyen held his leg down in isolation. “Stop!”
+
+“Awoomoon!” Frestiyen jumped. “You’re supposed to be meeting your friend!”
+
+“And *you’re* supposed to be resting!” She pointed a finger at him. Then she looked at her teacher. “And you! How dare you try and petrify my father! Out!”
+
+“It is undignified to talk to your—”
+
+“Out!” She growled.
+
+Soofawkoo turned around and left.
+
+“Huripka! What are you doing?!” Frestiyen yelled. He snapped straight up and let his legs hang off the bed.
+
+“Making sure you heal up!” Huripka swept his legs back onto the bed and forced his head back onto the pillow.
+
+“Huripka, you’re meddling—” *COUGH* “Stop meddling in my affairs!” He tried to sit back up, but was forced back down.
+
+“Do you want Medic Lersha to come bite your leg off? Do you?”
+
+Frestiyen growled. After a moment of thought, he simpered down, whimpering. “No.”
+
+“Then stay in bed.” She sat on the edge of the bed, positioning her tail to prevent his knee from moving.
+
+He sighed. “Huripka, things are getting bad. The thieves I encountered, they weren’t just any ordinary thieves. They were cats.”
+
+Huripka’s ears perked. “Cats?”
+
+“Yes. They’re unlike anything you’ve ever seen. They sneak around, climb trees, climb buildings, climb *cliffs*. They’re the most dangerous predator around. They don’t give up. They hunt until their prey is captured.”
+
+“I’ve never seen one.”
+
+“The wolf tribe at the river border keeps them at bay. Ask your siblings. They’ve probably seen one or two. They’ve probably fought one or two.”
+
+“So how did cat thieves get all the way out here?”
+
+“We don’t know. Which makes this pair extra dangerous. We need that room they were after under watch at all times. We need all guards on duty. We need *me* on duty.”
+
+Huripka turned away. Her ears pinned back.
+
+“So you see now? I need Soofawkoo to turn my leg to stone so I can get back out there. You need to let me do this, Huripka.”
+
+Huripka’s head sunk into her shoulders as she hunched over.
+
+“I know, Lersha said I need to let it rest. But she doesn’t know what’s at stake here. Please, Huripka, *please*.”
+
+“So you say there’s not enough guards?”
+
+“Yes.”
+
+“And one more guard will make a significant difference?”
+
+“*Yes*.”
+
+Huripka sighed and turned around. “Then I’ll go.”
+
+“Huripka? No.”
+
+“I’m a great fighter, I’ll make a great guard. I’ve got nothing going on right now anyway.” She pulled his helmet off the wall and inspected it.
+
+“Huripka, no!” He sat up. “There’s more to being a guard than just being a good fighter! You don’t even know how to use a spear! How will you keep yourself awake on those long night shifts? You don’t have the experience. Besides, you’re too young! The guard chief won’t allow you to—”
+
+“Dad, it’s fine. This job is important to you, right?”
+
+“It’s important to everybody.”
+
+“And you are currently incapacitated. I’ll go do your job to fill in the gaps. That way, you won’t be tempted to run off.” She put on his belt and grabbed his spear. “I’ll send Awsoodoo to take care of you. Rest up.”
+
+“But, Huripka!”
+
+She was out the door before he could protest. Then the door opened again and Huripka peeked in. “I love you, dad!”
+
+“I… I love you, too, my little wolf pup.” He looked down at the ground, where a tear had just landed. “Be safe out there.”
+
+“Always!”
+
+# Chapter 5
+
+Huripka marched to her dad’s post. She emulated his movements from memory, but all the passersby could tell this was her first day on the job.
