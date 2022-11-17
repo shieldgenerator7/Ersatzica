@@ -44,7 +44,7 @@ Awsoodoo dropped his slingshot and rushed to her side. He wrapped his feathers a
 
 Huripka stopped howling. She looked down at it. "Wow, that… actually feels better."
 
-Awsoodoo then kissed her hand and patted it gently. He looked into her eyes.
+Awsoodoo then leaned down as if to kiss her hand, and rubbed the side of his face against her paw. Patting it gently, he looked into her eyes.
 
 In the distance, peacock sounds came closer.
 
@@ -92,7 +92,7 @@ A tear formed in Huripka's eye as she sat up. She furrowed her eyebrows and bare
 
 Awsoodoo got up and ran over to Huripka, but he got tripped. "Awooo!" He tried to howl, but it didn't come out like he thought.
 
-His older brother grabbed him by the legs and held him upside down. "You really suck at howling."
+“Did you just try to howl?” His older brother laughed as he grabbed him by the legs and held him upside down. "You really suck at it."
 
 Huripka propped herself up on her elbows and turned her muzzle towards the moon. *AWOOOO!* "Injury!" *AWOOOOO!* "Injury!" Her howls her pitiful but determined. They rang out loud and carried far and wide. They echoed off the trees. *AWOOOO!*
 
@@ -108,13 +108,13 @@ She opened her jaw and clamped down on it.
 
 She tried to open her mouth, but couldn't. The peacock had a tight grip. She squirmed like a fish and broke free. She grabbed Awsoodoo by the hand and they ran off.
 
-The other peacocks caught up quickly, but by the time they did, they were in sight of some guard wolves.
+The other peacocks caught up quickly, but by the time they did, they were in sight of some wolf guards.
 
 "What's the trouble? Are you the wolf crying injury?" The wolf guards looked down at Huripka.
 
 "Yes, sir." She nodded.
 
-"Yeah she cried injury!" The older peacock brother cut her off. "We heard her cries too, and when we got to the scene, this runt—" he kicked Awsoodoo. "—was hitting her with rocks." He hid his bit wing behind his back.
+"Yeah she cried injury!" The older peacock brother cut her off. "We heard her cries too, and when we got to the scene, this runt—" he kicked Awsoodoo. "—was hitting her with rocks." He hid his bit wing behind his back, taking great care to make sure the wolf guards didn’t see it.
 
 Awsoodoo hung his head.
 
@@ -142,15 +142,15 @@ Awsoodoo grabbed onto the bars and peered his head out between them. "Hu… Huri
 
 Huripka and Awsoodoo met every day at the creek to fish and hang out. They ran to the wolf guards whenever they heard Awsoodoo's brothers approaching. This went on for several weeks. Eventually Huripka told her papa about it.
 
-"So you someone is bullying you?" Huripka's papa, a silver and white wolf, stood next to a doorway, scanning the perimeter. His spear hand steadily held it straight up from the ground.
+"So someone is bullying you?" Huripka's papa, a silver and white wolf, stood next to a doorway, scanning the perimeter. His spear hand steadily held it straight up from the ground.
 
 "And my friend too, Papa!" Huripka hugged his stable leg.
 
 "I see. That is quite troublesome."
 
-"What should I do, Papa?" She looked up at the underside of his muzzle with a tear in his eye.
+"What should I do, Papa?" She looked up at the underside of his muzzle with a tear in her eye.
 
-"You shouldn't have to learn this so young." Without looking, her reached down with his free hand and wiped a tear from her eye. He sighed. "But you'd have to learn it someday."
+"You shouldn't have to learn this so young." Without looking, her reached down with his free hand and wiped the tear from her eye. He sighed. "But you'd have to learn it someday."
 
 "Learn what, Papa?"
 
@@ -198,7 +198,7 @@ Awsoodoo's eyes brightened. "Yeah! Maybe this won't be so bad. Except…"
 
 Huripka and Awsoodoo show up to class the next day to find that the teacher is indeed Awsoodoo's father.
 
-Class took place in a field at the top of a hill, surrounded by a flower garden. Rows and rows of flowers cascaded down the side of the hill. Although there was a wide variety of colors and flower types in this garden, all the flowers immediately on the edge of the clearing were thorned roses. Deer roamed the garden, watering them, pruning them, and planting them.
+Class took place in a field at the top of a hill, surrounded by a flower garden. Rows and rows of flowers cascaded down the side of the hill. Although there was a wide variety of colors and flower types in this garden, all the flowers immediately on the edge of the clearing were thorned roses. Deer gardeners roamed the garden, watering them, pruning them, and planting them.
 
 At the head of the field, the Pea-Fo master stood over his class. "Today class, you will notice we have two new pupils." Soofawkoo pointed a winged hand to Huripka and Awsoodoo.
 
@@ -316,7 +316,7 @@ Huripka struggled to put hers on. It constricted her breathing and clumped up on
 
 Awsoodoo and Huripka were paired up to showcase their skills.
 
-"Go easy on me?" Huripka asked Awsoodoo.
+"Go easy on me?" Huripka asked Awsoodoo, rubbing her neck.
 
 He looked left and right, but nodded anyway.
 
