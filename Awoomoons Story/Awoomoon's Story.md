@@ -926,4 +926,166 @@ She was out the door before he could protest. Then the door opened again and Hur
 
 # Chapter 5
 
-Huripka marched to her dad’s post. She emulated his movements from memory, but all the passersby could tell this was her first day on the job.
+Huripka marched to her dad’s post. She emulated his movements from memory, but all the passersby could tell this was her first day on the job. Her ears were folded up inside the helmet instead of sticking out through the slots, preventing the helmet from resting squarely on her head. She kept adjusting the shoulder pads because they slid off her shoulder as she marched. The spear plinked loudly as she held it like a walking stick. Her memories of her dad marching only served her so much; it was much harder to mimic.
+
+She got to her dad’s post and greeted the guard there with a salute. She also saluted the guard on the other side of the door. “I’m here to relieve you.”
+
+“You’re not Himbalun!” The guard saluted nonetheless. “Who are you?”
+
+“I’m Frestian’s daughter, Huripka.”
+
+“Who?”
+
+She sighed, taking off the helmet. “Awoomoon.”
+
+“Awoomoon! Wow! You’re taking over for me?”
+
+“Yes.” Awoomoon put her helmet back on.
+
+“Where’s my Pea-Fo master replacement?” The other guard complained.
+
+“Maybe next, Matteti.” The guard took off his helmet and stretched. “I’m so glad you’re here. I’ve been doing double duty since Frestian got injured. Those thieves are something else. I have no idea how he managed to fend them off.”
+
+“I’ll make sure to keep a look out for them.” Awoomoon said in a stern voice.
+
+“I’m sure you will.” The guard saluted her and marched away, talking to himself. “Awoomoon! Taking over for me! Wow!”
+
+Awoomoon went through the motions she saw her dad do so many times, albeit rather sloppily. She stared straight ahead, knees locked, shoulders, raised, eyelids unmoving.
+
+“Pssst!” said the other guard.
+
+Awoomoon looked at him.
+
+“Keep your eyes straight ahead!”
+
+Awoomoon snapped her head back into place. “Sorry.”
+
+“Ever do a shift before?”
+
+“This is my first shift.”
+
+“Ok, well, good on you. Would you like some tips?”
+
+“Uh-huh.”
+
+The guard gave her some tips.
+
+‘Thanks.”
+
+Awoomoon kept them in mind, but she still wound up nodding off as the day grew short and night fell. She leaned on her spear as she took a short nap. She woke up when her spear slipped on the stone apron of the doorway. Losing her balance, she fell forward, but managed to catch herself by stumbling forward. She looked around to make sure no one saw. At this time of night, no one had. Not even the other guard.
+
+Where was he? Awoomoon examined his post. His helmet rolled on the ground and his spear lay flat. Awoomoon’s eyes went wide. She took in the full light of the moon. The door was ajar. In all the years that her father guarded this door, she had only ever seen it open once, maybe twice. It was not supposed to be open.
+
+She reached to close it, but stopped. Who opened it? Where were they now? How did they even open it? She squinted at the door handle. It was intact.
+
+*TOPPLE OPPLE OPPLE…*
+
+The noise came from inside the building. They were definitely in there. It was probably the cat thieves. Driven half by duty and half by curiosity, Awoomoon pushed the door open. *SQUEEAAAAK…* Inside, pots and urns lined the shelves and the floor, dusty lines holding the places where they were supposed to sit. A single pot rolled out and stopped at Awoomoon’s feet. It was a petrified clay pot decorated in blood. The perfectly stenciled text on the side read:
+
+**DANGER. DO NOT RELEASE. DANGER. DO NOT RELEASE.**
+
+Awoomoon looked inside, but the opening was sealed shut in stone. She set the clay pot just inside the doorway. She looked around. The space was small, like a closet. Just enough room to hold the pots, which all had similar decorations. She squinted, but there was no sign of any thieves. Whoever was in there must have left already.
+
+The pots were all over the floor, but all setting upright, as if someone carefully moved all of them off the shelves and onto the floor. They should be back on the shelves, right? That would be a good reason to enter the forbidden room. Just long enough to put them away, and then never again. She put a foot inside the room.
+
+*crunch*
+
+Her ear locked onto a motion behind her. She ducked.
+
+A thin object whizzed above her. Undoubtedly some kind of weapon. She spun around, grabbing the object and facing her attacker in one move. The object turned out to be a sword, and she cut her palm on the blade.
+
+Her attacker pulled the sword back. Before her stood an orange-furred biped with glowing green eyes, a white stomache, and yellow stripes. His pointy ears pinned back and his fangs protruded from his mouth as he hissed. *HIIISSSSS*. The satchel strapped over his shoulder and the sheath attached to his belt flapped as he lunged forward with his blood-covered sword.
+
+Awoomoon dodged, stepped forward, and punched his sword hand. He dropped his sword and jumped back. Awoomoon jumped on him, knocking him onto his back. She knelt over him on all fours. “So, you’re the cat thieves? I’m disappointed. I thought you were a threat.”
+
+The cat hissed, spraying saliva on her muzzle. “Get off me, canine!” He pushed her off with his feet, and jumped onto his own.
+
+She tail swiped his legs, toppling him once again. “What are you doing here?”
+
+The cat reached into his satchel and pulled out a wool blob, that he then pulled over his head, covering his pinned ears completely. “Pantrinome!”
+
+*CLICK. CLICK.*
+
+Awoomoon stepped on the cat to keep it down, but her ears drew her attention towards the building.
+
+*BUM.*
+
+*BUM.*
+
+It started out soft and slow. The steady beat of a drum, like a heartbeat.
+
+*BUM. BUM.*
+
+Then it got louder, and more frequent.
+
+*BUM. BUM. BUM.*
+
+Awoomoon winced at the increasingly painful drum beats.
+
+*BUM. BUM. BUM. BUM.*
+
+Awoomoon covered her ears to keep them from bleeding. With each beat, her skull shook and her ribs rattled. She was so focused on dampening the sound she forgot about the cat.
+
+He painlessly waltzed up to the sword at the entrance and grabbed it. He opened the door all the way, revealing another orange striped cat.
+
+She orange fur practically glowed. Her red hair bounced with each drum beat. Her paws struck the drums at her waist with such force and confidence, it made Awoomoon’s tear ducts water up. Her tail waved in time with the ear-piercing song, resting regularly against the red metal boots she wore on her feet. Awoomoon’s heart thumped with the beat.
+
+What was this feeling? Who was she?
+
+Whatever it was, whoever she was, she was about to be gone. She placed a vase in the satchel., then he pulled a stopwatch out of it. He threw it on the ground away from him. The strap was long enough that he still held onto it. He smiled at Awoomoon as he pressed the button on the top of the stopwatch. In an instant, time shattered. The drum cat’s hands beat almost backwards, her tail swished in reverse, and her pony-tailed hair bounced oddly. Next thing, the sword cat set his sword on the ground, ran backward back to Awoomoon, fell on the ground of his own accord, got up without using his arms, and ran back to the doorway. There, the sword flew into his hand, he did a few sword swipes, and ran around the corner of the building. The whole time, the satchel awkwardly followed him like pups in the weening phase, making trails on the ground.
+
+The drum cat hid behind the door, then walked out backwards a few seconds later, rounding the corner like the other cat.
+
+Awoomoon ran after them. Why were they walking backwards? She followed them around the building. They were still running backwards, but getting away. They were running faster than she possibly could. And how did they manage to do it so *fast*?
+
+She took a step, but tripped. She fell onto all fours. Turning around, she saw a huge lump with some pieces of shiny metal reflecting the moonlight. Awoomoon sniffed it. The guard!
+
+*AWOOOOOOO!* She howled. “Injury!” *AWOOOOOOO!* “Injury!”
+
+Despite being in the middle of the night, help arrived quickly.
+
+“Awoomoon, is that you?” The silhouette of a bear rounded the corner.
+
+*AWOOOOO!* “Injury!”
+
+“I’m here, Awoomoon, what’s the matter?”
+
+“Medic Lersha! My fellow guard has fallen!”
+
+“Oh my coons!” She knelt down next to him. “What happened?”
+
+“The cats got him. I didn’t see, but I think he was shanked.”
+
+Medic Lersha patted him down, checked his pulse, and his breathing. “He’s still alive but he’s critical.”
+
+“What do we do?”
+
+“Let me work. I have to find the wound.” She roared and bared her saber tooth. Blood squelched from her gum and dripped down her saber tooth, glistening in the moonlight.
+
+Awoomoon jumped back.
+
+Medic Lersha hovered her muzzle over the body up and down. When she got to the waist, her lip leaked even more blood onto her tooth. “Underside.” She growled. She effortlessly rolled the body over and found the wound. There was a large puddle of blood where he had been laying. She held up her hand. The burn mark on her hand glowed yellow, and she slapped it down on the wound. She swiped her hand across the wound, leaving scarred, but sealed, skin in its wake.
+
+“Is he going to be ok?”
+
+“Call for help.”
+
+Awoomoon nodded. *AWOOOOO!* “Alone!”
+
+Two beavers waddled to the site, rolling sleep out of their eyes.
+
+“Mikus and Sinitid, this wolf needs to be taken to the infirmary. Critical condition.”
+
+Mikus gave a thumbs up through a yawn.
+
+Sinitid floated over a stretcher. Their flat beaver tails glowed blue as the wolf levitated off the ground and onto the stretcher. Then the stretcher hovered between them. They waddled off to the infirmary, magically pushing the stretcher to its destination.
+
+Medic Lersha stood up and addressed Awoomoon. “He’s lost a lot of blood. The prognosis is not good.” She laid a dim-lit hand on Awoomoon’s shoulder. “But if it weren’t for you, he would have been dead for sure. You may have just saved his life.”
+
+Awoomoon hung her head. “Thanks.”
+
+Medic Lersha gave her a quick hug. Awoomoon hugged her back, placing her bleeding hand on the bear’s back.
+
+“Oh, you’re bleeding. Let me take care of that.” Medic Lersha’s burnt hand glowed yellow and she grabbed Awoomoon’s. They held hands for a bit as she shook it heartedly. “Now get back to your duties.” She patted the top of Awoomoon’s helmet.
+
+Awoomoon went back to the front of the building. She closed the door. She stood at her post, unmoving, waiting for the next guard to come and relieve her. If she hadn’t fallen asleep, her fellow guard might not have gotten stabbed. And now the cat thieves have gotten away with a vase. And it’s all her fault. Well, she won’t fall asleep again. Not after that incident. She’s going to stay awake and make up for her mistake.
