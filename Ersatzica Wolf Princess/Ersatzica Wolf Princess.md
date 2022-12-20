@@ -886,7 +886,7 @@ Awoomoon's eyes went wide and her ears folded back, but only for an instant. "Th
 
 The wolf guard bowed. "It will be my honor to bring you her head."
 
-"Alive," Awoomoon clarified.
+"Alive," Awoomoon clarified. “Bring her to me alive.”
 
 "Oh. Of course, Chieftess."
 
@@ -898,7 +898,7 @@ She herself was hiding in a corner with Mudrich. "They've got the place surround
 
 "But we both know you don't have the best memory."
 
-"Well you can't go in."
+"Well *you* can't go in."
 
 "Ok, you go. I'll wait here."
 
@@ -950,7 +950,7 @@ Mudrich handed the wolf skin to Ersie. "Mother says this is for you," she whispe
 
 A black shadow arose from the corner behind Mudrich. It towered over her. "Muddy!" Wryonin shot right above Mudrich's head dead on to shoot the figure standing behind her.
 
-Mudrich reached up and caught the rock.
+Mudrich reached up and caught the rock in her hand.
 
 "Muddy, what are you doing? Move!" Wryonin yelled.
 
@@ -966,7 +966,7 @@ Mudrich looked at Ersie.
 
 Ersie shook her head. "I've been here the whole time, and there was no cat here."
 
-Wryonin punched a wall. "I told you there was no cat out here!"
+Wryonin threw a rock at a wall. "I told you there was no cat out here!"
 
 Lemilay's ears folded back. "I saw it! You saw it too, didn't you?"
 
@@ -1006,7 +1006,7 @@ He put them on. "I wish I was a cat." Nothing happened. "I wish I was a cat." St
 
 "Why do you want to be a cat so bad?" Mudrich scowled.
 
-"It would be great for espionage missions."
+"It would be great for espionage missions." Wryonin held onto Lemilay to stabilize himself in the boots.
 
 "It sure will." An older wolf approached them.
 
@@ -1024,9 +1024,21 @@ He put them on. "I wish I was a cat." Nothing happened. "I wish I was a cat." St
 
 "Yes, Mother."
 
-"Well done, my dear." Awoomoon turned to Mudrich and caressed her muzzle. "Be sure to get a bath tomorrow."
+“And Ersatzica?”
 
-"Do I have to?" Mudrich complained.
+“Yes, Mother?”
+
+“Do not, under any circumstances, wear the boots again until you have fitted them for wolf feet.” Mother stared straight into Ersie’s eyes with a commanding gaze. “Understand?”
+
+“Yes, Mother.”
+
+Mother nodded. “Very good.” Then she turned to Mudrich and caressed her muzzle. "Well done, my dear. That was some top notch protecting you did."
+
+Mudrich beamed with pride, chin held high and tail wagging.
+
+"Be sure to get a bath tomorrow."
+
+Mudrich’s ears drooped. "Do I have to?"
 
 "Hmm. Yes." Awoomoon walked away. "See you tomorrow, my pups."
 
@@ -1084,7 +1096,7 @@ The wolf siblings went to sleep, but something was keeping Ersatzica awake. She 
 
 Ersie panted.
 
-"Hey Ersie help me find that shovel." Mudrich lifted the cart effortlessly. The cuffs hung around her wrists.
+"Hey Ersie, help me find that shovel." Mudrich lifted the cart effortlessly. The cuffs hung around her wrists.
 
 "We don't have time for this. Training is about to start." Wryonin glanced out the window. "Mudrich, help Ersatzica gather her tools."
 
@@ -1192,7 +1204,7 @@ Ersatzica's ears folded back. "Well, no… they could have come without me. I wo
 
 "Y… yes… sir," Ersatzica grimaced.
 
-"That's more like. Now go run 5 laps!" The coach wolf howled, "Run!"
+"That's more like it. Now go run 5 laps!" The coach wolf howled, "Run!"
 
 "But I can't! You see, I have this scar—"
 
@@ -1224,7 +1236,7 @@ They continued through the trail, all the way to the point where it looped back 
 
 Wryonin and Mudrich ran back to get Ersie.
 
-Meanwhile, Ersie walked along the path, breathing rapidly, trying to catch her breath. She ran a hand through her belly fur. The scar tissue still had the same bumpy texture. She looked at her hand. It was clean, save for the bit of dust. But there was no blood on it. Ersie breathed a sigh of relief.
+Meanwhile, Ersie walked along the path, breathing rapidly, trying to catch her breath. She ran a hand through her belly fur. The scar tissue still had the same bumpy texture. She looked at her hand. It was clean, save for the bit of dust. There was no blood on it. Ersie breathed a sigh of relief.
 
 Wryonin and Mudrich came back for Ersie.
 
@@ -1290,7 +1302,7 @@ He slapped her again. "Mudrich! Daughter of the Chieftess! I'm shocked you would
 
 Mudrich whimpered and went off into the woods to find the stick.
 
-Coach Ynndor had Ersatzica doing a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
+Coach Ynndor ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
 
 "Morning training complete!" Coach Ynndor howled. "Done!"
 
@@ -1312,7 +1324,7 @@ The dark grey granite rock was indeed rather flat for a boulder its size. It had
 
 "This is a nice spot, Ersie!" Mudrich placed a hand on the trees, shaking herself violently. "These trees don't move. That's good!"
 
-"If I'm not allowed to work in my workshop for now, this isn't such a bad spot." Ersie took the boots out of the cart and set them on the slab. She looked out across the river at the outcropping. Where is he now? Will I ever see him again? What if Mudrich sees him? Will a whole river be enough to stop her from chasing him down?
+"If I'm not allowed to work in my workshop for now, this isn't such a bad spot." Ersie took the boots out of the cart and set them on the slab. She looked out across the river at the outcropping. The outcropping where the fisher cat had been sitting the other day. Where is he now? Will Ersie ever see him again? What if Mudrich sees him? Will a whole river be enough to stop her from chasing him down?
 
 "Ersie?" Mudrich looked out across the river. "What's over there? Do you see something?"
 
@@ -1320,15 +1332,15 @@ Ersie shook herself out of it. "No, I just like the view."
 
 "It is a really nice location. How are you doing, by the way?"
 
-"It's really sore. It feels like it could burst open any minute." Ersie took out some tools from the bag and laid them next to the boots.
+Ersie gently rubbed her scar. "It's really sore. It feels like it could burst open any minute." Ersie took out some tools from the bag and laid them next to the boots.
 
-"Oh Ersie you shouldn't be overexerting yourself. Here let me set up your workbench for you." Mudrich unloaded the cart by dumping it wholesale onto the stone slab. Things went everywhere, including her tools, and the pile was topped by a fresh dusting of dirt, straight from the bottom of the cart.
+"Oh Ersie you shouldn't be overexerting yourself. Here, let me set up your workbench for you." Mudrich unloaded the cart by dumping it wholesale onto the stone slab. Things went everywhere, including her tools, and the pile was topped by a fresh dusting of dirt, straight from the bottom of the cart.
 
 Ersie sighed. "Thanks, Muddy."
 
-"No problem!" Muddy set the cart down and began digging in the dirt. "I think I found something!" She dug with her wolf-clawed hands into the dirt, throwing the dirt between her legs and directly onto Ersie's new workbench.
+"No problem!" Muddy set the cart down and began digging in the dirt. "I think I found something!" She dug with her wolf-clawed hands into the dirt, throwing the dirt between her legs directly onto Ersie's new workbench.
 
-"Mudrich, didn't you say you wanted to setup a hammock?" Ersie blew the dirt of the workbench.
+Ersie’s eyebrows lowered. "Mudrich, didn't you say you wanted to setup a hammock?" Ersie blew the dirt of the workbench.
 
 "Oh yeah!" Mudrich got up, holding a dirty sharp metal object. "I found a… uh, cutting thing that you throw."
 
@@ -1344,7 +1356,7 @@ Ersie grabbed it and took a look. "I think it's a spearhead." She gave it back t
 
 "There's a faint taste of blood." She smacked her lips. "I'd say it's probably wolf blood."
 
-"Not surprising. Were going to get the hammock? I might need to lay down soon."
+"Not surprising. Were you going to get the hammock? I might need to lay down soon."
 
 "Oh right! Do you think we have time before the special workout session?"
 
@@ -1354,15 +1366,15 @@ Ersie grabbed it and took a look. "I think it's a spearhead." She gave it back t
 
 Ersie stopped dusting off the boots and her workspace to look at the outcropping across the river. Crossing the river is dangerous, especially for her. What would have happened to her if that fisher cat hadn't been there? There's a waterfall not too far from here. She would've gone over for sure. Not too many have went down it and survived.
 
-Before she knew it, she was already out of the workspace area and next to the river, moments away from stepping in. What would it be like to be a cat? And not just for a few hours, but forever? And live among other cats? No, that's crazy. Cats are evil creatures, who will kill any wolf on sight. But no, that can't be true. Not *all* true. The fisher cat didn't kill me on sight, even though he could have.
+Before she knew it, she was already out of the workspace area and next to the river, moments away from stepping in. What would it be like to be a cat? And not just for a few hours, but forever? And live among other cats? No, that's crazy. Cats are evil creatures, who will kill any wolf on sight. But no, that can't be true. Not *all* true. The fisher cat didn't kill her on sight, even though he could have.
 
 A random howl rang out. The message was for her mother the chieftess. Nonetheless, it snapped Ersie out of her daze. She went back to the workbench and started working on the boots. It didn't take her long to get the dirt off them. She took them off the table and set them on the ground.
 
 *Thud.*
 
-She unlatched them and slipped her wolf feet into them. "I wish I was a cat." With the magic words said, her transformation began again. It was just as weird as the first time, but this time she knew what to expect. This time, she gently folded her wolf skin and set it on the workbench. She latched the boots. Standing straight up, she held her scar for a moment and extended her arms into a t-pose. She lifted one leg at a time and jumped into the air. This time, she landed and didn't fall.
+She unlatched them. She stared at the open mouth of the boots, inviting her in. Mother told her not to wear them until she converted them to work with wolf feet. But she doesn’t have enough info. How do the mechanisms work? How are they supposed to fit to the form of the foot? More testing was necessary before the conversion began. And no one was around to see her…
 
-She's getting better at this. At being a cat. Soon she will be able to understand how to convert the boots for use by wolves. The cats won't know what hit them.
+Ersatzica slipped her wolf feet into the cat boots. "I wish I was a cat." With the magic words said, her transformation began again. It was just as weird as the first and second times, but this time she knew what to expect. This time, she gently folded her wolf skin and set it on the workbench. She latched the boots. Standing straight up, she held her scar for a moment and extended her arms into a t-pose. After a moment of wobbling, she steadied herself. She lifted one leg at a time. Still standing. She jumped into the air and landed feet-first. This time she didn't fall. She was getting the hang of these boots and her new cat form.
 
 "Cat!" A wolf yelled from the woods. He howled into the air. Raising his axe, he charged at Ersatzica.
 
