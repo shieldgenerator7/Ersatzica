@@ -1020,7 +1020,7 @@ He put them on. "I wish I was a cat." Nothing happened. "I wish I was a cat." St
 
 "No, Mother."
 
-"See to it that they do. This is your top priority."
+Mother laid a hand on Ersatzica. "See to it that they do. This is your top priority."
 
 "Yes, Mother."
 
@@ -1375,6 +1375,12 @@ A random howl rang out. The message was for her mother the chieftess. Nonetheles
 She unlatched them. She stared at the open mouth of the boots, inviting her in. Mother told her not to wear them until she converted them to work with wolf feet. But she doesn’t have enough info. How do the mechanisms work? How are they supposed to fit to the form of the foot? More testing was necessary before the conversion began. And no one was around to see her…
 
 Ersatzica slipped her wolf feet into the cat boots. "I wish I was a cat." With the magic words said, her transformation began again. It was just as weird as the first and second times, but this time she knew what to expect. This time, she gently folded her wolf skin and set it on the workbench. She latched the boots. Standing straight up, she held her scar for a moment and extended her arms into a t-pose. After a moment of wobbling, she steadied herself. She lifted one leg at a time. Still standing. She jumped into the air and landed feet-first. This time she didn't fall. She was getting the hang of these boots and her new cat form.
+
+She walked around her workspace in the boots, taking notes as she went. There was a bottom plate in the interior of the boot that her pads comfortably rested on. Her heel had full support as well. The current adjustment of the top plates made the boots fit snugly around her feet so they didn’t jostle when she took steps. Interestingly enough, lifting her foot off the ground didn’t lift the boots from the top of the foot. Instead, the boot was lifted from the toe joint and ankle.
+
+There were no holes for claws, but that didn’t bother her, as she had no claws protruding out. Her wolf feet, however, did. That’s going to be the hardest accommodation, most likely. Why don’t cats have claws? That’s weird.
+
+Ersatzica returned to her workbench and donned her wolf skin. She placed the boots on her work table and got to work figuring out how to adjust the inner plates.
 
 "Cat!" A wolf yelled from the woods. He howled into the air. Raising his axe, he charged at Ersatzica.
 
