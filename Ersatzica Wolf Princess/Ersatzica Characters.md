@@ -53,3 +53,9 @@ Bear medic. She resides in the peacock village.
 *A bear a head taller than Dad walked into the room. She wiped her fire-burnt palm on her medic apron.*
 
 *Her frown was accentuated by a long saber tooth protruding from her upper jaw, which was trickle bleeding from the gum.*
+
+# Fisher
+
+Cat fisherman. Rescued Ersatzica from the river, and was her entry point into cat culture. Dates Ersatzica.
+
+Born a wolf, he was transformed into a cat, and chooses to stay in cat form.
