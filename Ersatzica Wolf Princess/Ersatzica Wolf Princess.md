@@ -1044,103 +1044,109 @@ Mudrich’s ears drooped. "Do I have to?"
 
 "I think these need to be tested a bit more." Wryonin handed the boots back to Ersie. "I don't know what I'm doing wrong, but they're not working."
 
-"Sometimes heirlooms have rules, and maybe you don't fit them?" Lemilay led the group back to the barracks. Once inside, Wryonin held up the lantern as the others got into bed.
+"Sometimes heirlooms have rules, and maybe you don't fit them?" Lemilay shrugged. She sniffed the night air. “Alright, let’s get to bed.”
+
+Lemilay led the group back to the barracks. Once inside, Wryonin held up the lantern as the others got into bed.
 
 "Speaking of fit, you're coming to training tomorrow, young sis." Wryonin held the lantern up for Ersatzica.
 
+“No, I don’t think I’ll be able to make it.” Ersatzica climbed into her top bunk.
+
+“That wasn’t a question. You’re coming to training tomorrow.”
+
 "Um… no, like Mother said, I'm to prioritize the boots. I'll be too busy." Ersie looked down from her bunk.
 
-"Nonsense. They need more testing, and you need training. We could do both at the same time."
+"Nonsense. Training isn’t going to take that long. Besides, it’ll do you some good. Help get your brain engaged.” Wryonin held the lantern down to illuminate the bed under Ersatzica’s.
 
-Mudrich got into bed.
+“Come on, Ersie, it’ll be fun!” Mudrich jumped into bed, landing on her blanket and rolling into a burrito.
 
-"But I need my tools." Ersatzica fluffed her pillow.
+"But I can’t. My scar keeps me from doing intense exercise. You know this." Ersatzica fluffed her pillow.
 
-"Mudrich can bring them for you."
+“We’ll go easy on you, for your first day.” Wryonin swung the lantern to the other side of the room.
 
-Lemilay got into bed.
+Lemilay gently flapped open her blanket, laid down, and flapped her blanket closed on top of her.
 
-"I don't want to lug all those tools up and down the stairs." Mudrich groaned.
+“I don’t know. I don’t think I’ll like it.” Ersatzica rolled over, turning her back to the light.
 
-"Wryonin just get into bed." Lemilay commanded.
+“C’mon, Ersie! It’ll be fun to go running with you!”
 
-"You'd do it for young sis, though, right?" Wryonin held the lantern up to Mudrich.
+“Yeah, running!” Wryonin stood at the table in the center of the room, hovering the lantern over it.
 
-"I guess." Mudrich shielded her eyes from the lantern.
+"Wryonin, just get into bed." Lemilay commanded.
 
-"Wryonin, come on." Lemilay gestured to him.
+“Not until Ersatzica agrees to come to training.”
 
-"And Ersatzica, you'd go to training for me, right?" Wryonin ignored Lemilay and held the lantern up to Ersatzica.
+"Ersatzica, please." Lemilay groaned.
 
-Ersie sighed. "I guess so."
+“C’mon, Ersie!”
 
-"Ok! It's settled!" Lemilay groaned. "You're going to training tomorrow. Get into bed already, Wryonin!"
+“Ersatzica?” Wryonin held the lantern up to her level.
 
-"Ok." Wryonin happily turned off the lantern and climbed into the top bunk.
+Ersatzica sighed. “Ok, I guess.”
+
+"Ok! It's settled!" Lemilay groaned. "Ersatzica is going to training tomorrow. Get into bed already, Wryonin!"
+
+"Ok." Wryonin whistled happily as he turned off the lantern and climbed into the top bunk. It squeaked and shifted as he climbed up.
+
+“Careful, Wryonin. Ersatzica, you got to fix these bunk beds.”
+
+“I’ll get to it… eventually.”
+
+“Tomorrow?”
+
+“We’ll see.”
+
+“Goodnight!” Mudrich howled quietly.
+
+“Goodnight!” They howled back.
 
 The wolf siblings went to sleep, but something was keeping Ersatzica awake. She tossed and turned as she lay in bed. Something felt off. Was it her tail? No, her wolf tail was full and fluffy like usual. She brought it up between her legs and hugged it. Was it her face? She rubbed a paw around her face. No, wasn't that. After laying still for a second, her stomach skin seemed to peel up, like a huge blister. That was it. Something didn't feel right about her skin. It was like she was wearing a sweaty shirt, tightly wrapped around her skin, clinging to it. Must be a lingering effect of the transformation. She'd have to catalogue it as a side effect tomorrow. Now that she knew what it was, she breathed a sigh of relief. She tried to ignore it and go to sleep.
 
 # Chapter 4
 
-"Ok, thanks for escorting me to my workshop, guys, I'm safe now." Ersatzica stood in the doorway to her workshop, looking at Mudrich and Wryonin. The door still laid on the floor.
+"Ok, thanks for escorting me to my workshop, guys. I feel safe now." Ersatzica walked up to her workshop, Wryonin and Mudrich besides her. The sun shone through the doorless doorway, glistening through the morning dew on the tiles.
 
-"Not this time, Ersatzica." Wryonin barged into the workshop. "You're not dodging training this time."
+"Not this time, Ersatzica." Wryonin barged into the workshop ahead of Ersatzica, blocking her path. "You're not dodging training this time."
 
-"Dodge… training?" Ersie sheepishly smiled. "No, no… I was just…"
+"Dodge… training?" Ersie sheepishly smiled. "No, no… I was just…" Ersie ducked under Wryonin’s arm and slipped in past him.
 
-"Yeah, Ersie! Dodge training!" Mudrich brushed past Ersatzica to riffle through the cart. "We're going to practice dodging projectiles today! You know, arrows and rocks and stuff." Mudrich batted around the items in the cart. "Where'd you put the shovel?"
+"Yeah, Ersie! Dodge training!" Mudrich brushed past Wryonin to riffle through the cart in the corner. "We're going to practice dodging projectiles today! You know, arrows and rocks and stuff." Mudrich batted around the items in the cart. "Where'd you put the shovel?"
+
+“Guys, we got to get to training!” Wryonin turned around.
 
 "It should still be in the cart." Ersie looked in. "Wait… Arrows?!"
 
 "Don't be so dramatic Ersie." Wryonin looked around. The shelves were still packed with miscellaneous parts. "We only shoot sandbags during training. Non-lethal."
 
+“Guys, let’s go.”
+
 Ersie panted.
 
 "Hey Ersie, help me find that shovel." Mudrich lifted the cart effortlessly. The cuffs hung around her wrists.
 
-"We don't have time for this. Training is about to start." Wryonin glanced out the window. "Mudrich, help Ersatzica gather her tools."
+"We don't have time for this. Training is about to start." Wryonin glanced at the counter below the window. The sun crept along the various parts and pieces scattered on it.
 
 Mudrich whimpered. "I wanted the shovel."
 
-"Ersatzica, what do you need?"
+“Nope, not now. We’ll find it later.” Wryonin got behind Mudrich and pushed her out the door. “Let’s go, Ersatzica.” He pushed her out too.
 
-"Let me collect my tools into this tool bag." Ersatzica pulled a bag out of an overhead shelf. "Can you two give me some space to pack?"
+“Ok, I’m going.” Ersatzica joined Mudrich outside the workshop, grabbing the stick on the way out.
 
-Wryonin took a step towards the door.
+“Ok,” Wryonin clapped. He reached behind him for the door knob. Then remembered the door was on the floor. “Right, this way to training.”
 
-Ersatzica sighed. "Ok. Give me five minutes."
+"But I need to fix my door first." Ersatzica pointed.
 
-"Let me know if you find that shovel." Mudrich got down on all fours and searched under the countertops.
-
-Ersatzica packed her tools into the bag.
-
-"All set?" Wryonin asked.
-
-"No, I still need to bring the drum, the boots, and the cart."
-
-"The whole cart?" Wryonin lifted an eyebrow.
-
-"It's got all my current assignments in it." Ersatzica lifted up a broken assembly. "I've got a lot of work to do."
-
-"It's no problem, Ersie!" Mudrich bounced the cart in her hands.
-
-"Careful with those, Muddy." Ersie guided her hands down. She set the toolbag, drums, and boots in the cart.
-
-"All right let's go." Wryonin led them out the door.
-
-"But I need to fix my door first."
-
-"No, Lemilay is arranging for that to be fixed by the carpenter." Wryonin pulled Ersatzica through the doorway. "You're going to training."
+"No, Lemilay is arranging for that to be fixed by the carpenter." Wryonin pulled Ersatzica along. "You're going to training."
 
 The trio headed toward the cliff face, where a long zig-zag stone staircase greeted them. The town was built on top of a plateau, and the staircase was the only easy way to get up to the town or down to the river. Centuries old, the staircase had been carved out of the cliff face. It showed signs of smoothing from the rain and a lot of the steps were sloped and rounded. Every year, it became more and more like a slip and slide. Luckily, the pads at the bottom of the wolves' feet provided enough friction to gain traction on the dry stone.
 
 Wryonin led Ersatzica and Mudrich down the stairs to the forested area below. The area was surrounded on the south side by the stone staircase, on the east side by the cliff of the plateau, on the west side by the river beach where Mudrich recently scored a hammer kill, and on the north side by the river where Ersatzica was saved by the cat with a fishing pole.
 
-Ersatzica reached into the cart and pulled out the stick she had had that day. What was that cat doing there? Is he still out there? Did he think Ersatzica was a cat? And if not, why would he rescue a wolf?
+Ersatzica played with the stick she had had that day. What was that cat doing there? Is he still out there? Did he think Ersatzica was a cat? And if not, why would he rescue a wolf?
 
 "We're here." Wryonin said.
 
-Ersatzica looked up from the stick. They were in a familiar clearing, but not one that Ersatzica often saw with this many wolves. They were of all ages, and all sizes, but not all shapes. Most of them were buff male wolves that had seen some sort of combat. Many had scars in all sorts of places. The wolf at the head of the formation led them in stretches. He was missing an arm.
+Ersatzica looked up from the stick. They were in a familiar clearing, but not one that Ersatzica often saw with this many wolves. They were of all ages, and all sizes, but not all shapes. Most of them were buff male wolves that had seen some sort of combat. Many had scars in all sorts of places. The wolf at the head of the formation led them in stretches. He was missing an arm. Nevertheless, his tall stature and muscular frame combined with his scowling face made him rather intimidating.
 
 "Wryonin, nice of you to finally join us." He said mockingly.
 
@@ -1150,7 +1156,7 @@ Wryonin bowed. "Sorry, sir." He fell in line behind the other wolves in formatio
 
 "Yes, sir." Wryonin got on his belly and did 20 pushups.
 
-Mudrich set down the cart and joined Wryonin on the ground, knocking out the pushups.
+Mudrich joined Wryonin on the ground, knocking out the pushups quickly.
 
 Ersatzica cautiously stepped up next to them and began stretching.
 
@@ -1182,17 +1188,21 @@ Wryonin stood at attention. "I got distracted, sir, I take full responsibility. 
 
 "Hmm." The coach wolf's mouth moved slightly in amusement. Then he turned to Ersatzica. "Ersatzica, Daughter of the Chieftess. I'm surprised to actually see you here."
 
-Ersatzica looked up at him but didn't respond.
+“Um, hi Uncle Callustar.” She smiled sheepishly.
 
-"What brings you here on this fine lovely day?"
+“That’s ‘sir’ to you. We’re in training.” Uncle Callustar demanded.
 
-"Wryonin convinced me to come."
+“Hi, sir.”
+
+"And what brings you here on this fine lovely day?"
+
+"Wryonin convinced me to come." She fidgeted with the stick.
 
 "Ah!" He smiled wryly. "So that's why you were late, Wryonin? Ersatzica, you caused your siblings to be late, is that correct?"
 
 Ersatzica's ears folded back. "Well, no… they could have come without me. I would've caught up."
 
-"Oh." The coach wolf raised an eyebrow. "So you were *planning* on arriving late?"
+"Oh." The Uncle Callustar raised an eyebrow. "So you were *planning* on arriving late?"
 
 "No-no…"
 
@@ -1200,55 +1210,83 @@ Ersatzica's ears folded back. "Well, no… they could have come without me. I wo
 
 "No, I was planning on coming." Ersatzica took a step back.
 
-"Hmm." He glared into her eyes. "Ok, well it's a good thing. You could definitely use the training. As of right now," he said as he swiped the stick from Ersatzica's hand, "you lack discipline. By the end of your training, how ever long it takes," he used the stick to guide Ersatzica's posture into the pristine stance that Mudrich and Wryonin were using, "you will know how to be on time, how to run fast, and how to be a proper wolf."
+"Hmm." He glared into her eyes. "Ok, well it's a good thing. You could definitely use the training. As of right now," he said as he swiped the stick from Ersatzica's hand, "you lack discipline. By the end of your training, how ever long it takes," he used the stick to guide Ersatzica's posture into the pristine stance that Mudrich and Wryonin were using, "you will know how to be on time, how to run fast, and how to be a proper wolf of loyalty."
 
-"Y… yes… sir," Ersatzica grimaced.
+“Ok.”
 
-"That's more like it. Now go run 5 laps!" The coach wolf howled, "Run!"
+“That’s ‘yes, sir’ to you.”
+
+"Y… yes… sir." Ersatzica put on a brave face, and stood up straight.
+
+"That's more like it. Now go run 5 laps! And make them quick!" The Uncle Callustar howled, "Run!"
+
+Wryonin and Mudrich took off jogging, but Ersatzica stayed behind.
+
+“What are you waiting for? Run!”
 
 "But I can't! You see, I have this scar—"
 
 "Did you hear me? I said run!" He slapped her on the back with the stick and prodded her to start going.
 
-Wryonin and Mudrich took off down the trail at a pace they considered a jog, but for Ersatzica, it was a sprint.
+She walked in the direction Wryonin and Mudrich went.
 
-"Wow, Ersie!" Mudrich ran beside her. "You're actually keeping up! See? I knew you could do it!"
+“Are you deaf? I said run!”
+
+“Yes, sir.” Ersatzica picked up the pace.
+
+Wryonin and Mudrich were quite a bit, jogging along the trail at a pace they considered a jog, but for Ersatzica, it was a sprint.
+
+“Wait up!” Ersatzica yelled.
+
+Mudrich stopped and ran to her. “There you are!” Mudrich ran beside Ersie, while Wryonin kept at his pace ahead of them. "Wow, Ersie! You're actually keeping up! See? I knew you could do it!"
 
 Ersatzica breathed heavily. "I… need… to… take… a breather." She slowed down to her jog pace, then to a walk, then she stopped and rested her hands on her knees.
 
-"Ersie!" Mudrich yelled back as she continued running. She looked at Wryonin. "Should we stop and wait for her?"
+"Wryonin!" Mudrich yelled out to him as she stopped running. "Wait for us?"
 
-"You heard Coach Ynndor. Run."
+Wryonin stopped to turn around and shout back, "You heard Uncle Callustar. Run."
 
-They continued through the trail, all the way to the point where it looped back around to the training clearing.
+“Wryonin!” Mudrich yelled.
 
-"Where's Ersatzica?" Coach Ynndor scowled.
+“It’s ok, Mudrich.” Ersatzica panted. “I’ll catch up with you guys.”
 
-"She's coming." Wryonin perked his ears.
+“Are you sure?”
 
-"You were assigned to run together. As a *group*. You left your teammate behind, Wryonin. You left your own *sister* behind! How can you consider yourself a wolf of loyalty and do that?"
+“Yeah go on ahead.”
 
-"I'm sorry, sir." Wryonin hung his head.
+“Ok, I’ll keep an eye on you, make sure you’re still there.”
 
-"Don't apologize! Go back and get your sister! And this time, don't come back unless you're all three together!"
+“Thanks.”
 
-"Yes, sir."
+Mudrich took off, catching up with Wryonin easily.
 
-Wryonin and Mudrich ran back to get Ersie.
+Walking along the path, Ersie breathed rapidly, trying to catch her breath. She ran a hand through her belly fur. The scar tissue still had the same bumpy texture. She looked at her hand. It was clean, save for the bit of dust. There was no blood on it. Ersie breathed a sigh of relief.
 
-Meanwhile, Ersie walked along the path, breathing rapidly, trying to catch her breath. She ran a hand through her belly fur. The scar tissue still had the same bumpy texture. She looked at her hand. It was clean, save for the bit of dust. There was no blood on it. Ersie breathed a sigh of relief.
+Ersatzica panted and leaned on a tree. Why was it so hot out? It was still morning, wasn’t it? Wasn’t it supposed to be cool in the morning? The sun is out. She leaned into the tree’s shade and looked around. Oh the river! It would be cool, for sure! It’d also help satisfy her thirst.
 
-Wryonin and Mudrich came back for Ersie.
+Ersatzica walked to the river and splashed her face with water. Ah, yes! That feels so good! She looked across it. There’s that rock. The fisher cat was sitting on it the other day. If he hadn’t been there… Ersatzica looked down river. She couldn’t see from where she was at, but the water fall roared from just beyond the next tree line. She turned again to the rock. But he *was* there. And he saved her. But why?
+
+She rolled around in the swallow part of the river. That hit the spot! But she was all wet. She shook it off, but was still a little wet. She climbed up onto a boulder near her. That’s nice.
+
+A small rock flew out from nowhere and landed right next to her. She jumped. The rock was the size of her hand. It slid down the side of the boulder and landed in the sand. The string tied around it pulled it slightly toward the river. That string stretched all the way across the river and disappeared into thin air at about the point it would go over the fisher cat’s rock.
+
+Ersatzica scrambled for the tree line. She hid behind a tree and observed the rock. The string pulled it across the river and up to the rock, where it too disappeared.
+
+Ersatzica stared at the river for a moment. What was that? Why did it disappear like that? Where did it go?
+
+“Ersatzica!” Mudrich yelled. *AWOOOOOO!* “Where?”
+
+*AWOOOO!* “Here!” Ersatzica howled back. She returned to the running path.
 
 "Ersie! There you are! What's taking so long?"
 
-"You know, the usual."
+"You know, the usual." She held her scar.
 
 "You doing ok?"
 
 "Same as usual."
 
-"Coach Ynndor said we should travel together." Wryonin ran up to her side and jogged next to her, almost in place, as slow as she was going. "Can you go faster?"
+"Uncle Callustar said we should travel together." Wryonin ran up to her side and jogged next to her, almost in place, as slow as she was walking. "Can you go faster?"
 
 "I've reached my limit, Wryonin. I can't run anymore right now."
 
@@ -1294,7 +1332,7 @@ Ersatzica jogged with Wryonin and Mudrich, who were going extra slow for her, do
 
 "Thanks Muddy."
 
-When they got back to the training area, Coach Ynndor slapped Mudrich with the stick. "No! She has to do it herself! Or she'll never learn."
+When they got back to the training area, Uncle Callustar slapped Mudrich with the stick. "No! She has to do it herself! Or she'll never learn."
 
 "She's got to rest! She's got a scar that could—"
 
@@ -1302,25 +1340,63 @@ He slapped her again. "Mudrich! Daughter of the Chieftess! I'm shocked you would
 
 Mudrich whimpered and went off into the woods to find the stick.
 
-Coach Ynndor ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
+Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
 
-"Morning training complete!" Coach Ynndor howled. "Done!"
+"Morning training complete!" Uncle Callustar howled. "Done!"
 
-All the wolves ran over to the stairs and up to the village on the plateau.
+All the wolves were dismissed. They ran over to the stairs and up to the village on the plateau.
 
-Coach Ynndor held the trio back. "In about 3 hours, you three will join me for a special workout session to help Ersatzica catch up on all her years of missed training."
+Ersatzica had gotten the stick back from Uncle Callustar and held it on the way back to her workshop. Once there, she examined the boots. They were clean and shiny, save for some minor dust, just the way she left them. The stick… the boots… the rock… She had to find out. There was a good chance that it was the fisher cat, and that he was friendly. She had to know.
 
-The trio nodded and then they were dismissed.
+The next day, she brought the boots with her.
 
-Ersatzica had gotten the stick back from Coach Ynndor and pointed it in a direction towards the river. "Mudrich, let's set up base over there!"
+“What are bringing those for?” Wryonin asked.
 
-"Why over there?"
+Ersatzica shrugged. “Training.”
 
-"Because I saw a rock over there that would make a great flat surface to work on."
+“They’re very shiny.” Mudrich played with the mechanisms. Her face reflected in the red metal. The morning light made them sparkle.
 
-"Ok, Ersie, whatever you say." Mudrich picked up the cart and followed Ersie to the site.
+“Well, at least we’re on time today.”
 
-The dark grey granite rock was indeed rather flat for a boulder its size. It had plenty of space for about one or two of Ersie's projects. A very thin tree line separated it from the river bank, meaning Ersie had a great view of the river, and a little outcropping on the other side. A certain cat with a fishing pole might sometimes be visible there. Around the area were tons of trees with thick trunks that Mudrich liked to tie ropes to, for the purpose of raising a hammock. The trees also had a large canopy that provided cool shade to the work area.
+The trio did training together. Ersatzica managed to get in two ill-fated pushups this time. She still had to take a break on the trail, but this time Wryonin and Mudrich both waited for her.
+
+After training, Ersatzica ditched the group to go off into the forest alone.
+
+“Ersie?”
+
+Ersie stopped in her tracks. “Oh, hi, Muddy.”
+
+“Whatcha doin’?”
+
+“Just going to test something. Go on, I’ll catch up.”
+
+“Ok. See you later!”
+
+“Later, Muddy!” She waved goodbye.
+
+Ersatzica walked briskly to the site of the rock. She pulled the boots out their hiding spot and slipped into them. “I wish to be a cat!” She said to herself. Her wolfskin peeled off and she let it fall to the ground. Her paws slid the rest of the way into the boots, and she latched them. She tried talking, and found no sound came out. The boots were still working.
+
+She took a moment to bury her wolf skin under some foliage. Then she went to the rock.
+
+It was afternoon, and the sun was just overhead. She looked across the river. There was the outcropping. No fisher cat sat there, just like yesterday. And also just like yesterday, the boulder on this side of the river was completely unshaded, and quite warm to the touch. She approached it, putting out a hand to touch it, then pulled it back.
+
+How do I know for sure that this cat is friendly? What if it’s a trap? Cats are evil creatures, after all. It’d be totally like them to do something like this. Lead you astray and then take advantage of you. Ersie would be completely vulnerable, and have no way to escape. But if that was the case, why did he rescue her in the first place? Wouldn’t it have been easier to let her drown? She had to find out.
+
+She took a deep breath, and climbed up onto the boulder. It didn’t take long before a rock came sailing over the river. This time she grabbed it before it slid off the boulder. She held it in her hand. It had a smooth grainy texture. On one side, a cat’s face had been etched into it. This is definitely some kind of cat thing.
+
+The string jerked forward, nearly pulling Ersatzica off the boulder. She yelled to stop, but no sound came out. She held on, even as it pulled her off the boulder and into the water. Luckily, the water was swallow at this end. But she was on her knees, and didn’t have time to get up before the rock dragged her into the river. It dragged her into the deep part, and all the way across the river. The sand itched into her chest fur as she washed ashore. She let go of the rock.
+
+She spit out a ton of water, and took several frantic breathes. But she didn’t have time to catch her breath before something grabbed her hand and dragged her further up shore. She screamed, but silently. Finally, she was let go.
+
+She sat up and looked around. Right in front of her stood a cat. He stood on white toes and black legs. He wore a leather belt around his white belly. His white chin comfortably sat on his black face. His black ears stuck out from under his green, feathered hat. He extended an arm to her.
+
+“Welcome.” He purred.
+
+Ersatzica stared up at him, not sure what to do.
+
+# Scraps
+
+The dark grey granite rock was indeed rather flat for a boulder its size. It had plenty of space for about one or two of Ersie's projects. A very thin tree line separated it from the river bank, meaning Ersie had a great view of the river, and a little outcropping on the other side. Around the area were tons of trees with thick trunks that Mudrich liked to tie ropes to, for the purpose of raising a hammock. The trees also had a large canopy that provided cool shade to the work area.
 
 "This is a nice spot, Ersie!" Mudrich placed a hand on the trees, shaking herself violently. "These trees don't move. That's good!"
 
