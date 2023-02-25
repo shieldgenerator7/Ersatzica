@@ -2,11 +2,13 @@
 
 I just found this video online: <https://youtu.be/fe3eodLF_Uo> It's really inspiring. So I'm going to use it outline Ersatzica's story. I was thinking about doing this for tePeshabi instead, but I don't really know what the inciting incident is of that story, and I'm still trying to figure out what that story is about. So I'm going to do it for a story I have developed a lot more. Anyway here is the outline, as shown in the video.
 
-Act 0
+# Act 0
 
 1.  Pantrinome invades wolf tribe, gets killed, loses 3 of 4 newborn kittens, Awoomoon also gives birth.
 
-Act 1
+# Act 1
+
+Ersatizca finds the boots, leaves to visit cat village
 
 1.  Ersatzica, Mudrich, Wryonin, Lemilay all go to fend off cats invading on their shore, track them down and retrieve what they stole, among which is the Boots of Retriyoan. Ersatzica has to cross the river, almost drowns, and gets saved by the fisher cat.
 2.  Ersatzica finds the boots in her workshop and starts working on them. She messes around with them and turns into a cat, allowing her to fit into the boots. Also Mudrich busts down the door to her shop by accident.
@@ -17,7 +19,9 @@ Act 1
 7.  Ersatzica convinces Wryonin to let her talk to the fisher cat so she can “get info about the invasion”. Wryonin reluctantly agrees, but listens in on the conversations she has in secret. Wryonin finally gets impatient and tells her enough is enough, and notices that she hasn’t made any progress on making the boots fit wolves. He takes the boots from her until he can figure out how to use them to transform. (about Wryonin struggling between loyalty to his family and loyalty to his faith)
 8.  Ersatzica discovers she can transform without the boots. Finds ways to ditch Wryonin and get across the river. She gets Mudrich to help cover for her. She finally accepts fisher cat’s invitation and he takes her to his village.
 
-Act 2
+# Act 2
+
+Ersatzica learns a lot from the cats, and starts spending more and more time over there, gets replaced by fake ersie
 
 1.  Ersatzica goes to the cat village (not the cat city). She learns all about cats, and goes missing for several hours everyday.
 2.  Ersatzica delves into knowledge, and spends more and more time in the boots as an excuse to live as a cat, she learns all about how to climb trees and sharpen her claws, how to bathe herself, and other things.
@@ -30,7 +34,9 @@ Act 2
 9.  Ersatzica modifies the boots for wolf anatomy. Faces a lot of stigma for her "curse", as Awoomoon called it.
 10. Awoomoon sends a strike team out with the boots, and they capture their target, the fisher cats. Ersatzica is regarded as a hero for her engineering skills, despite her being a cat.
 
-Act 3
+# Act 3
+
+Ersatzica develops a plan to get her wolf skin back, gets captured, makes up with her siblings, stops the battle, goes with cats
 
 1.  Ersatzica finds a new freedom, being allowed to work on tasks at will and roam around without any stigma. But she also finds that she prefers to be a cat, and enjoys her new set of learned cat behaviours.
 2.  Ersatzica is arrested for being an imposter, as the "real" Ersatzica "comes back" and claims she was kidnapped. It's really another cat wearing the Wolfskin of Monassus, but Awoomoon and the wolf tribe fully believe it. Ersatzica is imprisoned, and her siblings treat her like scum.
