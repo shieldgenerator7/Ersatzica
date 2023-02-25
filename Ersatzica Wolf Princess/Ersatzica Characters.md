@@ -59,3 +59,11 @@ Bear medic. She resides in the peacock village.
 Cat fisherman. Rescued Ersatzica from the river, and was her entry point into cat culture. Dates Ersatzica.
 
 Born a wolf, he was transformed into a cat, and chooses to stay in cat form.
+
+# Callustar
+
+(formerly Coach Ynndor)
+
+Wolf training coach. Awoomoon’s older brother. Ersatzica’s uncle. War veteran.
+
+*The wolf at the head of the formation led them in stretches. He was missing an arm. Nevertheless, his tall stature and muscular frame combined with his scowling face made him rather intimidating.*
