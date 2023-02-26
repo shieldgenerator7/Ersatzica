@@ -150,17 +150,17 @@ The midwife's heart raced. She knelt there on the ground, staring into the cot. 
 
 Awoomoon licked the wounds of the dying kittens, but it was too late. The breathless one deflated and stopped moving. The cold one didn't warm up. The bleeding one leaked out, soaking its bandage and the cot in blood. They had been slain with their mother. There was nothing she could do, so she licked them.
 
-She licked the suffocated kitten. "Awooo!"
+She licked the suffocated kitten. *AWOOO!*
 
-She licked the frozen kitten. "Awooo!"
+She licked the frozen kitten. *AWOOO!*
 
-She licked the shanked kitten. "Awooo!"
+She licked the shanked kitten. *AWOOO!*
 
 She held the dead kittens in her hand, and lifted them up to the moon. Gazing up into the shining moon, she thought of her former nemesis. "May you rest in peace, Pantrinome."
 
 Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling as they each responded with a little squirm. Then a tear fell from her eye.
 
-"Awooo!"
+*AWOOO!*
 
 # Chapter 1
 
@@ -548,7 +548,7 @@ Ersie set it down. "No, I've been…" Ersie twirled a screwdriver. "…sidetrack
 
 "What, you wouldn't turn into a cat to wear these?" Ersie bumped her.
 
-"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Everytime I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They make good equipment." She grabbed the cart, and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
+"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Everytime I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They got good loot." She grabbed the cart, and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
 
 "Whoa! How are you doing that?" Ersie dropped her tools.
 
@@ -594,7 +594,7 @@ She went at them for round two. Polishing, dusting, oiling, everything was on th
 
 From this angle, she could analyze its parts. It was shaped like a thick hind leg of a cat, but at the bottom, it had a steel plate that attached to the underside of the boot via springs and a piston. The underside of the plate held remnants of some kind of material that had since decayed. Straight gears and round gears worked in unison to let the boot slide forward and backward on the plate. A pulley system with a missing string could have potentially wound from a winch in the front, up the sides, and into a pull string at the lip of the boot. Two latches sealed the boot together, and widened the mouth of the boot when sprung open. The golden trim stretched from the circular lip of the boot, down the underside, and pulled up over the top for the toe protector.
 
-Ersie leaned on the counter and looked up at her prize through dreamy eyes. "How would I look in them? Probably better than Lemilay would. She thought that they might be an heirloom. What powers might they possess? Water walking? Swift speed? Wall climbing?"
+Ersie leaned on the counter and looked up at her prize through dreamy eyes. How would she look in them? Probably better than Lemilay would. She thought that they might be an heirloom. What powers might they possess? Water walking? Swift speed? Wall climbing?
 
 Ersie noticed a tension bolt on the heel. She focused in on it. It had gears on its head, that moved two gold-plated straight gears open or closed around the heel. She played with it, and noted that they indeed changed the size of the boot, to a limited degree.
 
@@ -680,7 +680,7 @@ She found a can on the counter and batted it with her front paw. CLINK. It bounc
 
 A chill ran up her spine as her fur stood up on end. Tensing her shoulders, she pulled her arms over in front of her chest floof. Her ears folded back, and her tail curled up between her legs.
 
-"This is bad! This is really bad! This is really really bad!" Ersatzica shivered. "Mudrich!" She cried out, running out into the night in her new cat skin. In a town of wolves. That hate cats. And would kill any cat on sight.
+"This is bad! This is really bad! This is really *really* bad!" Ersatzica shivered. "Mudrich!" She cried out, running out into the night in her new cat skin. In a town of wolves. That hate cats. And would kill any cat on sight.
 
 # Chapter 3
 
@@ -716,7 +716,7 @@ That's when Mudrich opened the door.
 
 "At her workshop." Mudrich stashed the cuffs under her pillow. "She said she'd be right over. Something about cleaning up a project or something."
 
-"I've heard that one before," Wryonin said.
+"I've heard that one before," Wryonin groaned.
 
 Ersie walked up to the door and listened in. She held up her hand to knock, but hesitated. She let her hand down. She peeked in through the window. Mudrich was not looking at the window, but Lemilay was. Ersie quickly ducked.
 
@@ -728,7 +728,7 @@ Ersie walked up to the door and listened in. She held up her hand to knock, but 
 
 "I didn't hear anything." Wryonin pricked his ears. "There's no cats outside, Lemilay."
 
-Lemilay closed her eyes and her bald spot glowed. "There was! There was a cat outside!"
+Lemilay closed her eyes and her bald spot glowed. She stared intently at the door. Then she jumped to her feet. "There was! There was a cat outside!"
 
 "That doesn't make any sense." Wryonin got up and walked to the door.
 
@@ -742,7 +742,7 @@ Lemilay rolled her eyes from within her skull. "The cat left footprints next to 
 
 Wryonin knelt down. There were indeed cat paw prints on the cobblestone next to a small puddle. "Well, I can't deny that. Let's go find that cat!"
 
-"Wait, hold on, Wryonin." Lemilay put her hand up to stop Wryonin, but she put it next to him instead. "Have you ever heard of a single cat invasion? If there's one cat here, there's likely to be more."
+"Wait, hold on, Wryonin." Lemilay put her hand out to grab Wryonin by the shoulder, but she grabbed the air next to him instead. "Have you ever heard of a single cat invasion? If there's one cat here, there's likely to be more."
 
 "Have you seen any more cats?"
 
@@ -774,7 +774,7 @@ Ersatzica unlatched the boots. "Mudrich!" She loud whispered. "Mudrich!"
 
 "Go on…"
 
-"About wearing them and turning into a cat to do so?"
+"About wearing them and about… turning into a… cat, to do so?"
 
 "And I talked about how I would never do that because cats are evil and I like killing them and—"
 
@@ -784,7 +784,7 @@ Ersie reached out and put a paw on Mudrich's mouth. "Yes yes yes, but Muddy,"
 
 "I need your help. You see, I… I put on the boots…"
 
-"Your hand looks weird…" Mudrich squinted in the dark. "What did you do to it?"
+"Your hand looks weird…" Mudrich squinted in the dark, grabbing Ersie’s paw. "What did you do to it?"
 
 "I turned into a cat."
 
@@ -796,7 +796,7 @@ Ersie reached out and put a paw on Mudrich's mouth. "Yes yes yes, but Muddy,"
 
 Ersatzica stepped out from behind the tree.
 
-Mudrich opened her mouth for a battle cry.
+Mudrich opened her mouth for a battle cry, and readied a fist for a punch.
 
 Ersatzica lept over the bush and covered her mouth. "Mudrich!"
 
@@ -862,15 +862,15 @@ Lemilay sighed. Her eyes rolled out of her skull and pointed at Mudrich. "What?"
 
 "Ok thanks, we got it from here." Lemilay went back to tracking the cat, skipping looking at the tree.
 
-Mudrich sighed. "Ersie!" She looked around, and then sprinted to the workshop.
+Mudrich panted. "Ersie!" She looked around, and then sprinted to the workshop.
 
 Ersatzica hid in the shadows as she watched. A crowd had formed at the workshop. Guards and other civilians looked on in horror at the scene there. The door was knocked down, broken clean off its hinges. Cat paw prints littered the floor. And in the dim glow of the lantern light, in the center of the floor, lied a fur pelt of a black and white wolf.
 
 A guard picked up the pelt. He gasped. The fur pattern of the head matched that of Ersatzica's wolf face. "Call Chieftess Awoomoon!" He ordered to one of the other guards.
 
-That guard took a deep breath and let out a howl, "Awoomoon! Here! Urgent!"
+That guard took a deep breath and let out a howl. *AWOOOO!* "Awoomoon! Here! Urgent!"
 
-A deep howl came back, "Coming."
+*AWOOOO!* "Coming."
 
 Before Awoomoon arrived, a guard got too close to Ersie, so she ran and tried to find Mudrich.
 
@@ -886,7 +886,7 @@ Awoomoon's eyes went wide and her ears folded back, but only for an instant. "Th
 
 The wolf guard bowed. "It will be my honor to bring you her head."
 
-"Alive," Awoomoon clarified. “Bring her to me alive.”
+"Alive," Awoomoon clarified. “Bring her to me *alive*.”
 
 "Oh. Of course, Chieftess."
 
@@ -900,7 +900,7 @@ She herself was hiding in a corner with Mudrich. "They've got the place surround
 
 "Well *you* can't go in."
 
-"Ok, you go. I'll wait here."
+"Hmmm, good point. Ok, you go. I'll wait here."
 
 Mudrich went to the workshop, and saw her mother. "Mother, what a surprise."
 
@@ -1395,6 +1395,8 @@ She sat up and looked around. Right in front of her stood a cat. He stood on whi
 Ersatzica stared up at him, not sure what to do.
 
 # Scraps
+
+*This section has been postponed to a later chapter, or might be cut altogether. Either way, it is NOT canonically what happens next.*
 
 The dark grey granite rock was indeed rather flat for a boulder its size. It had plenty of space for about one or two of Ersie's projects. A very thin tree line separated it from the river bank, meaning Ersie had a great view of the river, and a little outcropping on the other side. Around the area were tons of trees with thick trunks that Mudrich liked to tie ropes to, for the purpose of raising a hammock. The trees also had a large canopy that provided cool shade to the work area.
 
