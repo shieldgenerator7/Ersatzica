@@ -117,3 +117,11 @@ A pair of antlers that show a peron’s or an object’s true nature when one vi
 Peacock
 
 Grants the wearer indestructible fists while punching.
+
+# Well of Growth
+
+Deer
+
+While the sun shines into the well, the water inside becomes enchanted. Drawing the water from the well allows it to retain its magical properties. When the sunlight leaves the well, all water stops being enchanted by the well.
+
+Enchanted water from the Well of Growth increases the growing speed of plants watered with it by 200%.
