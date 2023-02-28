@@ -1384,12 +1384,204 @@ How do I know for sure that this cat is friendly? What if it’s a trap? Cats ar
 
 She took a deep breath, and climbed up onto the boulder. It didn’t take long before a rock came sailing over the river. This time she grabbed it before it slid off the boulder. She held it in her hand. It had a smooth grainy texture. On one side, a cat’s face had been etched into it. This is definitely some kind of cat thing.
 
-The string jerked forward, nearly pulling Ersatzica off the boulder. She yelled to stop, but no sound came out. She held on, even as it pulled her off the boulder and into the water. Luckily, the water was swallow at this end. But she was on her knees, and didn’t have time to get up before the rock dragged her into the river. It dragged her into the deep part, and all the way across the river. The sand itched into her chest fur as she washed ashore. She let go of the rock.
+The string jerked forward, nearly pulling Ersatzica off the boulder. She yelled to stop, but no sound came out. She held on, even as it pulled her off the boulder and into the water. Luckily, the water was swallow at this end. But she was on her knees, and didn’t have time to get up before the rock dragged her into the river. It dragged her into the deep part, and she sank below the surface. Her lungs filled with water as gurgled and clawed to stay afloat. The air inside her deflated and she began feeling faint. Then sand brushed up against her face, filtering in between her fur. The rock pulled her all the way across the river and onto the sand bank. The sand itched into her chest fur as she washed ashore. She let go of the rock.
 
-She spit out a ton of water, and took several frantic breathes. But she didn’t have time to catch her breath before something grabbed her hand and dragged her further up shore. She screamed, but silently. Finally, she was let go.
+She spit out a ton of water, and took several frantic breathes. Her breathes were as sporadic as they were rapid. But she didn’t have time to catch her breath before something grabbed her hand and dragged her further up shore. She screamed, but silently. Finally, she was let go.
 
 She sat up and looked around. Right in front of her stood a cat. He stood on white toes and black legs. He wore a leather belt around his white belly. His white chin comfortably sat on his black face. His black ears stuck out from under his green, feathered hat. He extended an arm to her.
 
 “Welcome.” He purred.
 
-Ersatzica stared up at him, not sure what to do.
+# Chapter 5
+
+Ersatzica stared up at the black-furred hand reaching out to her. Was this a trick? Could he be trusted? Well, he did pull her all the way across the river. If he wanted to kill her, surely he would have just let her drown in the river just now. Or a week ago, when she foolishly tried to swim across on her own.
+
+“That’s ok.” He shrugged, pulling his hand back. “I’ll be up on the rock if you need me.” He climbed up onto the outcropping, sat down on the edge, and let his fishing line hang down into the water.
+
+Ersatzica crawled further up onto the beach. With a big motion she shook, but the water weighing down her fur didn’t fling off. The water dampened her fur. It was the most uncomfortable feeling, aside from drowning, of course. It was like a hot sweltering heat on a summers day, but hugging her all around. Her fur stuck together as she moved. She tried a wolf water shake one last time, to no avail. Finally she gave up and tried to sun dry. The sand wasn’t comfortable, but maybe a solid rock would be?
+
+Up on the rock outcropping, the fisher cat whistled. It was a happy little tune, perfect for passing the time while fishing. A medium basket sat next to him, waiting patiently to be filled with fish.
+
+Ersatzica cautiously crawled up next to him on all fours. His ears pricked in her direction, but he otherwise kept his attention on his fishing line. As she got closer, she could see more details. The basket wasn’t completely empty. Inside, the lower jaw bone of a wolf sparkled with a blue hue in the sunlight. It was missing several lower teeth, notably the canines. Ersatzica put her face in and sniffed it. Its owner had been dead a long time, and smelled only of fish. If this fisher cat had killed him, it wasn’t recently. Still, it’s a bad omen. Ersatzica’s heart beat faster. She inched away from him. I knew this was a trick. How could I have been so stupid?
+
+Without turning around, the fisher cat addressed the jaw bone. “I see you found Yotleph’s Jawbone. Legend says he was a recluse, didn’t want to interact with anybody. He even refused medical aid when he got a splitting migraine that drove him half insane. One day he disappeared without a trace. When they finally found him, his flesh had already mostly decayed. But his skull was an heirloom. I bet you were wondering why you couldn’t see me from the other side of the river?”
+
+Ersatzica paused. She’d heard of Yotleph before, although she remembers the tale differently. Could it be that Yotleph was found? She shrugged. Probably. It would explain both the jawbone and the fact that the fisher cat was invisible.
+
+She approached the fisher cat again. His back was scarred across his shoulder blade from where it attaches to his arm to where it meets his spine. She stroked the scar across her belly. She put her face up to it and sniffed it. He smelled like a cat, and like fish. Half of that smell was acceptable.
+
+He turned to peek at her. “So, do you like fish?”
+
+“I like it ok,” is what she would’ve said, if she could make sound. “I KINDA LIKE FISH!” She tried yelling, but it didn’t work.
+
+“So you do, nice!” he turned back to his fishing pole. It was bouncing up and down. “Because I just caught one!” He reeled it up and flung it into the basket. Sharp curved claws flipped out of his hand and pierced the fish, letting it no chance of escape. He pulled it up to his mouth and bit its head off. He spat the head into the basket and chucked the body in after.
+
+The smell of fresh fish and fresh blood filled the air. Ersatzica licked her lips. She sat down next to him on the outcropping.
+
+The fisher cat wiped his face with his tongue, then his hand. “You like that, huh?”
+
+“Yeah,” she mouthed.
+
+“Well, hey, if you want, you can come back with me to my camp.” He motioned to a faint path in the forest behind him.
+
+Ersatzica squinted. The path wasn’t all that visible or easy to follow. If she followed him there, she probably wouldn’t be able to find her way back easily. She slowly shook her head.
+
+The fisher cat shrugged. “Ok.” He cast his fishing line back into the water. “I’m Fisher by the way. What name do you go by?”
+
+Ersatzica’s mouth opened. Should she tell him? He couldn’t do anything with that information, could he? Even still, it’d better if he didn’t know who she was. She could get in trouble.
+
+“Ok, that’s fine. I’ll just make up a name for you then.” He looked her up and down. “You’ve got orange fur, orange stripes, beautiful red hair, and a red tuft on the tail. I’d call you Tabby, but I know too many ‘Tabby’s already. You also like to wear boots. I don’t know anyone who goes by the name of ‘Boots’. Do you like that?”
+
+Ersatzica gave a quick look of disgust, but then just shrugged.
+
+“Ok, so not ‘Boots’. What kinds of things do you like?”
+
+Ersatzica put a finger to face. She pulled her feet close and mimed cleaning them. She held an imaginary wrench to the boots and adjusted some knobs.
+
+“Polishing, wrenching, oh, fixing!” Fisher smiled. “You’re a mechanic!”
+
+Ersatzica smiled and clapped.
+
+“So, ‘Nic, did you make those boots?”
+
+‘Nic looked up, thought a second, and shrugged. “‘Nic” was just about as good as any nickname out there. And it really was true to something she was truly passionate about.
+
+“You don’t know?”
+
+‘Nic shook her head, a definite no.
+
+“Oh, you found the boots then?”
+
+‘Nic nodded.
+
+“Well, they’re mighty shiny.”
+
+‘Nic beamed with pride.
+
+“You did that?”
+
+She nodded. It’s good to be recognized for the work she does. Not everyone back home appreciates her craftsmanship.
+
+“What do they do?”
+
+‘Nic shrugged. She hastily put up a finger, then mimed a wolf howling. She pretended to put boots on, then ran her fingers through her fur from her knee to her neck. She mimed clawing at the air.
+
+“I don’t quite understand. Something about wolves and cats?”
+
+She mimed clawing in the air again, and this time, claws popped out of her hand. What’s this? So these are claws? ‘Nic stared wide-eyed at her claws. They were semi-transluscent, curved, and very sharp. Her wolf claws were never this sharp, unless she spent a good amount of time every day sharpening them by hand. She sniffed them. Perhaps a bit too aggressively. Her sniffing nose collided with her claw and she cut herself. It wasn’t long before it started bleeding. Wow, her claws were sharp! No way she could cut herself that easily on her wolf claws!
+
+“Here, let me see that.” Fisher reached out to her, but Ersatzica backed away. “Ok, be careful now.”
+
+‘Nic held a hand over her nose, blocking the bleeding. She used the hand without claws sticking out, and used the exposed-claw hand to lean on.
+
+“Our claws are sharp, yes, but…” Fisher grimaced. “They dull easily. You don’t want to leave them out like that.” He pointed to ‘Nic’s claws scraping on the rocks.
+
+‘Nic nodded. She took her free hand and used it to push her claw digit into her hand. First she tried downwards, as if the claws worked on a sliding mechanism. Then she tried folding them in towards her palm. She winced in pain, and stopped.
+
+Fisher watched with a sheepish grin. “No, you see, like this.” He held out his hand, and flexed his claws in and out. They flipped out of the back of his hand into position, then flipped backwards back into the back of his hand. The motion was very snappy and happened in the blink of an eye. He tried to slow it down. “Huh. I never realized that.” We flexed them in and out again. “I can’t do it slowly, only fast.”
+
+‘Nic watched thoughtfully. She held a claw with her other hand and flipped it back into safety. One by one, she manually retracted each of her claws.
+
+Fisher stifled a giggle. “Well done!” He flexed his claws. “Now try flexing them the natural way.”
+
+‘Nic focused on them, but they didn’t move. She shrugged.
+
+“It’s fine. You’ll figure it out.”
+
+‘Nic’s ears pricked.
+
+*AWOOOO!* “Where?”
+
+Ersatzica’s fur spiked. That was Mudrich’s howl! She was late! Ersatzica stood up and ran to the river. She dipped a hand into it. Nope! There’s no way she could cross it, especially not in cat form. As a wolf, she might be able to, but her cat body isn’t well suited to it. But her wolf skin was on the other side of the river. And she just finally dried off. She looked up and down the river, but there was no way to get across easily. She really didn’t think this through properly.
+
+“Hey, what’s wrong?” Fisher approached her.
+
+‘Nic stared at the rock across the river.
+
+“Hmmm… I see.” Fisher walked towards the waterfall. “Come on, I know a way.”
+
+‘Nic followed him. She really should have thought of this. And now she has to trust that a stranger would actually help her get back. After everything she’s seen? Yotleph’s jawbone, how claws work, fishing practices? There’s no way he would trust her with that info, right?
+
+“You know the waterfall?” Fisher led her closer. The roaring got louder, to the point it was hard to hear him. Still he trekked on. The path was windy and not welled marked. Nor was it well guarded for that matter. One false step and one would fall all the way done. “Careful here, the rocks are almost always slippery. Use your pads and keep your claws sheathed. Oh wait, you don’t have to worry about that.”
+
+‘Nic carefully made her way down the path behind Fisher. They made it to a tree right next to the waterfall.
+
+“Ok here’s the point of no return.”
+
+This is it. This is the part where he pushes her. It was so obvious that he wasn’t going to let her escape. But what choice did she have? Once she crossed the river, she was at their mercy.
+
+“If you go in there…” Fisher pointed to a cave that went right behind the waterfall. It was dark, save for the light refracting off the falling water. It was beautiful, actually. The waterfall created mesmerizing lines that danced on the walls. “You can’t get back over to this side. You have to go out the other end. This is where we part ways, at least for now. Stay safe.”
+
+‘Nic looked at him, then to the cave. She winced. She shivered.
+
+“Hey, it’s ok. If you want, I can hand you this rock.” Fisher placed a rock in her hand. It had a string tied around it that led to his pole. “If you fall, I can pull you back up. Sound good?”
+
+‘Nic slightly nodded yes. She grabbed the rock and crawled across the cave floor inch by inch.
+
+“You’re doing good. Just a little ways before you get to the drop off.”
+
+‘Nic’s fur stood on end. The drop off? He *was* sending her to her doom!
+
+“Don’t worry. It’s only as tall as you are, really. It’s easy to go down, but too slippery and tall to get back up. I still got you.” He raised his pole.
+
+‘Nic took a deep breath. The waterfall roared in her ears. She folded her ears back. She crawled forward to the edge. Peering down, it was dark, but a strange glow illuminated the area below. There was a solid surface within reasonable falling distance. It was probably slippery, but she had the fishing pole rock in her hand.
+
+“You’re doing great!”
+
+She turned around and went feet-first down the ledge. She slid down it until she was hanging by her fingers. She let go and fell an inch or two, if that. She slipped on impact and landed on her bum.
+
+“All good?”
+
+‘Nic tugged a little on the rock.
+
+“I’ll take that as a ‘yes’.”
+
+‘Nic crawled the rest of the way to the steep dirt hillside. She could see a clear path to the top, but it involved climbing a lot of tree branches and hoping they didn’t collapse. Tugging on the rock for the last time, she threw it across the waterfall to Fisher.
+
+“Salutations!” He waved. Whistling, he climbed back up the waterfall.
+
+*AWOOOO!* “Where?”
+
+Ersatzica wanted so badly to respond, but it just wasn’t possible at the moment. Instead, she focused on climbing up. It was really difficult without her third finger joint. She paused on a sturdy branch. What if she could…?
+
+She held out a paw. She concentrated really hard. No claws appeared. She shrugged, and resorted to pulling her claws out manually one by one, on both hands. She grabbed a tree branch. The claws stuck in and gave her really good grip, even on vertical surfaces. She clawed a thick branch and gripped tightly. She tried slipping it off, but it wouldn’t budge. She smiled in satisfaction. But when she went to disengage her grip, she found her claws wouldn’t come out of the tree branch. After several tries, she used her other hand to grab the claw and force it out.
+
+Along the way, she figured out the right amount to grip without getting stuck, and climbed out of the waterfall area and onto the solid ground she was familiar with. She raced to her buried wolfskin. She hurried up and unburied it. Unlatched the boots, pulled them off, and put the wolfskin back on.
+
+*AWOOOO!* “Here!”
+
+*AWOOO!* “Here!” Mudrich replied. She was at the top of the stairs to the village.
+
+Ersatzica put her training to good use and ran to the stairs. She still had to hold her scar though, as it still threatened to rip open. Finally she got to the top and met Mudrich.
+
+“Where were you?”
+
+“Just going for a stroll.”
+
+Mudrich side-eyed her. “In the river?” She took in a big whiff. “You smell like wet. And fish. Wet fish.”
+
+“Well of course. Fish are wet.”
+
+“Yeah, but you’re not a fish. And what happened to your nose?”
+
+Ersatzica wiped some blood of her nose. “Oh I just sniffed something sharp.”
+
+“Sis?”
+
+“Fish?”
+
+“Sharp wet fish. Sure.”
+
+“Ok ok, I’ll tell you later, ok?”
+
+“Promise?”
+
+“Yeah.”
+
+“Ok.”
+
+“There you are!” Wryonin exclaimed. “We’ve been looking all over for you!”
+
+“Well, here I am.” Ersatzica followed.
+
+“Mom has something important to tell us.”
