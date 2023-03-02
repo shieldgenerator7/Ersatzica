@@ -8,3 +8,5 @@
 * have Ersatzica have the stick the first time she gets an invitation across the river
 * account for dodge training in chapter 4
 * add scenes of Ersatzica trying out boot modifications for a week or so during chapter 4
+* fix the story of Quivester in Chapter 6 to be more consistent with the canon version, or have it be reasonably close / something that would inspire Fisher
+* talk about claw training in chapter 6 meeting with Fisher

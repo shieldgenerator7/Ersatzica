@@ -1584,4 +1584,440 @@ Ersatzica wiped some blood of her nose. “Oh I just sniffed something sharp.”
 
 “Well, here I am.” Ersatzica followed.
 
-“Mom has something important to tell us.”
+“Mother has something important to tell us.”
+
+# Chapter 6
+
+“it occurs to me that I have neglected something very important.” Mother closed the door behind her. She sat down on the floor, joining her pups around the table in their barracks. “As you know, no one is immortal, and that includes me.” She sighed.
+
+Lemilay and Wryonin looked at each other.
+
+“If anything should happen, I want to ensure that everything is taken care of.”
+
+“Don’t worry, Mother,” Lemilay reached a hand across the table. “I’ll—”
+
+Mother shot her a scolding gaze. “I need to know that you four are ready. I was hoping to postpone this for as long as possible, but after recent events—”
+
+*AWOOOO!* “Chieftess Awoomoon!”
+
+Chieftess Awoomoon grumbled. *AWOOO!* “Wait!”
+
+Mudrich reached up into her bed and grabbed the cuffs from under her pillow.
+
+“After recent events, I now realize that it can’t wait any longer.”
+
+“What’s going on?” Wryonin leaned forward.
+
+“I’m going to be testing you, very soon. Testing you to see if you’re ready to plan, ready to act, ready to *lead*.”
+
+Lemilay and Wryonin exchanged a glance. “Is this going to determine who becomes the next chief?”
+
+“Yes, Lemilay, it’s very likely.”
+
+Lemilay took a deep breath in and raised her chin. “Well then, Mother, I won’t let you down.”
+
+“I’ll step up.” Wryonin tapped his slingshot.
+
+Mudrich rolled her eyes.
+
+Ersatzica hugged her knees.
+
+“Now, now, my pups. It has yet to be decided. I’ll be keeping score after each task.” She looked directly at Mudrich. “Don’t let me down.”
+
+“Me?” Mudrich pointed at herself.
+
+“All of you, do your best.” She opened her arms for a hug.
+
+All her pups crawled to her and shared in the group hug.
+
+Mother patted them and squeezed. But then she had to get up. “I love my pups.”
+
+“Does this mean you won’t be here at bedtime?” Mudrich asked.
+
+“I’m afraid not.” Mother opened the door. *AWOOO!* “Coming!”
+
+*AWOOOO!* “Here!”
+
+And with that, she stepped through the door, leaving her pups to themselves.
+
+“So what do you think the challenges are going to be?” Wryonin examined his slingshot.
+
+“Whatever they are, you all better not try to beat me.” Lemilay huffed.
+
+“Why not?” Mudrich put the cuffs on.
+
+“Obviously, Mother intends on making me the next chief, but has to make it look like she’s not playing favorites.” Lemilay smiled proudly. “The challenges will all be things I’m good at, so there’s no point in any of you trying.”
+
+Wryonin growled. “You mean like lying? Black mailing? Back stabbing?”
+
+“All things that lead to a successful reign, yes.”
+
+“Please.” Wryonin crossed his arms.
+
+Ersatzica got up and went to the door.
+
+“And where do you think you’re going?” Lemilay stopped her.
+
+“I’m going to go enjoy what daylight we have left.” Ersatzica brushed her hand off her shoulder.
+
+“Not until you promise that you won’t interfere with the challenges.”
+
+“Ok, fine, Lemilay. I promise that I won’t try hard enough in the challenges to beat you.”
+
+“Hmmph.” Lemilay smiled. “And you, Mudrich?”
+
+“Does it matter?”
+
+“Yes, I need to know who I can trust.”
+
+“Fine. I’ll let you win.”
+
+“Thank you.” Lemilay turned to her brother. “And you, Wryonin?”
+
+“Growl off, Lemilay.” Wryonin stared her in the face. “I’m going to do my best, and if that means I win in the end, so be it.”
+
+“So you think you can be a better chief than me?” Lemilay stood up.
+
+“Anyone could be a better chief than you!” Wryonin stood up, and met her face-to-face.
+
+“Ok, I’m leaving now. Bye!” Ersatzica left.
+
+She went for a stroll along the cliff edge. She spotted the staircase, the training clearing, the place where she hid her wolf skin, the outcropping where Fisher sat, and the waterfall.
+
+Did it really matter who became chief? Chances were it wasn’t going to be her. She wouldn’t make a good chief anyway. She didn’t know how to make a plan of action, put it into action, or lead. She was good at other things, like working with heirlooms. Like the boots. She still didn’t know how to modify them for wolves, but hopefully she would soon. That Fisher cat knew some things about heirlooms. Maybe he knows some things about this heirloom in particular. Tomorrow she would see.
+
+That night, she brought the boots into bed with her.
+
+“What are you doing with those, Ersie?” Mudrich inquired.
+
+“Oh, just picking out an heirloom to sleep with.”
+
+Mudrich tilted her head. “But what happened to ‘leave work in your workshop’?”
+
+“Oh, that? That was a rule for when I was a younger pup.” Ersie said dismissively. “Besides, you have one, don’t you?”
+
+Mudrich looked side to side as she adjusted the cuffs on her wrists. “Yes,” she whispered, “but don’t tell anyone.”
+
+Ersie giggled. “Muddy, your secret is safe with me.”
+
+“Yours too.” Muddy gripped the bedframe. “Hey, wanna see what I can do?”
+
+“Muddy? No!”
+
+“Here we go!” Muddy lifted the whole bunk bed into the air with ease.
+
+“Muddy!” Ersie grabbed onto the bed frame and hugged the boots close to her chest.
+
+The bed wobbled to and fro as Muddy waved it around. It creaked with each swing, threatening to snap.
+
+“Muddy put it down!”
+
+“Ok.” Muddy let it down at a random spot on the floor. The bunk bed was no longer up against the wall. “Wasn’t that cool?”
+
+“No, that was scary. I don’t think the bed could have taken much more.”
+
+“Yeah, you gotta fix the bed up to be more sturdy for next time.”
+
+“Next time?!”
+
+“Yeah!” Muddy crouched, getting ready to jump. “Time to get into bed!” She jumped into bed, rolling the blanket around her.
+
+*THUD!*
+
+“Muddy, are you alright?”
+
+“Yeah, I just fell through the crack in between the bed and the wall.”
+
+Ersie just shook her head.
+
+“Oh hey! I found a loose floorboard.”
+
+“What’s under it?”
+
+*CREEEEAK. PFFING!* “Darkness.” Mudrich stuck an arm inside. “I can’t see anything.”
+
+“Hold on, get your arm out of there.” Ersie put on the boots, and shed her wolf skin. She laid under the blanket, out of view of anyone else. She didn’t latch the boots tho.
+
+“I think I found something.”
+
+“No, Muddy, let me look in there. Get away real quick.” Ersie’s voice sounded different.
+
+“Ersie, what happened to your voice?”
+
+“It’s the boots, remember?”
+
+“Oh did you refit them for wolves already?”
+
+“Mmm… yes?” Ersie murmured. “Ok, don’t tell Mother. I’m a cat right now.”
+
+“Ersie!”
+
+“Shh!” Ersie blew on her finger. “I need to see into this hole.”
+
+“Ok, ok.”
+
+Ersie stared into the hole, and a light shone from her face into it. The darkness swept aside to unveil what was lurking in the hole.
+
+“What do you see? What do you see?”
+
+“Um…” And the darkness moved aside to reveal… “Dirt. Just dirt.”
+
+“Oh, ha!” Mudrich laughed. “Don’t know what I was expecting.”
+
+“Yeah, me neither.”
+
+Some squabbling noise approached from outside.
+
+“It’s Lemilay and Wryonin!” Ersatzica’s ears pinned back and her eyes widened. “Quick! Put it back!”
+
+“And take off the boots!”
+
+Mudrich slid the floorboard back into place, but it now curved upward. She just let it lie there as she rolled across the bed to get into a better position to move the bed back into place.
+
+Ersatzica kicked off the boots and slid her head into the mask of the wolf skin, transforming back into wolf Ersie. She stashed the boots between herself and the wall, and turned her back to the room.
+
+Wryonin opened the door. “I’m not budging, Lemilay. You can forget it—huh?”
+
+“Are they asleep already?” Lemilay pondered.
+
+Mudrich and Ersatzica breathed in and out, pretending to sleep.
+
+Wryonin shrugged. “Must have been a big day for them.”
+
+“Ok, but don’t think you’re off the hook.” Lemilay got into bed.
+
+“Whatever.” Wryonin blew out the lantern and climbed into bed himself.
+
+Mudrich and Ersatzica giggled quietly and breathed a sigh of relief.
+
+Ersatzica held her hand to her face. There was barely enough moonlight flowing through the barrack windows for her to make out the outline of her black-furred paw. But there was a way she could fix that. She silently slid the boots onto her feet. “I wish I was a cat.” She whispered. The transformation happened near instantaneously. The bright glow illuminated whatever she looked at. She turned it to her hands.
+
+Her white fur hands had short fingers. Short, fluffy fingers. She grabbed a finger and stroked it end to base. She winced at the pressure, and lightened up. The claw joint was in there. She careful flicked the claw into position. She squinted at the single exposed claw. It seemed to glow in the reflected moonlight. It itself looked like a crescent moon, sharpened to a point. She flipped her other claws out, one by one. What kind of things do cats use these for? Obviously they were weapons of war, a formidable threat. But what else? Did they use them as tools? Could they pick locks? Carve wood? Clean in between cracks? And the retractability! It’d be so much easier to keep these claws sharp! Wolf claws dull so quickly, and to do anything intricate, she has to keep her claws trimmed or they’d get in the way. Not so with cat claws. These might come in handy for some projects.
+
+But no! Ersatzica shook her head. She pushed her claws back in, took off the boots, and donned her wolf skin. Cats are tricky animals. Why would she want to be one of them? Being a wolf was so much better. Right?
+
+She pushed the boots aside and turned over. She closed her eyes and wrestled her thoughts to sleep.
+
+*AWOOO!* “Morning!”
+
+Wryonin’s howl woke her up. The morning light poured into her eyes, which she covered with her wolf paw.
+
+“Time for training. You’re coming today, right, Ersie?”
+
+“Yes, Wryonin, just like I have for a week.”
+
+“Ok, just making sure.”
+
+Mudrich stretched. “I’m awake.”
+
+“Now that you’re up,” Lemilay said as she tucked her blanket in around her mattress. “You should know that Mother is going to give us our first challenge today after training.”
+
+Mudrich gave a thumbs up.
+
+“Ok.” Ersatzica peered over the edge of her bunk.
+
+Wryonin, Mudrich, and Ersatzica went to training. Afterwards, they met Lemilay at the town square.
+
+In the middle of the town square, a statue stood proudly. The plaque in front read:
+
+IN HONOR OF A LOYAL WOLF  
+HUSBAND, FATHER, CHIEF  
+FEISTIVEN
+
+Ersatzica stood in front of it and looked up at his face. “Hi, dad.” She laid a hand on the placque.
+
+*AWOOO!* “Here!” Wryonin howled.
+
+*AWOOO!* “Coming!”
+
+The four of them waited around the statue. Mother arrived shortly after.
+
+“Good morning, my pups.” Mother greeted. “Are you ready for your first challenge?”
+
+They all nodded.
+
+“We’re meeting in the town square for a reason. There’s something you need to know. And if you don’t already know, you need to find out.”
+
+“Like when we can go have breakfast?” Mudrich’s tummy rumbled.
+
+“This is serious, Mudrich.” Lemilay scolded.
+
+“Shh! I’m talking!” Mother blew a finger at Lemilay. “When you’re running a village, you have to know your village, be one with your village. Your first task will help you achieve this.” She looked to each of her pups.
+
+Lemilay and Wryonin attentively focused on her. Mudrich played with her cuffs, and Ersatzica was looking at the ground.
+
+Mother snapped, until all four of her pups were watching. “The first task is to do a census. Each of you individually must count how many residents we have here in our village. In addition, you must count how many here are battle ready, or are at least willing to fight to help protect the village. Understood?”
+
+“Yes, Mother.” Lemilay nodded.
+
+“Affirmative,” replied Wryonin.
+
+Ersatzica nodded.
+
+“Mmhmm,” mumbled Mudrich.
+
+“Ok good. You have 1 week to conduct this census. Any questions?”
+
+*AWOOO!* “Chieftess Awoomoon!”
+
+“Nevermind, you can figure it out on your own. I love you, my pups.” She ran off. *AWOOO!* “Coming!”
+
+“So it’s just counting?” Mudrich put a hand to her face and looked at all the people around them. “That sounds easy enough.”
+
+“Yeah but don’t forget you have to make a separate count for battle-ready people.” Wryonin said.
+
+“Well, you guys figure it out for yourselves. I’m going to get this done today. Just don’t get in my way.”
+
+“Sure thing, princess.” Wryonin scoffed.
+
+“Hmmph!” Lemilay walked off.
+
+“Ersie?” Mudrich sat down next to her. “Do you think there’s any chance we’ll be chosen?”
+
+“Well, it seems that Wryonin and Lemilay want it the most. So they’ll probably get it.”
+
+“Yeah,” she nodded. “So what should we do?”
+
+“I’m just going to let it happen.” Ersatzica stood up. “Besides, there’s other things I want to do.”
+
+“Like what?”
+
+“Oh, nothing.” Ersatzica put a finger to her mouth. “We should do the census. Better at least try, right?”
+
+“Yeah, I guess.”
+
+“How about this? You start on that end, I’ll start on this end. We’ll both work the entire village, separately. Tomorrow we’ll compare answers and see if we got the same answer.”
+
+“Hmm.” Mudrich thought. “Sounds good. See you then.”
+
+“Later!” Ersatzica waved goodbye to Mudrich.
+
+There’s no way she could outclass Lemilay in an assignment like this. Lemilay’s natural abilities would make it so easy for her. She definitely had an unfair advantage. Instead, she would spend her time doing something actually productive: figuring out to convert the boots to it wolf feet. And the next step was research, and the only one who could help her was across a river.
+
+Ersatzica carried the boots down the village stairs, along the running path, and to the rock at the edge of the river. She slipped them on, hid her wolf skin, and waited for the rock to take her across. The trip was easier this time, but still uncomfortable. Being wet as a cat was so much worse than being wet as a wolf.
+
+“You’re back!” Fisher welcomed. “How was your day, ‘Nic?”
+
+‘Nic gave a thumbs up.
+
+“Glad to hear. I’m glad you’re here today, ‘Nic. I got something special to show you.” He climbed up onto the outcropping. He threw down something that blotted out the sun as it landed on ‘Nic’s face.
+
+‘Nic pulled it off and examined it. It was a forest green rectangular cloth. It was very soft, and absorbed the water on her hands.
+
+“You can use that towel to dry yourself off. But if you’re wondering, no, that’s not the surprise.”
+
+‘Nic smiled.
+
+“You’re welcome.”
+
+‘Nic wiped it all over. It was really nice of Fisher to bring a towel. It doesn’t solve the problem completely, but it helps reduce the problem. What could the surprise be? There’s no way it’s about the boots, right? Or does he somehow know that’s what she’s after?
+
+‘Nic dried herself off and walked up the slope to the top of the outcropping. The smell of fish flooded her nostrils. Today, the basket was already half full of fish. She pointed at it.
+
+“Yeah, it’s been quite the day! But that’s not the surprise either. Unless you fancy a snack?”
+
+‘Nic shrugged and shook her head.
+
+“Ok, ok, ok. Time for the surprise then!” Fisher lifted another towel and revealed a leather-bound book. He handed it to ‘Nic.
+
+‘Nic gulped. The cover was made out of tanned hide—the tanned hide of a wolf. The front and back covers were soft on account of the black and white wolf fur. A thin strip of leather wove in and out of the spine to bind the cover to the pages inside. The first page read CATALOGUE OF KNOWN HEIRLOOMS VOL 52.
+
+Fifty-two? There were at least 51 others? This is good, this is really good. There’s got to be something in here that she can use.
+
+‘Nic flipped to the next page. The heirloom’s name was prominently displayed on the top. A sketch of the heirloom took up the majority of the page, and a brief description and information section occupied the bottom space. But it wasn’t the heirloom she was interested in. She flipped to the next page, and found more information about the same heirloom. With this level of detail for each heirloom, she was sure to find something useful.
+
+She flipped through all the pages, until she landed on something familiar: the green hat that Fisher wore.
+
+“This is what I wanted to show you!” Fisher grabbed the book, but held it close to ‘Nic. “This is the story of Quivester’s Feather.” Fisher removed his hat and stroked the red feather in it. “This isn’t it, by the way, it’s just a look-alike.” He flipped the page in the book to the history. “Around 100 years ago, there was a cat named Quivester…”
+
+“Quivester was a prince of the Cat Empire. However, he was only 5th in line for the throne, so he lived among the people. He learned their plights and cared about their problems. He was caught several times sneaking gold out of the empire’s treasury to give to needy cats in their empire.
+
+“This continued for many years, until the King had enough and had Quivester exiled from the empire. However, that didn’t stop him. He haunted the travel routes between the Cat Empire and the Wolf Nation, stealing food and supplies to keep himself fed.
+
+“He was a scourge and a plight upon both the cats and the wolves. Bounty hunters and guards were sent to apprehend him, but he slipped through the cracks every time.
+
+“That is until a wolf prince named Monassus stepped in. He found Quivester and managed to befriend him. However, instead of Monassus turning in Quivester, Quivester turned Monassus and they started working together.
+
+“And together, they were unstoppable. Both the Cat Empire and the Wolf Nation lost several royal supply wagons under their terror. The nations tried to stop them, but every effort failed. They eventually decided on new trade routes, which would take them years to develop.
+
+“One day, while harassing a build site, Monassus was finally captured. He was skinned alive for his betrayal and hung out to dry in the sun. One day, his skin was discovered missing, and his body was also gone. They never found either one, but they suspect Quivester stole it.
+
+“Years passed. While the new trade routes were being built, sightings of Quivester continued, and oddly, so did sightings of Monassus.
+
+“One day, a carriage raid turned deadly. There were three wolf pups on their way back to the Wolf Nation, but they didn’t want to go. Quivester intervened and crashed the carriage. The driver and the owner of the carriage died in the crash, and Quivester didn’t survive either. There were three wolf pups inside when they left the Cat Empire, but when they were rescued by a passing cat caravan, there were three cat kittens in their place.
+
+“One cat kitten was wearing the hat of Quivester, but it was clear that they all had shared it. They were escorted to the Cat Empire as orphans, and the three wolf pups were reported missing.
+
+“And that’s it for the history section.”
+
+‘Nic examined the hat. It was thoroughly died green. It had an inside hat could be used as a bowl. One end—the front—ended in a point and the rear end was rounded. The brim was folded up around the hat, granting hardly any shade. The red feather pierced the hat through the brim. It was very fluffy and just about as big as the hat itself.
+
+“This hat,” Fisher said as he stroked its feather. “Has very special meaning to me. Although this is not Quivester’s feather, it is meant to look like it. The history section paints him in a bad light, but I believe that Quivester did what he did for the benefit of the people. His story inspires me to do what I can for others.”
+
+‘Nic sniffed the basket of fish.
+
+“And that’s what it looks like for me: fishing for fish.”
+
+‘Nic pat-patted the hat.
+
+Fisher put the hat back on his head. “And that’s why I wear this hat. Well, one reason, anyway.”
+
+‘Nic took the book. She flipped through the remaining pages. There was nothing in here about the boots. Her ears drooped in disappointment.
+
+“Oh, are you looking for something in particular?”
+
+‘Nic tapped on the boots.
+
+“Oh, your boots are heirlooms?” Fisher thought. “I can check the library tomorrow and see if they have it.”
+
+‘Nic smiled and clapped. Then she noticed what time it was. She pointed across the river.
+
+“You have to go now?” Fisher sighed. “Ok. Well, it was nice talking with you.” He helped her get across the river again via the waterfall underpass. “See you tomorrow.”
+
+‘Nic waved goodbye.
+
+Ersatzica put on her wolf skin and carried the boots home, wearing a stupid grin on her face. No way! She was right! Fisher did know how to get more information! Soon she’d be able to modify the boots and make Mother proud!
+
+When she got to the village, Mudrich found her.
+
+“Ersie! There you are! I’ve been looking all over for you! And Lemilay wouldn’t help me find you, like usual. Where’ve you been?”
+
+Ersie stopped dead in her tracks. “Oh hey, Muddy!” She hid the boots behind her back. “Sorry, I went for a stroll. I didn’t think you’d be done so soon.”
+
+“Well, yeah, it took me all day. But I finally got a count.”
+
+“Oh nice! How many?”
+
+“702, I counted. How many did you count?”
+
+“Uh…” Ersatzica looked at the sky. “705? If I remember correctly.”
+
+“Damn, I missed three people.”
+
+“Or I counted three people twice.”
+
+“You said you just got back from a stroll? How did you get done so fast that you had time to do that?”
+
+“Well, you know.” Ersie sheepishly grinned. “I have my ways.”
+
+“Care to share?”
+
+“Nope, trade secret.” Ersie backed away toward the barracks. “You know, part of the competition. I’m sure you wouldn’t tell me either if you discovered it.”
+
+“Hmmm… I suppose not.”
+
+“Did you count how many are battle-ready?”
+
+“No, did you?”
+
+“No, I plan on doing that tomorrow.”
+
+“Ok. Where are you going now?”
+
+“Nowhere. I’ll catch up with you later, ok?”
+
+“Ok…” Mudrich looked down at the ground.
+
+Ersatzica walked briskly to her workshop, carrying the boots at her side. That was close. She can’t let Mudrich know where she was. She would freak out. She wouldn’t understand why she had to cross the river. It was for science, for the good of the village. It was what Mother would have wanted her to do. But on the other hand, Mudrich was her sister and her best friend. If she couldn’t trust Mudrich with this secret, who could she trust? Fisher. Fisher? Fisher, really? Yes, Fisher. But Fisher is a cat. He isn’t trustworthy. As soon as Ersie gets the info from him that she needs, she should leave and never come back. There’s no telling what he might do to her. But he’s so cute, and friendly. Even if he is a cat…
+
+Ersatzica cleaned off and dried the boots. The sparkled like new again. A little bit of grease here and there to keep them from squeaking. Not that they ever do, but to prevent it from happening if it would happen to normal boots of this design. Satisfied that she got the boots in good working order again, she carried them to the barracks and hid them in her bed.

@@ -82,6 +82,8 @@ Cat
 
 An orange feather that grants powers to all hats it gets pierced through. The wearer of these hats becomes a cat if they are not already a cat.
 
+The effect activates when they put the hat on. The effect does not automatically end when they take the hat off. The effect ends when they are not wearing the hat and desire to return to their original form.
+
 # Cuffs of ?
 
 Cat?

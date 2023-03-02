@@ -8,6 +8,12 @@ Main character
 
 *A slender, black and white wolf pulls a strap tight around her waist.*
 
+Aka Ersie, ‘Nic
+
+Is actually a cat disguised as a wolf.
+
+*Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it.*
+
 # Mudrich
 
 Ersatzica's wolf sister
