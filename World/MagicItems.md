@@ -58,6 +58,16 @@ Wolf
 
 A wolf skin that turns a non-wolf into a wolf.
 
+*And in the dim glow of the lantern light, in the center of the floor, lied a fur pelt of a black and white wolf.*
+
+When a non-wolf puts it on, it merges with their body and turns them into a wolf. Specifically, it makes them look like Monassus. It changes what is there to look like Monassus. It does not add or remove anything. If the wearer is missing half their tail as a non-wolf, they’ll still be missing half their tail as a wolf wearing this skin. If the wearer has non-wolf features such as antlers as a non-wolf, they’ll still have antlers as a wolf wearing this skin.
+
+There is no apparent way to take the wolf skin off. However, the wolf skin will detach itself and turn the wearer back to normal when the wearer desires to be a non-wolf animal, or desires to no longer be a wolf.
+
+If the wearer wears the wolf skin for a long period of time, they will still age as though they didn’t wear the wolf skin.
+
+It can be Ship of Theseus’d, but the new pieces don’t gain any magic properties.
+
 # Pantrinome’s Drum
 
 Cat
