@@ -694,23 +694,25 @@ She looked around her workshop. A faint light glowed on everything she looked at
 
 She looked both ways before crossing the doorway. She ran silently into the shadows, avoiding the lantern lights. Not every building had guards 24/7, but there were a fair number of wolves walking around with lanterns winding down for the day. In an hour or so, they would all be gone, leaving only the night guards. But if she didn't show up to the barracks before then, they would start a search party for her, and that would stir up the whole town.
 
-She approached the Grand Barracks, and watched as Mudrich entered through the front door. She had just missed her.
+She approached the Grand Barracks, and watched as Mudrich entered through the door to their bedroom. She had just missed her.
 
-Inside, Wryonin and Lemilay sat impatiently.
+Inside, Wryonin and Lemilay were sitting impatiently.
 
-"Where are they?" Lemilay tapped her foot.
+“There you are!” Lemilay tapped her foot.
 
-"Mudrich will be here soon, but Ersatzica? I haven't seen her since this morning." Wryonin stared at the lantern.
+“I’m here.”
 
-"You didn't see her at training today?"
+“Where’s Ersatzica?”
+
+“I haven't seen her since this morning." Wryonin mused, staring at the lantern.
+
+"You didn't see her at training today?" Lemilay glanced at him.
 
 "No, she was absent…" Wryonin rolled his eyes. "Again."
 
-That's when Mudrich opened the door.
+“Well, she better be here soon. It’s getting late.”
 
-"Oh good, you're finally here."
-
-"Hold on, we can't start yet, we have to wait for Ersie." Mudrich took off the cuffs.
+"Hold on, we can't start bedtime yet, we have to wait for Ersie." Mudrich took off the cuffs and hid them under her pillow.
 
 "Where is she?"
 
@@ -882,7 +884,7 @@ Awoomoon's eyes went wide and her ears folded back, but only for an instant. "Th
 
 "No, there is none. I don't know how they did this, but it must be one powerful heirloom."
 
-"Indeed," Awoomoon folded the wolfskin. "Get a search party, search the entire town. We're looking for an orange cat. When you find her, bring her back here to me."
+"One powerful heirloom, indeed." Awoomoon folded the wolfskin. "Get a search party, search the entire town. We're looking for an orange cat. When you find her, bring her back here to me."
 
 The wolf guard bowed. "It will be my honor to bring you her head."
 
