@@ -1350,9 +1350,15 @@ Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to t
 
 All the wolves were dismissed. They ran over to the stairs and up to the village on the plateau.
 
-Ersatzica held the stick on the way back to her workshop. There, she examined the boots. They were clean and shiny, save for some minor dust, just the way she left them. The stick… the boots… the rock… She had to find out. There was a good chance that it was the fisher cat, and that he was friendly. She had to know.
+Ersatzica held the stick on the way back to her workshop. There, she examined the boots. They were clean and shiny, save for some minor dust, just the way she left them. She fiddled with the boots, trying to figure out how to adjust them for wolf feet.
 
-The next day, she brought the boots with her.
+Days went by. A whole week went by. Everyday after training, she would come back and bang her head against the problem again.
+
+She has to fit the boots to wolves. That’s her task. Mother said so. But the boots! The boots are so pristine! Trying to take them apart would ruin that. And what if she couldn’t put them back together? What if she lost a piece? Well that didn’t stop her before. Yeah, but that was a piece of furniture, and she had the schematic in front of her while she did it. Schematics? Hmmm… Maybe the cats would have one? But even if they did, how would she get it?
+
+The fisher cat! The stick… the boots… the rock… She had to find out. There was a good chance that she could find the fisher cat, and that he was friendly. She had to know.
+
+The next day, she brought the boots with her to training.
 
 “What are you bringing those for?” Wryonin asked.
 
@@ -1828,7 +1834,7 @@ Wryonin’s howl woke her up. The morning light poured into her eyes, which she 
 
 “Time for training. You’re coming today, right, Ersie?”
 
-“Yes, Wryonin, just like I have for a week.”
+“Yes, Wryonin, just like I have for the past week.”
 
 “Ok, just making sure.”
 
