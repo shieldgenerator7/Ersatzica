@@ -73,3 +73,7 @@ Born a wolf, he was transformed into a cat, and chooses to stay in cat form.
 Wolf training coach. Awoomoon’s older brother. Ersatzica’s uncle. War veteran.
 
 *The wolf at the head of the formation led them in stretches. He was missing an arm. Nevertheless, his tall stature and muscular frame combined with his scowling face made him rather intimidating.*
+
+# Onrent
+
+Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts. Will eventually fix the door to Ersatzica’s workshop.
