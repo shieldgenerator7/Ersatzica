@@ -1,12 +1,12 @@
 [Revisions]
-* Wryonin uses good hearing instead of scope to make long-ranged shot on escaping cat holding boots, Wryonin is an audiophile
 * Don't hand wave lemilays ability at the beginning. Make it so one can easily figure out shes using Hindsight and how shes using it to get information
 * Describe path to wolf village near end of chapter 1
 * Have wryonin check in on ersie in chapter 2
 * Make a scene where its more obvious how lemilay's Hindsight works (maybe when theyre going back to the village)
 * make AWOOO! more consistent: make it be an onomatopea when wolves do it genuinely, and put it in quotation marks when they mimic it or another species tries to howl
-* have Ersatzica have the stick the first time she gets an invitation across the river
 * account for dodge training in chapter 4
 * add scenes of Ersatzica trying out boot modifications for a week or so during chapter 4
 * fix the story of Quivester in Chapter 6 to be more consistent with the canon version, or have it be reasonably close / something that would inspire Fisher
 * talk about claw training in chapter 6 meeting with Fisher
+* previously mention Ersie's rule: ‘leave your work in your workshop’ (even if it ends up being someone else's rule imposed on her)
+* figure out if they'd use a pencil or some other writing utensil
