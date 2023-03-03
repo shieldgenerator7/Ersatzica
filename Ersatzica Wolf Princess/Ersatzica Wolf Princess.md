@@ -2366,33 +2366,31 @@ Ersie hopped off the boulder, took off the boots, and retrieved her wolf skin.
 
 Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, sis.”
 
-“I won’t.”
+“I won’t.” Ersie hugged her back, squeezing her tight.
 
-“Promise?”
+“Promise?” Muddy looked up with big puppy dog eyes.
 
-“Ok.”
+“Ok.” Ersie squeezed tighter.
 
 “And you’ll build that lookout?”
 
-“Yes… but…”
+“Yes… but…” Ersie let go.
 
-“But what?”
+“But what?” Muddy fidgeted with her cuffs.
 
-“I’ve run into a problem.” Ersie told Muddy about Lemilay and how that’s going to interfere with her plans to build the lookout at this boulder.
+“I’ve run into a problem.” Ersie told Muddy about Lemilay and how that’s going to interfere with her plans to build the lookout on this boulder.
 
-“Oh, Lemilay?” Muddy scoffed. “She’s easy. I’ve been sneaking things past her for years.”
+They picked up armfuls of stones and climbed up onto the boulder. They sat together and watched the river go by.
+
+“Oh, Lemilay?” Muddy laughed. “She’s easy. I’ve been sneaking things past her for years.” Muddy threw a stone into the river.
 
 Ersie’s jaw dropped. “Wait what?”
 
-“Yeah you didn’t know?” Muddy giggled.
-
-They both sat up on the boulder, watching the river go by.
-
-“Lemilay is powerful, and she can see anything that happens in the past, yes.” Muddy threw a stone into the river. “But she has… let’s say… ‘blind spots’.”
+“Yeah you didn’t know?” Muddy giggled. “Lemilay is powerful, and she can see anything that happens in the past, yes.” Muddy threw a stone into the river. “But she has… let’s say… ‘blind spots’.”
 
 “Blindspots, ok.”
 
-“And if you need to hide something from her, the best way to do it is in the dark.”
+“And if you need to hide something from her, the best way to do it…” Muddy tossed another stone in. “…is in the dark.”
 
 “The dark?”
 
@@ -2402,13 +2400,15 @@ They both sat up on the boulder, watching the river go by.
 
 “The only problem is…” Muddy threw another stone into the river. “Being able to see what you’re doing yourself while in the dark. That’s why I only use this blindspot when doing things with my hands.” She shrugged. “Mostly really personal things, like—”
 
-“Ok, I don’t want to know.” Ersie threw a stone in the river.
+“Ok, ok, I don’t want to know.” Ersie threw a stone in the river.
 
-“But yeah, do it in the dark and she can’t see it.”
+“But yeah, do it in the dark and she can’t see you do it.”
 
 “But *I* need to be able to see what I’m doing.”
 
 “That’s a real pickle, for sure.”
+
+They took turns tossing stones in the river. The ripples were barely visible as they got carried away in the current. It didn’t take long for Ersie to have an idea, it just took long for her to figure out a way to pitch the idea to Muddy.
 
 Ersie eyed the boots. “Muddy, you’re not going to like this…”
 
@@ -2416,4 +2416,4 @@ Ersie eyed the boots. “Muddy, you’re not going to like this…”
 
 “But I know a way to see in the dark.” Ersie picked up the boots.
 
-Muddy’s ears drooped.
+Muddy’s ears drooped. All the rocks fell out of her arms. She sighed.
