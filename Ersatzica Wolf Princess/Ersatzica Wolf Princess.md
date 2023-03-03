@@ -2067,3 +2067,353 @@ Ersatzica walked briskly to her workshop, carrying the boots at her side. That w
 Ersatzica cleaned off and dried the boots. They sparkled like new again. A little bit of grease here and there to keep them from squeaking. Not that they ever do, but to prevent it from happening if it would happen to normal boots of this design. Satisfied that she got the boots in good working order again, she carried them to the barracks and hid them in her bed.
 
 # Chapter 7
+
+The next day, Ersatzica went to visit Fisher again. He brought a new book, but ‘Nic was disappointed that it, too, didn’t have anything about her boots. Fisher was certain there was a book out there somewhere that talked about her boots, but he didn’t have it. He wasn’t planning on going to the cat city for another week, and when he did, he would be gone for a few days. So ‘Nic settled for a story about another heirloom.
+
+Over the next few days, Ersatzica visited Fisher once a day, even though she knew there wasn’t going to be any info on the boots. There was, however, lots of info about lots of heirlooms. She was sure this general knowledge of heirlooms would help her in some way.
+
+But it didn’t help her today.
+
+Finally the day came and Mother asked them what the results were for the census.
+
+“Lemilay?”
+
+“849 residents. 163 battle ready. 50 that will be battle ready within a year.”
+
+Mother’s eyebrows lit up. “Hmm. Very good, Lemilay. Wryonin?”
+
+“How did you get that many? I only counted 781! And there’s only 53 that are battle ready.”
+
+“Did you count pregnant wolves? And those wolves who would be willing to fight if they had to?”
+
+“I go to training everyday. If they were willing to fight, why aren’t they at training?”
+
+“Shh!” Mother hushed them. “Well done, Wryonin. Mudrich, what is your count?”
+
+“I counted 702 wolves on the first day. Then on the second day I counted the wolves at training: 54.” She turned to Ersatzica and whispered, “Don’t worry! I counted you.”
+
+“Thanks Muddy.”
+
+“Continue,” Mother prodded.
+
+“And then on the third day, I counted wolves who I think could beat me in arm wrestling.” She shrugged. “There’s about 10 of those, but most of them are also at training.”
+
+“So what’s your count?” Mother scooched closer to Mudrich.
+
+Mudrich shrugged. “I guess about… 60?”
+
+“Very good, Mudrich, well done. Ersatzica?”
+
+Ersatzica glanced at Lemilay. Lemilay stared intensely at her. “I… umm… I counted 702 wolves. And… 60 battle ready.”
+
+Mother was not amused. “Ersatzica, did you actually do the assignment?”
+
+“Um, yes?”
+
+“Ersatzica, daughter of the chieftess, be honest!. I know you’ve been disappearing lately… to who knows where. Did you really?”
+
+“No…” Ersie shrunk and hid her face in her knees.
+
+“You have to take this seriously.”
+
+“It doesn’t matter anyway, right? She didn’t get the correct answer.” Lemilay interjected.
+
+“Yeah, whose answer is correct?” Wryonin asked.
+
+“Young pups, my pups,” Mother stroked the bridge of her muzzle. “You’re missing the point. If we were invaded tomorrow, how long would it take to evacuate the village? And how many people could you count on to help you buy time?”
+
+Lemilay’s ears folded back.
+
+“Buy time? We’d beat those cats to a pulp.” Mudrich punched a fist into her palm.
+
+“Mudrich, my pup, you are very confident.” Mother pulled her in and stroked her head fur. “I hope you never have that confidence shaken. But how many cats do you think you can fight off? A few dozen? Sure. A few hundred? Perhaps. But a few *thousand*? It’d take you *days* to kill them all even if they were just standing still.”
+
+“A few days of fighting?” Mudrich licked her lips as her tail wagged. “That sounds like fun!”
+
+“Of course you’d think that, my little pup.” Mother pulled her in for a tight hug.
+
+Lemilay winced, then regained her high-chin composure.
+
+“So, Ersatzica,” Mother turned her attention to her. “You understand now why these challenges are important?”
+
+Ersatzica peaked out from her knees and nodded.
+
+“Can I count on you to accomplish your tasks?”
+
+Ersatzica nodded.
+
+“Good.” Mother let Mudrich go, who cuddled up next to Ersatzica. “I’ll give you your next task tomorrow. Remember, my pups, the cats are coming. And I’m going to need your help to keep us safe.”
+
+“I’ll make you proud.” Lemilay said.
+
+“You can count on me,” echoed Wryonin.
+
+Mudrich gave a thumbs up.
+
+“Ok, I love you, my pups. Goodnight.” Mother closed the door behind her.
+
+“Thank you, Ersatzica.” Lemilay sat down next to her. “I knew I could count on you. Keep it up and I just might make you my right-hand wolf.”
+
+Ersatzica gulped.
+
+The next day, Mother met them at the mess hall. She was accompanied by the carpenter, who held a large piece of paper. “Today, my pups, we will starting a building challenge.”
+
+The carpenter rolled out the paper onto the empty table.
+
+“Hi, Uncle Onrent.” Ersatzica waved subtlely.
+
+“Hi, Ersie.” Uncle Onrent waved back.
+
+Mother pointed to the paper. It was a map of their village and the surrounding area. “We’re building lookout spots along the river. These posts will also act as first defenses against the cat invasion. Each of these red dots along the river is a position of a lookout post. Your task is to build one of these lookout posts. Choose one and mark your name next to it.”
+
+Wryonin and Lemilay poured over the map, analyzing the best place to build one.
+
+“I killed a cat here!” Mudrich pointed to a red dot on the map. “Here, here and here. I’ve killed a lot near this dot.”
+
+“Is that the one you want to build then?” Mother handed her a pencil.
+
+“Yeah!” Mudrich circled the dot closest to her favorite murder spot and wrote an “M”.
+
+Lemilay took it from her and circled a dot on the south side of the cliff. There was no stair case leading directly to that forest. She wrote “Lemilay” next to it, taking up an obnoxiously large amount of space. She set the pencil down.
+
+“Why would you take that one?” Wryonin snarled.
+
+“It’s the hardest to get to, and thus,” Lemilay raised her chin. “The most impressive when I get it built.”
+
+“But the cats aren’t going to come from that side.” Wryonin circled a dot in a forested area in the north clearing. “There’s no stairs there. The cats always come from the stair side.”
+
+Mother grumbled.
+
+“Don’t you know your history? The cats have previously come up that side. They have claws, they don’t need stairs.”
+
+“Lemilay, daughter of the chieftess. How do you know that?” Mother growled.
+
+“I saw it, Mother.” Lemilay’s ears pinned back. “With my… you know.” She pointed to her bald spot.
+
+“Lemilay, you are forbidden from visiting that night. Are we clear?”
+
+“Yes, Mother.”
+
+“Ersatzica?” Mother asked.
+
+“Um… yes, Mother?”
+
+“Have you picked a location?”
+
+“Is there a schematic?”
+
+“I thought you might like one.” Uncle Onrent produced another large piece of paper. “This is the standard one we’re building all along the river.”
+
+“But you don’t have to use this for yours.” Mother added.
+
+Ersatzica poured over it. “What’s the scale on this?”
+
+“Oh, I don’t have it on there?” Uncle Onrent wrote it in a corner. “Just made this up last night. Hopefully it’s a good design.”
+
+The design was obviously copied from the schematics for an outhouse, but the door was removed, rectangular slit windows were added, and it was topped with a candle holder.
+
+“I think it’s workable.” Ersie tapped on it.
+
+“Thank you, Ersie.”
+
+“So have you decided?” Mother crossed her arms.
+
+“How do these lookouts work?”
+
+“We’re using the Frestiyen Method.” Mother stated.
+
+“Grandpa’s method? What’s that?” Lemilay asked.
+
+“Two guards stationed at each outpost at all times. Rotating shifts. In addition, there will be a candle on each outpost that lights up when you howl next to it.”
+
+Ersatzica analyzed the map. “The one I want to build isn’t on the map.”
+
+“Where do you want to build yours?”
+
+Ersatzica pointed to a spot between two dots where she knew the boulder to be.
+
+“Why do you want to build there?”
+
+“Hey, I know that spot!” Wryonin chimed in. “There’s huge boulder there. It’s weirdly shaped, too. It’d be good for cover and high ground advantage.”
+
+“Well, then. You can build there, Ersatzica.” Mother nodded.
+
+Ersatzica giggled giddily. “Thank you, Mother. I’ll get started on this right away.” She ran off to her workshop. This was totally something should could do. And it was a perfect excuse to go to the boulder, at any time, and stay as long as she wanted.
+
+She ran into her workshop, kicking the door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Onrent’s design as a base, and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever to open, but then quickly erased it so you couldn’t see it unless you were looking for it.
+
+*AWOOO!* “Here!”
+
+Ersatzica jumped. That howl was right outside her workshop.
+
+“Ersatzica?” Lemilay stepped into the doorway.
+
+“Oh, hi, Lemilay.” Ersatzica turned back to her schematic. “I’m just working on my design—”
+
+“As my future second-in-command, I am only going to ask this once.”
+
+Ersatzica slowly rolled up her design and unrolled a scrapped version of it.
+
+Lemilay activated her bald spot. She chuckled at Ersatzica. “Hmmph.” She picked up the design that Ersatzica had settled on as her final design. She unrolled it and looked at it.
+
+Ersatzica gulped. Her heart beat fast.
+
+“I don’t suppose this design would work on the south side of the cliff?” Lemilay asked.
+
+“Um… no. I mean, I could modify it to work.” Ersatzica looked away and straightened her pencil.
+
+“Ersatzica, I know you’re lying to me.” Lemilay whispered in her ear. She threw the design in the trash can. “You’re trying too hard. And unfortunately for me, this task is one that’s more… outside my wheelhouse. But fits squarely in yours. Curious, isn’t it?”
+
+“I got lucky?” Ersatzica froze, staring intently at the corner of a random brick in the wall.
+
+“Well, you’re not trying, are you?” Lemilay grabbed Ersatzica’s muzzle and turned it towards her.
+
+“No, no, I’m not trying.” Ersatzica gulped.
+
+“Good. Because if you were…” Lemilay tapped her bald spot. “You know what would happen.”
+
+Ersatzica nodded.
+
+“Very well, I shall be on my way now.” Lemilay walked to the door. “And one more thing, be prepared for me to call on you.” And with that, she left.
+
+Ersatzica pulled her schematic out of the trash can, then put it back in. If she used anything other than Uncle Onrent’s design, Lemilay would know and would sabotage her. She has to find a way to get around Lemilay’s abilities. But how do you hide something from someone who can always be around to witness it? And can witness it as many times as she pleases? Ersie could cover her design with another paper as she draws it, but then it becomes unreadable. And Lemilay would still be able to find the real version.
+
+Ersatzica leaned her elbows on the counter, and her head in her hands. She cried. What was she doing? All she wanted to do was build a lookout post. But if she did, she would risk losing everything she’s done over the years. All the schematics, all the projects she built, all the memories she has of her workshop. Lemilay didn’t explicitly say what she was going to do, and she never does. But she implied that she would do something horrible to Ersatzica’s work if she didn’t concede. What should she do?
+
+She looked over at the boots. She shallowed some tears, and grabbed the boots. These will help. She can be productive in getting information while escaping from Lemilay’s eternally prying eyes.
+
+She took them to the boulder, shed her wolfskin, hid it, and puts the boots on. She waited on the boulder, but no rock came. Ersie squinted at the outcropping across the river, but it still looked the same as it always did: no Fisher. Could he not be there today? Was it already time for him to go back to the cat city?
+
+“CAAAAAAT!” *SLAAAAAM!* An echo wave traveled through the boulder.
+
+Ersie jumped, almost sliding off. She turned around. It was Mudrich! She getting ready for another hammer swing. Ersie mouthed “No! No! No!” and waved her arms, but no sound came out.
+
+“Die cat!” Mudrich slammed the boulder again with her hammer, missing Ersie entirely.
+
+Ersie got knocked off her feet. She hurriedly unlatched all the latches on the boots, silently screaming all the while.
+
+“I got you now!” Mudrich charged up her swing right next to Ersie.
+
+Ersie rolled over to the other side of the boulder, just barely dodging the hammer. Finally she unlatched the last latch.
+
+“Muddy!” Ersie yelled. “It’s me!”
+
+“Ersie?” Muddy dropped her hammer. “Did you see the cat?” Muddy gripped the top of the boulder but couldn’t see over it.
+
+“I *am* ‘the cat’!”
+
+“Oh that was you?”
+
+“Yeah that was me! Don’t hit me!”
+
+“Oh, sorry, Ersie. Wait… what are you doing out here?! It’s in the middle of the day!”
+
+“I’m… sunbathing. It’s a thing… that cats do.”
+
+“So this is what you’re doing all those days you disappear?”
+
+Ersie held out a hand to Muddy, helping her up onto the boulder. “Yeah, more or less.”
+
+“Well how come I don’t see you? Whenever I’ve tried to find you, you weren’t here.”
+
+“Muddy, there’s something that I’m not telling you.”
+
+“Yeah, I figured!”
+
+“I mean, something that I’m not *going* to tell you.”
+
+“What? Why not?”
+
+Ersatzica sighed. She took a deep breath, in and out. “You know what you just tried to do to me?”
+
+“Mmhmm?”
+
+“Well, that’s why.”
+
+“Ersie, I already know that you sometimes use an heirloom to turn into a cat. I don’t understand why, but I already know.”
+
+Ersatzica looked down at her.
+
+“And I think it’s weird and wrong. Afterall, that’s how cats are *made*. Good wolves like yourself start messing with evil and bit by bit their soul gets turned into a cat’s soul, and they become a cat full-time.”
+
+“So the story goes.” Ersatzica nodded.
+
+“And I’m worried about you, sis. So far you’re the only one who’s managed to use the boots to turn into a cat. What does that say about your soul?”
+
+Ersatzica clenched the scar on her stomache.
+
+“And here you are turning into a cat for fun. If you keep going down this path, you’re going to turn into a cat with no way back.” Muddy burst out into tears. “And I… I’d lose my… my s-sister… and bes-st… my best friend!” She leaned closer to Ersie but then scooched away and leaned on her elbows towards her.
+
+Ersie looked down at the river. She knew there was a risk. According to the legends, that’s how most wolves are turned into cats. But all those legends also involve a green hat with a red feather, coincidentally. And now she knows it’s the hats, and not some desire for evil. Did she want to turn into a cat for evil? No. And was Fisher evil? No. Had she ever met an evil cat? Well, sure, maybe. But they were all dead by the time she found them, so she couldn’t know. Muddy was ignorant, but she was still her sister. And very concerned and upset. Ersie didn’t want to upset her sister.
+
+“Well, it won’t be forever.” Ersie leaned over and patted Muddy on the back.
+
+Muddy brushed her hand off and sat up. “What do you mean?”
+
+“I mean I’m going to build a lookout post here.”
+
+“Yeah?” Muddy wiped tears away with her fist.
+
+“And then I won’t be able to turn into a cat here anymore.”
+
+“That’s true. There’ll be guards here.” Muddy sniffled. “And then you won’t ever be a cat again!”
+
+“Yeah…” Ersatzica looked down. She turned to Muddy. “Want me to get my wolfskin?”
+
+Muddy nodded.
+
+Ersie hopped off the boulder, took off the boots, and retrieved her wolf skin.
+
+Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, sis.”
+
+“I won’t.”
+
+“Promise?”
+
+“Ok.”
+
+“And you’ll build that lookout?”
+
+“Yes… but…”
+
+“But what?”
+
+“I’ve run into a problem.” Ersie told Muddy about Lemilay and how that’s going to interfere with her plans to build the lookout at this boulder.
+
+“Oh, Lemilay?” Muddy scoffed. “She’s easy. I’ve been sneaking things past her for years.”
+
+Ersie’s jaw dropped. “Wait what?”
+
+“Yeah you didn’t know?” Muddy giggled.
+
+They both sat up on the boulder, watching the river go by.
+
+“Lemilay is powerful, and she can see anything that happens in the past, yes.” Muddy threw a stone into the river. “But she has… let’s say… ‘blind spots’.”
+
+“Blindspots, ok.”
+
+“And if you need to hide something from her, the best way to do it is in the dark.”
+
+“The dark?”
+
+“Yes. If you do something in the dark, it doesn’t matter when she checks it out, she can’t see it.”
+
+“Hmm…”
+
+“The only problem is…” Muddy threw another stone into the river. “Being able to see what you’re doing yourself while in the dark. That’s why I only use this blindspot when doing things with my hands.” She shrugged. “Mostly really personal things, like—”
+
+“Ok, I don’t want to know.” Ersie threw a stone in the river.
+
+“But yeah, do it in the dark and she can’t see it.”
+
+“But *I* need to be able to see what I’m doing.”
+
+“That’s a real pickle, for sure.”
+
+Ersie eyed the boots. “Muddy, you’re not going to like this…”
+
+“What?”
+
+“But I know a way to see in the dark.” Ersie picked up the boots.
+
+Muddy’s ears drooped.
