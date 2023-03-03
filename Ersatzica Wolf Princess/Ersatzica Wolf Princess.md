@@ -1118,11 +1118,13 @@ The wolf siblings went to sleep, but something was keeping Ersatzica awake. She 
 
 "Don't be so dramatic Ersie." Wryonin looked around. The shelves were still packed with miscellaneous parts. "We only shoot sandbags during training. Non-lethal."
 
+"Hey Ersie, help me find that shovel." Mudrich lifted the cart effortlessly. The cuffs hung around her wrists.
+
+Ersie looked under the counter.
+
 “Guys, let’s go.”
 
-Ersie panted.
-
-"Hey Ersie, help me find that shovel." Mudrich lifted the cart effortlessly. The cuffs hung around her wrists.
+“Not here.” Ersie checked the cupboards.
 
 "We don't have time for this. Training is about to start." Wryonin glanced at the counter below the window. The sun crept along the various parts and pieces scattered on it.
 
@@ -1132,7 +1134,7 @@ Mudrich whimpered. "I wanted the shovel."
 
 “Ok, I’m going.” Ersatzica joined Mudrich outside the workshop, grabbing the stick on the way out.
 
-“Ok,” Wryonin clapped. He reached behind him for the door knob. Then remembered the door was on the floor. “Right, this way to training.”
+“Ok,” Wryonin clapped. He reached behind him for the doorknob. Then remembered the door was on the floor. “Right, this way to training.”
 
 "But I need to fix my door first." Ersatzica pointed.
 
@@ -1142,7 +1144,7 @@ The trio headed toward the cliff face, where a long zig-zag stone staircase gree
 
 Wryonin led Ersatzica and Mudrich down the stairs to the forested area below. The area was surrounded on the south side by the stone staircase, on the east side by the cliff of the plateau, on the west side by the river beach where Mudrich recently scored a hammer kill, and on the north side by the river where Ersatzica was saved by the cat with a fishing pole.
 
-Ersatzica played with the stick she had had that day. What was that cat doing there? Is he still out there? Did he think Ersatzica was a cat? And if not, why would he rescue a wolf?
+Ersatzica played with the stick she had had that day. What was that cat doing there? Is he still out there? Why did he save her? Did he think Ersatzica was a cat? And if not, why would he rescue a wolf?
 
 "We're here." Wryonin said.
 
@@ -1162,17 +1164,17 @@ Ersatzica cautiously stepped up next to them and began stretching.
 
 "No, you made us late, Ersatzica." Wryonin pulled her tail down. "You don't get to just not do pushups."
 
-"How do you do them?"
+"But I don’t know how."
 
-"Like this!" Mudrich laid on her belly, put her palms on the ground, and lifted up with her elbows, pivoting at the tips of her toes. "It's easy."
+"It’s easy! Like this!" Mudrich laid on her belly, put her palms on the ground, and lifted up with her elbows, pivoting at the tips of her toes. "See?"
 
 "Ok." Ersie followed the steps, but was barely able to get her torso off the ground. "Am I doing it right?"
 
 "You have to lift all the way." Wryonin huffed.
 
-"Oh." Ersatzica collapsed onto the ground. She tried again and did some full-hearted but ultimately pathetic pushups. When Mudrich and Wryonin finished theirs, she joined them in the stretching. Hopefully, being in the back, the coach wolf wouldn't notice.
+"Oh." Ersatzica collapsed onto the ground. She tried again and did some full-hearted but ultimately pathetic pushups. When Mudrich and Wryonin finished theirs, she joined them in the stretching. Hopefully, being in the back, the coach wolf wouldn't notice that she didn’t do a single complete pushup.
 
-"Stretching done! Do 5 laps around the trail, meet me back here." He howled to signal the wolves to start.
+The group did several stretches designed to prevent injury. After a few more, the coach wolf yelled, "Stretching done! Do 5 laps around the trail, and meet me back here." *AWOOO!* “Go!”
 
 The trio turned to follow the pack, but the coach wolf stopped them. "Not you three."
 
@@ -1210,7 +1212,7 @@ Ersatzica's ears folded back. "Well, no… they could have come without me. I wo
 
 "No, I was planning on coming." Ersatzica took a step back.
 
-"Hmm." He glared into her eyes. "Ok, well it's a good thing. You could definitely use the training. As of right now," he said as he swiped the stick from Ersatzica's hand, "you lack discipline. By the end of your training, how ever long it takes," he used the stick to guide Ersatzica's posture into the pristine stance that Mudrich and Wryonin were using, "you will know how to be on time, how to run fast, and how to be a proper wolf of loyalty."
+"Hmm." He glared into her eyes. "Ok, well it's a good thing. You could definitely use the training. As of right now—" He swiped the stick from Ersatzica's hand. "—you lack discipline. By the end of your training, how ever long it takes—" He used the stick to guide Ersatzica's posture into the pristine stance that Mudrich and Wryonin were using. "—you will know how to be on time, how to run fast, and how to be a proper wolf of loyalty."
 
 “Ok.”
 
@@ -1218,7 +1220,7 @@ Ersatzica's ears folded back. "Well, no… they could have come without me. I wo
 
 "Y… yes… sir." Ersatzica put on a brave face, and stood up straight.
 
-"That's more like it. Now go run 5 laps! And make them quick!" The Uncle Callustar howled, "Run!"
+"That's more like it. Now go run 5 laps! And make them quick!" Uncle Callustar yelled. *AWOOO!* "Go!"
 
 Wryonin and Mudrich took off jogging, but Ersatzica stayed behind.
 
@@ -1226,19 +1228,19 @@ Wryonin and Mudrich took off jogging, but Ersatzica stayed behind.
 
 "But I can't! You see, I have this scar—"
 
-"Did you hear me? I said run!" He slapped her on the back with the stick and prodded her to start going.
+"Did you hear me? I said run!" He threw the stick in the direction she was supposed to run.
 
 She walked in the direction Wryonin and Mudrich went.
 
 “Are you deaf? I said run!”
 
-“Yes, sir.” Ersatzica picked up the pace.
+“Yes, sir.” Ersatzica picked up the pace. She picked up the stick as she passed it.
 
-Wryonin and Mudrich were quite a bit, jogging along the trail at a pace they considered a jog, but for Ersatzica, it was a sprint.
+Wryonin and Mudrich were quite a bit ahead, jogging along the trail at a pace they considered a jog, but for Ersatzica, it was a sprint.
 
 “Wait up!” Ersatzica yelled.
 
-Mudrich stopped and ran to her. “There you are!” Mudrich ran beside Ersie, while Wryonin kept at his pace ahead of them. "Wow, Ersie! You're actually keeping up! See? I knew you could do it!"
+Mudrich stopped and ran to her. “There you are!” Mudrich ran beside Ersie, while Wryonin kept his pace ahead of them. "Wow, Ersie! You're actually keeping up! See? I knew you could do it!"
 
 Ersatzica breathed heavily. "I… need… to… take… a breather." She slowed down to her jog pace, then to a walk, then she stopped and rested her hands on her knees.
 
@@ -1262,15 +1264,15 @@ Mudrich took off, catching up with Wryonin easily.
 
 Walking along the path, Ersie breathed rapidly, trying to catch her breath. She ran a hand through her belly fur. The scar tissue still had the same bumpy texture. She looked at her hand. It was clean, save for the bit of dust. There was no blood on it. Ersie breathed a sigh of relief.
 
-Ersatzica panted and leaned on a tree. Why was it so hot out? It was still morning, wasn’t it? Wasn’t it supposed to be cool in the morning? The sun is out. She leaned into the tree’s shade and looked around. Oh the river! It would be cool, for sure! It’d also help satisfy her thirst.
+Ersatzica panted and leaned on a tree. Why was it so hot out? It was still morning, wasn’t it? Wasn’t it supposed to be cool in the morning? Oh, the sun is out. That’s it. She leaned into the tree’s shade. It’s still too hot. She looked around. Oh the river! It would be cool, for sure! It’d also help satisfy her thirst.
 
-Ersatzica walked to the river and splashed her face with water. Ah, yes! That feels so good! She looked across it. There’s that rock. The fisher cat was sitting on it the other day. If he hadn’t been there… Ersatzica looked down river. She couldn’t see from where she was at, but the water fall roared from just beyond the next tree line. She turned again to the rock. But he *was* there. And he saved her. But why?
+Ersatzica walked to the river and splashed her face with water. Ah, yes! That feels so good! She looked across. There’s that rock outcropping. The fisher cat was sitting on it the other day. If he hadn’t been there… Ersatzica looked down river. She couldn’t see from where she was at, but the waterfall roared from just beyond the next tree line. She turned again to the outcropping. But he *had* been there. And he saved her. But why?
 
-She rolled around in the swallow part of the river. That hit the spot! But she was all wet. She shook it off, but was still a little wet. She climbed up onto a boulder near her. That’s nice.
+She rolled around in the shallow part of the river. Ahhh! That sure hits the spot! But now she’s all wet and her fur is all damp. She shook it off, but was still a little wet. She climbed up onto a boulder near her. Ah, that’s nice. She let the stick in her hand swing down and hit the rock. *Tap*.
 
-A small rock flew out from nowhere and landed right next to her. She jumped. The rock was the size of her hand. It slid down the side of the boulder and landed in the sand. The string tied around it pulled it slightly toward the river. That string stretched all the way across the river and disappeared into thin air at about the point it would go over the fisher cat’s rock.
+A small rock flew out of nowhere and landed right next to her. She jumped. The rock was the size of her hand. It slid down the side of the boulder and landed in the sand. The string tied around it pulled it slightly toward the river. That string stretched all the way across the river and disappeared into thin air at about the point it would go over the fisher cat’s outcropping.
 
-Ersatzica scrambled for the tree line. She hid behind a tree and observed the rock. The string pulled it across the river and up to the rock, where it too disappeared.
+Ersatzica scrambled for the tree line. She hid behind a tree and observed the rock. The string pulled it across the river and up to the outcropping, where it too disappeared.
 
 Ersatzica stared at the river for a moment. What was that? Why did it disappear like that? Where did it go?
 
@@ -1332,13 +1334,15 @@ Ersatzica jogged with Wryonin and Mudrich, who were going extra slow for her, do
 
 "Thanks Muddy."
 
-When they got back to the training area, Uncle Callustar slapped Mudrich with the stick. "No! She has to do it herself! Or she'll never learn."
+Mudrich carried Ersie all the way back to the training area.
+
+When they got there, Uncle Callustar scolded Mudrich. "No! She has to do it herself! Or she'll never learn."
 
 "She's got to rest! She's got a scar that could—"
 
-He slapped her again. "Mudrich! Daughter of the Chieftess! I'm shocked you would take that tone with me!" He threw the stick into the woods. "Go fetch that stick. If you bring back the wrong one, you've got more coming."
+He slapped her. "Mudrich! Daughter of the Chieftess! I'm shocked you would take that tone with me!"
 
-Mudrich whimpered and went off into the woods to find the stick.
+Mudrich whimpered and put Ersatzica down.
 
 Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
 
@@ -1346,11 +1350,11 @@ Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to t
 
 All the wolves were dismissed. They ran over to the stairs and up to the village on the plateau.
 
-Ersatzica had gotten the stick back from Uncle Callustar and held it on the way back to her workshop. Once there, she examined the boots. They were clean and shiny, save for some minor dust, just the way she left them. The stick… the boots… the rock… She had to find out. There was a good chance that it was the fisher cat, and that he was friendly. She had to know.
+Ersatzica held the stick on the way back to her workshop. There, she examined the boots. They were clean and shiny, save for some minor dust, just the way she left them. The stick… the boots… the rock… She had to find out. There was a good chance that it was the fisher cat, and that he was friendly. She had to know.
 
 The next day, she brought the boots with her.
 
-“What are bringing those for?” Wryonin asked.
+“What are you bringing those for?” Wryonin asked.
 
 Ersatzica shrugged. “Training.”
 
@@ -1374,19 +1378,19 @@ Ersie stopped in her tracks. “Oh, hi, Muddy.”
 
 “Later, Muddy!” She waved goodbye.
 
-Ersatzica walked briskly to the site of the rock. She pulled the boots out their hiding spot and slipped into them. “I wish to be a cat!” She said to herself. Her wolfskin peeled off and she let it fall to the ground. Her paws slid the rest of the way into the boots, and she latched them. She tried talking, and found no sound came out. The boots were still working.
+Ersatzica walked briskly to the site of the rock. She pulled the boots out of their hiding spot and slipped into them. “I wish to be a cat!” She said to herself. Her wolfskin peeled off and she let it fall to the ground. Her paws slid the rest of the way into the boots, and she latched them. She tried talking, and found no sound came out. The boots were still working.
 
 She took a moment to bury her wolf skin under some foliage. Then she went to the rock.
 
 It was afternoon, and the sun was just overhead. She looked across the river. There was the outcropping. No fisher cat sat there, just like yesterday. And also just like yesterday, the boulder on this side of the river was completely unshaded, and quite warm to the touch. She approached it, putting out a hand to touch it, then pulled it back.
 
-How do I know for sure that this cat is friendly? What if it’s a trap? Cats are evil creatures, after all. It’d be totally like them to do something like this. Lead you astray and then take advantage of you. Ersie would be completely vulnerable, and have no way to escape. But if that was the case, why did he rescue her in the first place? Wouldn’t it have been easier to let her drown? She had to find out.
+How does she know for sure that this cat is friendly? What if it’s a trap? Cats are evil creatures, after all. It’d be totally like them to do something like this. Lead you astray and then take advantage of you. Ersie would be completely vulnerable, and have no way to escape. But if that was the case, why did he rescue her in the first place? Wouldn’t it have been easier to let her drown? She had to find out.
 
-She took a deep breath, and climbed up onto the boulder. It didn’t take long before a rock came sailing over the river. This time she grabbed it before it slid off the boulder. She held it in her hand. It had a smooth grainy texture. On one side, a cat’s face had been etched into it. This is definitely some kind of cat thing.
+She took a deep breath, and climbed up onto the boulder. It didn’t take long before a rock came sailing over the river. This time she grabbed it before it slid off into the sand. She held it in her hand. It had a smooth grainy texture. On one side, a cat’s face had been etched into it. This is definitely some kind of cat thing.
 
-The string jerked forward, nearly pulling Ersatzica off the boulder. She yelled to stop, but no sound came out. She held on, even as it pulled her off the boulder and into the water. Luckily, the water was swallow at this end. But she was on her knees, and didn’t have time to get up before the rock dragged her into the river. It dragged her into the deep part, and she sank below the surface. Her lungs filled with water as gurgled and clawed to stay afloat. The air inside her deflated and she began feeling faint. Then sand brushed up against her face, filtering in between her fur. The rock pulled her all the way across the river and onto the sand bank. The sand itched into her chest fur as she washed ashore. She let go of the rock.
+The string jerked forward, nearly pulling Ersatzica off the boulder. She yelled to stop, but no sound came out. She held on, even as it pulled her off the boulder and into the water. Luckily, the water was shallow at this end. But she was on her knees, and didn’t have time to get up before the rock dragged her forward into the river. It dragged her into the deep part, and she sank below the surface. Her lungs filled with water as she gurgled and clawed to stay afloat. The air inside her deflated and she began feeling faint. Then as soon as it began, it ended. The rock pulled her all the way across the river and onto the sand bank. Sand brushed up against her face, filtering in between her fur. The itchy sand infiltrated her chest fur as her body scraped across the beach. She let go of the rock.
 
-She spit out a ton of water, and took several frantic breathes. Her breathes were as sporadic as they were rapid. But she didn’t have time to catch her breath before something grabbed her hand and dragged her further up shore. She screamed, but silently. Finally, she was let go.
+She spit out a ton of water, taking several frantic breathes. They were as sporadic as they were rapid. But she didn’t have much time before something grabbed her hand and dragged her further up shore. She screamed, but silently. Finally, she was let go and her arm dropped to the ground.
 
 She sat up and looked around. Right in front of her stood a cat. He stood on white toes and black legs. He wore a leather belt around his white belly. His white chin comfortably sat on his black face. His black ears stuck out from under his green, feathered hat. He extended an arm to her.
 
