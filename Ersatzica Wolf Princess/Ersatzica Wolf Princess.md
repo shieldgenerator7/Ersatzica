@@ -1984,9 +1984,11 @@ She flipped through all the pages, until she landed on something familiar: the g
 
 “One cat kitten was wearing the hat of Quivester, but it was clear that they all had shared it. They were escorted to the Cat Empire as orphans, and the three wolf pups were reported missing.
 
-“And that’s it for the history section.”
+“And that’s it for the history section. If you flip to the effects section,” he said while flipping the page, “it talks about how any hat pierced by the feather gains the effects of the feather.”
 
-‘Nic examined the hat. It was thoroughly died green. Turned upside-down, it could be used as a bowl. One end—the front—ended in a point and the rear end was rounded. The brim was folded up around the hat, granting hardly any shade. The red feather pierced the hat through the brim. It was very fluffy and just about as big as the hat itself.
+‘Nic examined the feather. It was a red floofy peacock feather. Out of its base sprouted tiny red hairs. As it got towards the end of the feather, the hairs got denser and fuller, culminating in a large circular red spot. It was very soft, fluffy, and just as big as the hat it was attached to.
+
+The hat was thoroughly died green. Turned upside-down, it could be used as a bowl. One end—the front—ended in a point and the rear end was rounded. The brim was folded up around the hat, granting hardly any shade. The red feather pierced the hat through the brim.
 
 “This hat,” Fisher said as he stroked its feather. “Has very special meaning to me. Although this is not Quivester’s feather, it is meant to look like it. The history section paints him in a bad light, but I believe that Quivester did what he did for the benefit of the people. His story inspires me to do what I can for others.”
 
@@ -2004,7 +2006,7 @@ Fisher put the hat back on his head. “And that’s why I wear this hat. Well, 
 
 ‘Nic tapped on the boots.
 
-“Oh, you want info about your boots?” Fisher thought. “I can check my collection tomorrow and see if I have it.”
+“Oh, you want info about your boots?” Fisher thought. “I can check my collection tomorrow and see if I have something on it.”
 
 ‘Nic smiled and clapped. Then she noticed what time it was. She pointed across the river.
 
@@ -2017,6 +2019,8 @@ He helped her get across the river again via the waterfall underpass.
 ‘Nic waved goodbye.
 
 Ersatzica put on her wolf skin and carried the boots home, wearing a stupid grin on her face. No way! She was right! Fisher did know how to get more information! Soon she’d be able to modify the boots and make Mother proud!
+
+Maybe that feather had something to do with it? The feather apparently works on hats. Maybe it works on boots, too. Who knows how long those boots had been buried for? It’s possible they were pierced by the feather before they were buried.
 
 When she got to the village, Mudrich found her.
 
@@ -2061,3 +2065,5 @@ Ersie stopped dead in her tracks. “Oh hey, Muddy!” She hid the boots behind 
 Ersatzica walked briskly to her workshop, carrying the boots at her side. That was close. She can’t let Mudrich know where she went. She would freak out. She wouldn’t understand why she had to cross the river. It was for science, for the good of the village. It was what Mother would have wanted her to do. But on the other hand, Mudrich was her sister and her best friend. If she couldn’t trust Mudrich with this secret, who could she trust? Fisher. Fisher? Fisher, really? Yes, Fisher. But Fisher is a cat. He isn’t trustworthy. As soon as Ersie gets the info from him that she needs, she should leave and never come back. There’s no telling what he might do to her. But he’s so cute, and friendly. Even if he is a cat…
 
 Ersatzica cleaned off and dried the boots. They sparkled like new again. A little bit of grease here and there to keep them from squeaking. Not that they ever do, but to prevent it from happening if it would happen to normal boots of this design. Satisfied that she got the boots in good working order again, she carried them to the barracks and hid them in her bed.
+
+# Chapter 7
