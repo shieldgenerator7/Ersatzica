@@ -1691,12 +1691,18 @@ Ersatzica got up and went to the door.
 “Ok, I’m leaving now. Bye!” Ersatzica left.
 
 She went for a stroll along the cliff edge. She spotted the staircase, the training clearing, the place where she hid her wolf skin, the outcropping where Fisher sat, and the waterfall.
+She got back to the barracks just as it was getting dark. Inside, Mudrich was rearranging the furniture.
+
+“Oh hey Muddy,” Ersie stopped in the doorway. “Where’s Lemilay and Wryonin?”
 
 Did it really matter who became chief? Chances were it wasn’t going to be her. She wouldn’t make a good chief anyway. She didn’t know how to make a plan of action, put it into action, or lead. She was good at other things, like working with heirlooms. Like the boots. She still didn’t know how to modify them for wolves, but hopefully she would soon. That Fisher cat knew some things about heirlooms. Maybe he knows some things about this heirloom in particular. Tomorrow she would see.
+“Oh, they’re out doing something or other.” She set the table down. “What do you think of the new arrangement?”
 
-That night, she brought the boots into bed with her.
+The bunkbeds, which had previously occupied opposite walls of the room, were now end-to-end on the far wall. The table was set along the wall where Wryonin’s and Lemilay’s bunk was, and the shadow of Ersie’s and Muddy’s bunk haunted the now bare wall.
 
-“What are you doing with those, Ersie?” Mudrich inquired.
+“Feels more spacious in here.” She tossed the boots into her bunk and climbed up. She sniffed the wall. “*This* wall is wood. I never noticed that before.”
+
+“What are you doing with those, Ersie?” Mudrich inquired, pointing at the boots.
 
 “Oh, just picking out an heirloom to sleep with.”
 
@@ -1786,15 +1792,25 @@ Ersatzica kicked off the boots and slid her head into the mask of the wolf skin,
 
 Wryonin opened the door. “I’m not budging, Lemilay. You can forget it—huh?”
 
-“Are they asleep already?” Lemilay pondered.
+“What’s all this?” Lemilay pondered.
 
-Mudrich and Ersatzica breathed in and out, pretending to sleep.
+“I rearranged the room. Do you like it?”
 
-Wryonin shrugged. “Must have been a big day for them.”
+Ersatzica breathed in and out, pretending to sleep.
 
-“Ok, but don’t think you’re off the hook.” Lemilay got into bed.
+Wryonin shrugged. “Works fine I guess.”
 
-“Whatever.” Wryonin blew out the lantern and climbed into bed himself.
+“How did you have time to do all this?” Lemilay’s bald spot glowed and her eyes rolled into the back of her head. Her focus moved all over the room, as if she was following someone’s movements. “Ah, that’s how.”
+
+Mudrich’s tail wagged as she waited for a judgement.
+
+“Wait, what happened?” Lemilay stammered forward and pointed to the removed wall board.
+
+“Um… we discovered something that needs fixing.” Mudrich shrugged.
+
+“Ok, well, I didn’t agree to this.” Lemilay got into bed. “But there’s no time to fit now.”
+
+Wryonin shrugged. “Not bad.” He blew out the lantern and climbed into bed himself.
 
 Mudrich and Ersatzica giggled quietly and breathed a sigh of relief.
 
