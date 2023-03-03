@@ -1,6 +1,6 @@
 # *Ersatzica Wolf Princess*
 
-# Prologue
+# Prologue – Revenge
 
 <https://youtu.be/OykiLWjpOzY>
 
@@ -162,7 +162,7 @@ Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling 
 
 *AWOOO!*
 
-# Chapter 1
+# Chapter 1 – Ersatzica
 
 "Ok, I'm all ready." A slender, black and white wolf pulls a strap tight around her waist. In her hands she holds two identical sticks with a ball at the end. In between, strapped to her front via a harness, is a faded red drum with freshly tightened material. She pounded the drum once and then twice, and then more in a rhythm.
 
@@ -468,7 +468,7 @@ The canine tooth around her neck glowed blue. Awoomoon caressed it.
 
 "Thank you, Wolf of the Moon. We will remain loyal to you." Awoomoon closed her eyes and shivered in the night breeze.
 
-# Chapter 2
+# Chapter 2 - Boots
 
 In a dark, damp room, a flicker of light squeaked through the cracks around the seams of the window and door. Dirt, grease, and fabric splinters were suspended in the air, and whisked around when the door opened. In stepped Ersatzica, with the sun behind her shining on her black fur and making her white belly fur illuminate the interior of the workshop.
 
@@ -682,7 +682,7 @@ A chill ran up her spine as her fur stood up on end. Tensing her shoulders, she 
 
 "This is bad! This is really bad! This is really *really* bad!" Ersatzica shivered. "Mudrich!" She cried out, running out into the night in her new cat skin. In a town of wolves. That hate cats. And would kill any cat on sight.
 
-# Chapter 3
+# Chapter 3 – Wolf Skin
 
 As soon as Ersatzica stepped out of her workshop into the poorly lit night, she knew she made a mistake. Her cat paws, although smaller, pounded loudly on the stone walkway on account of her inexperience with her new form. Several lanterns turned to her direction, scanning eyes searching behind them. She jumped back into the workshop. She would've closed the door, but it was still busted.
 
@@ -1102,7 +1102,7 @@ Ersatzica sighed. “Ok, I guess.”
 
 The wolf siblings went to sleep, but something was keeping Ersatzica awake. She tossed and turned as she lay in bed. Something felt off. Was it her tail? No, her wolf tail was full and fluffy like usual. She brought it up between her legs and hugged it. Was it her face? She rubbed a paw around her face. No, wasn't that. After laying still for a second, her stomach skin seemed to peel up, like a huge blister. That was it. Something didn't feel right about her skin. It was like she was wearing a sweaty shirt, tightly wrapped around her skin, clinging to it. Must be a lingering effect of the transformation. She'd have to catalogue it as a side effect tomorrow. Now that she knew what it was, she breathed a sigh of relief. She tried to ignore it and go to sleep.
 
-# Chapter 4
+# Chapter 4 - Training
 
 "Ok, thanks for escorting me to my workshop, guys. I feel safe now." Ersatzica walked up to her workshop, Wryonin and Mudrich besides her. The sun shone through the doorless doorway, glistening through the morning dew on the tiles.
 
@@ -1396,7 +1396,7 @@ She sat up and looked around. Right in front of her stood a cat. He stood on whi
 
 “Welcome.” He purred.
 
-# Chapter 5
+# Chapter 5 - Fisher
 
 Ersatzica stared up at the black-furred hand reaching out to her. Was this a trick? Could he be trusted? Well, he did pull her all the way across the river. If he wanted to kill her, surely he would have just let her drown in the river just now. Or a week ago, when she foolishly tried to swim across on her own.
 
@@ -1594,7 +1594,7 @@ Ersatzica wiped some blood of her nose. “Oh I just sniffed something sharp.”
 
 “Mother has something important to tell us.”
 
-# Chapter 6
+# Chapter 6 – Challenge
 
 “it occurs to me that I have neglected something very important.” Mother closed the door behind her. She sat down on the floor, joining her pups around the table in their barracks. “As you know, no one is immortal, and that includes me.” She sighed.
 
