@@ -470,13 +470,13 @@ The canine tooth around her neck glowed blue. Awoomoon caressed it.
 
 # Chapter 2 - Boots
 
-In a dark, damp room, a flicker of light squeaked through the cracks around the seams of the window and door. Dirt, grease, and fabric splinters were suspended in the air, and whisked around when the door opened. In stepped Ersatzica, with the sun behind her shining on her black fur and making her white belly fur illuminate the interior of the workshop.
+In a dark, damp room, a flicker of light squeaked through the cracks around the seams of the window and door. Dirt, grease, and fabric splinters were suspended in the air, and whisked around when the door opened. In stepped Ersatzica, letting in the morning sun. The sun shone behind her, shining on her black fur and reflecting off her white belly fur to illuminate the interior of the workshop.
 
-She reached over a table full of tools to open the window, letting more sunshine pour in. The walls were lined on all four sides with tables and tables of tools, materials, and projects in progress. The tables even sandwiched the door, making it rather hard to open the door all the way. The ceilings were lined with shelves, holding even more things.
+She reached over a table full of tools to open the window, letting more sunshine pour in. The walls were lined on all four sides with tables and tables of tools, materials, and projects in progress. The tables even sandwiched the door, making it rather hard to open the door all the way. More things were hidden in the shelves that lined the walls, and even more things were stashed in the copious amount of space under the tables.
 
-In a corner was a muddy-wheeled cart leaning up against a table. Inside, among other things, were the things they had captured the day before: the boots, the cuffs, the shovel and its belt, and the armor and helmet of the smashed cat.
+In one corner, a muddy-wheeled cart leaned up against a table. Inside, among other things, was the loot Ersatzica and her siblings had captured the day before: the boots, the cuffs, the shovel and its belt, and the armor and helmet of the smashed cat soldier.
 
-Ersie bounced up and down. "It's here!" She reached down and picked up the boots. She took them to the window to get a good look.
+Ersie bounced up and down. "It's here!" She wiped her hands on a rag real quick and reached down to pick up the boots. She took them to the window to get a good look.
 
 They had an immensely ornate design plated in gold and red. Its magnificence was apparent despite the wear and tear on it. Mud squeezed into all its nooks and crannies, and fell off in flakes and particles when Ersie flexed them. She put one on the ground and slipped a canine paw in. It went in a ways, but got stuck. Her wolf anatomy didn't mesh well with the boots.
 
@@ -484,39 +484,41 @@ They had an immensely ornate design plated in gold and red. Its magnificence was
 
 She examined the gears, levers, and plates. None of them moved freely at all.
 
-"Looks like we got some work to do."
+She wiped a smudge of dirt of a gear. "Looks like we got some work to do."
 
 "Yes, you do."
 
-Ersie turned around. "Oh, hi Wryonin." She hid her rags.
+Ersie turned around. "Oh! Hi, Wryonin." She hid her rags.
 
 "You ready to come to training?" He stepped into the room.
 
 Ersie turned back to her work. "Um, yes, just gotta finish something up here real quick." She turned her head back to him. "I'll catch up."
 
-Wryonin side-eyed her. "Ok, don't dwaddle too long."
+Wryonin side-eyed her. "Ok, don't dawdle too long."
 
 "Don't worry."
 
 "Ok." Wryonin left.
 
-"See you soon." Ersie reached up to a shelf and pulled out some supplies: oily rags, bottles of oil, and goggles. "I should have time to do just a *light* cleaning before heading off."
+"See you soon." She waved goodbye.
 
-She wasted no time clearing a spot on a crowded counter and setting the boots there. She blew the dust off the table with an effortful whistle. She hummed a tune as she set the boots on center stage and got to work. She took a bucket of water and wetted a rag to wipe off all the dirt. She carefully oiled the tiny moving pieces and polished the metalwork. It wasn't long before she got the boots looking decent, but the sun did move a noticeable amount during the process.
+As soon as her brother was out of line of sight, Ersie reached up to a shelf and pulled out some supplies: oily rags, bottles of oil, and goggles. "I should have time to do just a *light* cleaning before heading off."
+
+She wasted no time clearing a spot on a crowded counter and setting the boots there. She blew the dust off the table with a big breath. She hummed a tune as she set the boots on center stage and got to work. Wetting a rag in a fresh bucket of water, she wiped off all the dirt. She carefully oiled the tiny moving pieces and polished the metalwork. It wasn't long before she got the boots looking decent, but the sun did move a noticeable amount during the process.
 
 SLAM!
 
-Ersie jolted out of her flow state to turn to whoever just opened the door. "Hi Mudrich."
+Ersie jolted out of her flow state and whipped around. Mudrich stood in the doorway. "Oh! Hi, Mudrich."
 
 "Ersie! Ersie!" Mudrich burst in, tail wagging. She bounced up to Ersie and hugged her.
 
-"Muddy! I'm dirty!"
+"Muddy! I'm dirty!" Ersie pushed her sister away.
 
-Mudrich pulled her hands off her and looked at them. They had little oil splotches all over. She shrugged. "What's the big deal?"
+Mudrich pulled her hands off her and looked at them. They had little oil splotches all over from where she touched Ersie’s fur. She shrugged. "What's the big deal?"
 
 Ersie giggled. "Of course *you* wouldn't mind."
 
-"Nope! Not me! But hey Ersie! Ersie!" Mudrich bounced up and down. Her chest floof jiggled. Her wagging tail knocked an empty can over.
+"Nope! Not me! But hey Ersie! Ersie!" Mudrich bounced up and down, jostling her fur excitedly. Her wagging tail knocked an empty can over.
 
 "What? What?" Ersie set down her tools.
 
@@ -536,7 +538,7 @@ Mudrich side-eyed her. "You… didn't work on it yet, did you?"
 
 Ersie set it down. "No, I've been…" Ersie twirled a screwdriver. "…sidetracked. Wanna see?"
 
-"Ok!" Mudrich jumped to the counter and peeked up over the edge. "Oh! The boooots!"
+"Ok!" Mudrich jumped to the counter and propped her elbows on it, not minding the new dirt on the counter. "Oh! The boooots!"
 
 "Yeah! Aren't these cool?"
 
@@ -548,39 +550,39 @@ Ersie set it down. "No, I've been…" Ersie twirled a screwdriver. "…sidetrack
 
 "What, you wouldn't turn into a cat to wear these?" Ersie bumped her.
 
-"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Everytime I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They got good loot." She grabbed the cart, and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
+"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Everytime I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They got good loot." She grabbed the cart and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
 
 "Whoa! How are you doing that?" Ersie dropped her tools.
 
-"It's these cuffs!" Mudrich set the cart down to put the other cuff on. "I can lift anything with ease!" She grabbed Ersie by the tail and lifted. Ersie's tail moved up, but the rest of her didn't. She tried pulling it up further.
+"It's these cuffs!" Mudrich set the cart down to put the other cuff on. "I can lift anything, easy!" She grabbed Ersie by the tail and lifted. Ersie's tail moved up, but the rest of her didn't. She tried pulling it up further.
 
 Ersie gave her a look.
 
 Mudrich gently put her tail back down. An awkward moment passed. Then they both laughed.
 
-"These are so cool!" Mudrich blurted out. "With these, I can swing my hammer with ease!" She mimed swinging a hammer, then pounded her fist on an empty can, crushing it flat. "Who needs armor?"
+"These are so cool!" Mudrich blurted out. She mimed swinging a hammer, then pounded her fist on an empty can, crushing it flat. "When you got super strength, who needs armor?"
 
 "Not you!" Ersie laughed.
 
-"I can lift so much with these! I wonder…" Mudrich ran to the door and put her hands on its under side.
+"I wonder…" Mudrich ran to the door and put her hands on its under side.
 
 "Mudrich…?" Ersie warned.
 
-Mudrich squatted and put power into lifting the door. So far it didn't move.
+Mudrich squatted and put power into lifting the door. So far it didn't move, but the door threatened to splinter and the hinges twisted.
 
-"Mudrich!" Ersie leapt across the room.
+"Mudrich!" Ersie leapt across the room. But she was too late.
 
-The door came off its hinges, and then floated around effortlessly. "Oops."
+The hinges buckled and snapped, freeing the door from the wall. Mudrich waved the door around effortlessly. "Oops."
 
 "Mudrich!" Ersie sighed. "What are you doing?"
 
-"Ok, apparently you can't lift buildings." Mudrich leaned the door against the wall. "But hey! These'll make carrying new loot home a lot easier!"
+"Ok, apparently you can't lift buildings." Mudrich gingerly leaned the door against the wall. "But hey!” She flexed to show off the cuffs. “These'll make carrying new loot home a lot easier!"
 
-Ersie fished through her shelves for a new door hinge and bolts. She leaned over the counter and sighed.
+“Yeah…” Ersie pulled a wooden box of knick-knacks off a shelf and fished through it. She leaned over the counter and sighed.
 
 "Ersie?" Mudrich tapped her on the shoulder.
 
-"I'm out of hinges, bolts, *and* screws."
+Ersie quickly put the box back on the shelf. "I'm out of hinges, bolts, *and* screws."
 
 "Oh. No problem!" Mudrich ran to the door. "I'll go the blacksmith's and get those for you!"
 
@@ -592,81 +594,93 @@ And with that, Ersie was alone with the boots again. Finally.
 
 She went at them for round two. Polishing, dusting, oiling, everything was on the table. When she was done, she could see a faint blue glimmer shine among the glorious red and gold. She sat them under the window to admire them under the setting sun.
 
-From this angle, she could analyze its parts. It was shaped like a thick hind leg of a cat, but at the bottom, it had a steel plate that attached to the underside of the boot via springs and a piston. The underside of the plate held remnants of some kind of material that had since decayed. Straight gears and round gears worked in unison to let the boot slide forward and backward on the plate. A pulley system with a missing string could have potentially wound from a winch in the front, up the sides, and into a pull string at the lip of the boot. Two latches sealed the boot together, and widened the mouth of the boot when sprung open. The golden trim stretched from the circular lip of the boot, down the underside, and pulled up over the top for the toe protector.
+From this angle, she could analyze its parts. It was shaped like a thick hind leg of a cat, but at the bottom, it had a steel plate that attached to the underside of the boot via springs and a piston. The underside of the plate held remnants of some kind of material that had since decayed. Straight gears and round gears worked in unison to let the boot slide forward and backward on the plate. A pulley system with a missing string could have potentially wound from a winch in the front, up the sides, and into a pull string at the lip of the boot. Two latches sealed the boot together and widened the mouth of the boot when sprung open. The golden trim stretched from the circular lip of the boot, down the underside, and pulled up over the top for the toe protector.
 
 Ersie leaned on the counter and looked up at her prize through dreamy eyes. How would she look in them? Probably better than Lemilay would. She thought that they might be an heirloom. What powers might they possess? Water walking? Swift speed? Wall climbing?
 
-Ersie noticed a tension bolt on the heel. She focused in on it. It had gears on its head, that moved two gold-plated straight gears open or closed around the heel. She played with it, and noted that they indeed changed the size of the boot, to a limited degree.
+Ersie focused in on a tension bolt on the back of the heel. It had gears on its head, that moved two gold-plated straight gears open or closed around the heel. Her handy screwdriver helped her turn it counter-clockwise. The boots seemed to fold in and get thinner. When she turned the bolt clockwise, the boots widened, to a limited degree.
 
-"It might be enough!" Ersie jumped up and clasped her hands. "It's worth a shot!" She adjusted the tension bolt to its widest setting and placed the boots on the ground. She laid a rag on the ground and wiped her dirty bare wolf paws on it. One by one, she wiped them cleaned and placed them gingerly into the boots. She held on to the counter and the cart to hoist herself up. This time, her paws slipped further, deeper into the boots. But alas, they still didn't fit.
+"That might be enough!" Ersie jumped up and clasped her hands. "It's worth a shot!" She adjusted the tension bolt to its widest setting and placed the boots on the ground. She laid a rag on the ground and wiped her dirty bare wolf paws on it. One by one, she wiped them cleaned and placed them gingerly into the boots. She held on to the counter and the cart to hoist herself up. This time, her paws slipped further, deeper into the boots. But alas, they still didn't fit.
 
 "Grrrr…" Ersie growled. "I wish I was a cat right now, then I would be able to fit into these boots."
 
-And just like that, a magic spell washed over Ersie, as if she had said the magic words to make her wish come true. It started in her feet. Her arch grew and her toes shortened and twisted into a new form. The transformation felt strangely like a rubber band being released. Whatever was happening down there, it made her feet slide right into the boots.
+And just like that, a magic spell washed over Ersie, as if she had said the magic words to make her wish come true. It started in her feet. Her arch grew and her toes shortened and twisted into a new form. The transformation felt strangely like a rubber band being released. Whatever was happening, it made her feet slide right into the boots.
 
-"Whoa." Ersatzica steadied herself. Her balance was a bit thrown off. "Magic boots? Yeah. I'll say." She pushed herself upright and tried to balance. She stiffened her wolf tail straight out and outstretched her arms. She took a deep breath. "Ok, the first step is always the hardest." She lifted one foot, lifting the boot with it. She put it back down. So far so good. She lifted her foot again, this time to take an actual step. But at that moment, her tail decided to warp and twist, grow longer and thinner, and throw her off balance. "Whoa!" She landed on her knees and palms.
+"Whoa." Ersatzica steadied herself. Her balance was a bit thrown off. "Magic boots? Yeah. I'll say." She pushed herself upright and tried to balance on her two feet. She stiffened her wolf tail straight out and outstretched her arms. She took a deep breath. "Ok, the first step is always the hardest." She lifted one foot, lifting the boot with it. She put it back down. So far so good. Tiny step, but good. Stripes of orange fur crept up her leg above her knee. She lifted her foot again, this time to take a bigger step. But at that moment, her tail decided to warp and twist, growing longer and thinner, and throwing her off balance. "Whoa!" She landed on her knees and palms.
 
-The impact snapped the latches shut. She got back up to balance again, trying to ignore the twisted feeling creeping up her thighs. She mouthed, "ok, I got this," but no sound came out. She spoke silently. She grabbed her muzzle and touched her tongue. They were both still there and intact. She blew on her hands. Cool air flowed across her furry paws. It all seemed to work normally, but no sound came out. She lifted a foot up and stomped. Still no sound. She grabbed her wolf ears. They were still there, perked up like usual. She stomped her foot several times. Nothing. She reached for a screwdriver and tapped it on the counter. Nothing. Not even a little ping.
+*KLING!* The latches hit the bricks lining the floor.
+
+“Oh no!” Ersie examined the latches. They had tiny scratches in them, but they still moved like normal. “Phew! Ok, in case I fall again, I better latch these boots shut.”
+
+She snapped shut the most dinged up latch first. The room seemed to suddenly get quieter. One by one, she clasped the other three latches. She got back up to her feet, trying to ignore the twisted feeling creeping up her thighs.
+
+"Ok, I got this," she mouthed, but no sound came out. She spoke silently. What? That’s weird… She grabbed her muzzle and touched her tongue. They were both still there and intact. She blew on her hands. Cool air flowed across her furry paws. It all seemed to work normally, but no sound came out. She lifted a foot up and stomped. Still no sound. She grabbed her wolf ears. They were still there, perked up like usual. She stomped her foot several times. Nothing. She reached for a screwdriver and tapped it on the counter. Nothing. Not even a little ping.
 
 Her breathing increased in speed. She reached for anything. Nothing she picked up or slammed made any noise. Was she going deaf? Were these boots cursed?
 
-SLAM! The wind came through and knocked the unhinged door to the ground. It was the first noise Ersie had heard in what felt like an eternity. She picked up a screwdriver and dropped it on the ground. PING! She breathed a silent sigh of relief.
+SLAM! The wind came through and knocked the unhinged door to the ground. It was the first noise Ersie had heard in what felt like an eternity. So, the door can still make noise. Why can’t Ersie? She picked up a screwdriver and tossed it at the door. PING! It bounced off the door and under a table. She breathed a silent sigh of relief.
 
-By now the tingling sensation had progressed up her legs, waist, and to her belly button. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
+By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
 
-A sharp pain arced up her back. Instead of transforming the fur, her old fur was peeling off! Her black fur on her back draped over her back like a jacket, and underneath was more orange-striped fur. She tried pulling it off, hoping to rip it off like a bandaid. No such luck; it moved at its own pace. She wanted to scream, but no one would hear. No one would hear. She screamed as loud as she could. She didn't make a single sound, but letting it out gave her a modicum of comfort. Her back skin hung over her shoulder like a cape, flapping in the breeze.
+This was a bit more than expected. She had hoped that her feet would transform so she could fit in the boots. But how could she be dense? Of course the transformation would cover her whole body. At least the transformation is mildly ticklish. It could be worse.
 
-Luckily, the transformation remained somewhat pleasant in her front, sweeping over her belly, chest floof, and clavicle. Her white areas remained white, but her black areas became orange. It rolled over her shoulders and down her arms. It relocated her elbows and wrist joints. It spread over her hands and into her fingers, painting them all orange. Her fingers cracked and stretched into new forms. The third joint on all her fingers and both her thumbs snapped backward, and long, sharp claws protruded out of her once-sanded finger claws. The third digit disappeared into the fur on the back of her hand. She looked intently at it, wondering where it went, and how it hid so easily. The sensation in her fingers was similar to that in her toes.
+A sharp pain arced up her back. Instead of transforming the fur, her old fur was peeling off! Her black fur on her back draped over her back like a jacket, and underneath was more orange-striped fur. She tried pulling it off, hoping to rip it off like a bandage. No such luck: it moved at its own pace. She wanted to scream, but no one would hear. No one would hear! She screamed as loud as she could. No one heard. In the middle of her workshop, in the middle of the village, she screamed as loud as she could, but she didn't make a single sound. Still, letting it all out gave her a modicum of comfort, as her back skin hung over her shoulder like a cape, flapping in the breeze.
 
-The transformation strangled her at the neck. The back of her neck peeled off in an increasingly painful separation, pulling the skin tight around her throat. She grabbed her throat, but nothing she did helped. It was hard to get a grip with only two finger ligaments. But it, too, soon passed. She took a deep breath.
+Luckily, the transformation remained somewhat pleasant in her front, sweeping over her belly, chest floof, and clavicle. Her white areas remained white, but her black areas became orange. It rolled over her shoulders and down her arms. It relocated her elbows and wrist joints. It spread over her hands and into her fingers, painting them all orange. Her fingers cracked and stretched into new forms. The third joint on all her fingers and both her thumbs snapped backward, and long, sharp claws protruded out of her once-trimmed finger claws. The third digit disappeared into the fur on the back of her hand. She looked intently at it, wondering where it went, and how it hid so easily. The sensation in her fingers was similar to that in her toes.
+
+The transformation strangled her at the neck. The back of her neck peeled off in an increasingly painful separation, pulling the skin tight around her throat. She clawed at her throat, but nothing she did helped. It was hard to get a grip with only two finger ligaments. But it, too, soon passed. She took a deep breath. That hurt. But that’s the worst of it, right? Surely it can’t get worse? But it continued.
 
 Her facial expression contorted as it peeled off her face like plastic wrap. Her cheeks wrinkled and softened, and her ears stretched as they resisted departing from the outer skin. The transformation reached into her eye sockets and threatened to pull them out, too. Luckily it subsided around the eyes, and settled for restructuring the eyes as they were in place. Her vision went blurry, and then dark, and then she could see again, but the world was slightly lighter than it was before. Everywhere she looked, a strange glow illuminated what she was focusing on, even as the sun went down.
 
-The transformation crept across her muzzle. Her skull snapped toward her face, shortening her muzzle, squishing her teeth together, and contracting her tongue. She stuck her tongue out. It didn't go as far as it did before.
+The transformation crept across her muzzle. Her skull snapped toward her face, shortening her muzzle, squishing her teeth together, and contracting her tongue. She stuck her tongue out. It didn't go as far as it did before. She licked her lips. Her tongue was oddly… spiky?
 
 Finally, as her old skin peeled off her nose, the transformation ended. Her old skin hung over her new face like a greasy rag. She shook violently, trying to shake off the old skin. It didn't work. For some reason, the water-shaking move she was so accustomed to using failed. She carefully lifted the old skin by the nose and flung it over her head. It landed on the floor behind her with a soft thud.
 
-"Ok, now that that's over," Ersie mouthed to herself. "Let's test this out." She walked up and down the workshop, around various obstacles, and then finally jumped in the air. She barely landed back on her feet. Taking a moment to balance, she righted herself. "Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When the last latch was unbuckled, she could hear her heart pounding in her chest.
+"Ok, now that that's over," Ersie mouthed to herself. "Let's test this out." She walked up and down the workshop, and around various obstacles. Not surprisingly, it was easier to balance once her form stopped changing. It was finally time for the jump test. She jumped in the air. She barely landed back on her feet. Taking a moment to balance, she righted herself. "Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When the last latch was unbuckled, she could hear her heart pounding in her chest.
 
 She let out an audible sigh. "Finally! It was rather suffocating not being able to make noise."
 
-She pushed the first boot off when a familiar set of footsteps made their way to the door, now lit by moonlight.
+She was just about to push the first boot off when a familiar set of footsteps made their way to the door, now lit by moonlight.
 
 "Ersie!" Mudrich knocked on the doorway, glancing at the door laying on the floor. "I didn't get the supplies, but the blacksmith says he's working on it, and will have it ready by…" She squinted into the workshop, trying to see Ersie better in the dim light.
 
-Ersie closed the window blinds. "That's great, Muddy, thank you," Ersatzica spoke the words with an unknown pitch. She covered her eyes, and cowered further into the corner she sat in.
+Ersie closed the window blinds. Her corner of the room fell into darkness, concealing her current form. "That's great, Muddy, thank you," Ersatzica spoke the words with an unknown pitch. She covered her eyes, turned her back to Muddy, and cowered further into the corner she sat in.
 
 "Ersie, is that you?" Mudrich cautiously approached.
 
-"Of course it is, Mu-uh-udrich!" Ersatizca gulped, and stuffed a rag into her mouth.
+"Of course it is, Mu-uh-udrich!" Ersatizca gulped and clapped a hand over her mouth.
 
 "Are you ok?"
 
 "Mmhmm!"
 
-"You don't sound like yourself!" Mudrich stepped into the workshop.
+"You don't sound like yourself!" Mudrich stepped into the workshop. She sniffed the air. Her fur pricked in alarm.
 
-Ersatzica unragged herself briefly. "I… uh… put the boots on… and they… changed my voice…"
+Ersatzica whispered through her hand. "I… uh… put the boots on… and they… changed my voice…"
 
-"Voice changing boots, huh?" Mudrich shrugged. "I guess I've seen weirder. Kind of a disappointing heirloom for a pair of boots though…"
+"Voice changing boots, huh?" Mudrich shrugged. Her nose led her through the doorway into the room. "I guess I've seen weirder. Kind of a disappointing heirloom for a pair of boots though…"
 
 "Yeah…" Ersatzica chuckled. "Disappointing… boots."
 
-Mudrich approached.
+Mudrich approached. A low growl formed in her throat. “Do you smell that?”
 
 Ersatzica swallowed. "Hey, um, Mudrich?"
 
-"Yes?"
+"Yeah?"
 
 "I've… got something to finish up here. Why don't you go back to our quarters. I'll meet you there, ok?"
 
-Mudrich squinted at Ersatzica. The light was still too dim for her to see clearly. "You sure you're alright? You're acting weird."
+Mudrich squinted at Ersatzica’s silhouette in the corner. The light was still too dim for her to see clearly. "You sure you're alright? You're acting weird."
 
 "Yeah, yeah, I'm fine," Ersatzica coughed. "Just gotta tidy up my workspace."
 
-Mudrich glanced at the piles and piles of things on all the worktables in the room, then back at Esatzica. "Ok, see you there." And with that, Mudrich left.
+Mudrich glanced at the piles and piles of things on all the worktables in the room, then back at Esatzica. "Ok, see you there." Mudrich meandered outside, but then poked her head back in. “By the way, do you smell a cat?”
 
-Ersatzica breathed a sigh of relief. "Ok, now time to take these boots off and go back to wolf form." She slipped the first boot off. It silently fell to the floor. "Cat form was fun and all, and perhaps… mildly useful." She slipped the second boot off. "It feels… kind of good actually…" Ersatzica shook her head. "No, no, no. It's a cat form. It feels unnatural." She nodded with a grunt. "I'm ready to go back to wolf form!"
+“Um… cat?” Ersatzica sniffed the air. “Oh yeah! That… that…” Ersatzica looked down at her feet. “…is from the boots.”
+
+“Oh right.” Mudrich tapped the door that laid on the ground. “Ok, see you at the barracks!” She ran off.
+
+Ersatzica breathed a sigh of relief. "Ok, now time to take these boots off and go back to wolf form." She slipped the first boot off. It silently fell to the floor. "Cat form was fun and all, and perhaps… mildly useful." She slipped the second boot off. "It feels… kind of good actually?" Ersatzica shook her head. "No, no, no. It's a cat form. It feels unnatural." She nodded with a grunt. "I'm ready to go back to wolf form!"
 
 She winced. A moment passed. And another. She looked down. The boots laid on the cold floor, which greeted her cat paws with a pleasant chill. Her slender tail flicked anxiously side to side. Her cat hands felt safe, knuckles neatly tucked away. Her ears pricked in a familiar fashion. Her vision was unobstructed by her formerly large muzzle. She was still a cat.
 
