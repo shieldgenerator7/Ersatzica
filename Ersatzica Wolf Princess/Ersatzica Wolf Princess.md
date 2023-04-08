@@ -478,7 +478,7 @@ In one corner, a muddy-wheeled cart leaned up against a table. Inside, among oth
 
 Ersie bounced up and down. "It's here!" She wiped her hands on a rag real quick and reached down to pick up the boots. She took them to the window to get a good look.
 
-They had an immensely ornate design plated in gold and red. Its magnificence was apparent despite the wear and tear on it. Mud squeezed into all its nooks and crannies, and fell off in flakes and particles when Ersie flexed them. She put one on the ground and slipped a canine paw in. It went in a ways, but got stuck. Her wolf anatomy didn't mesh well with the boots.
+They had an immensely ornate design plated in gold and red. Its magnificence was apparent despite the wear and tear on it. Mud squeezed into all its nooks and crannies, and fell off in flakes and particles where Ersie flexed them. She put one on the ground and slipped a canine paw in. It went in a ways, but got stuck. Her wolf anatomy didn't mesh well with the boots.
 
 "Of course!" Ersie slapped her forehead. "It's made specifically for cats."
 
@@ -498,7 +498,7 @@ Wryonin side-eyed her. "Ok, don't dawdle too long."
 
 "Don't worry."
 
-"Ok." Wryonin left.
+"Alright." Wryonin left.
 
 "See you soon." She waved goodbye.
 
@@ -576,7 +576,7 @@ The hinges buckled and snapped, freeing the door from the wall. Mudrich waved th
 
 "Mudrich!" Ersie sighed. "What are you doing?"
 
-"Ok, apparently you can't lift buildings." Mudrich gingerly leaned the door against the wall. "But hey!” She flexed to show off the cuffs. “These'll make carrying new loot home a lot easier!"
+"Ok, apparently you can't lift buildings." Mudrich gingerly leaned the door against the wall. "But hey!” She flexed to show off the cuffs. “These'll make carrying new loot home a whole lot easier!"
 
 “Yeah…” Ersie pulled a wooden box of knick-knacks off a shelf and fished through it. She leaned over the counter and sighed.
 
@@ -600,13 +600,13 @@ Ersie leaned on the counter and looked up at her prize through dreamy eyes. How 
 
 Ersie focused in on a tension bolt on the back of the heel. It had gears on its head, that moved two gold-plated straight gears open or closed around the heel. Her handy screwdriver helped her turn it counter-clockwise. The boots seemed to fold in and get thinner. When she turned the bolt clockwise, the boots widened, to a limited degree.
 
-"That might be enough!" Ersie jumped up and clasped her hands. "It's worth a shot!" She adjusted the tension bolt to its widest setting and placed the boots on the ground. She laid a rag on the ground and wiped her dirty bare wolf paws on it. One by one, she wiped them cleaned and placed them gingerly into the boots. She held on to the counter and the cart to hoist herself up. This time, her paws slipped further, deeper into the boots. But alas, they still didn't fit.
+"That might be enough!" Ersie jumped up and clasped her hands. "It's worth a shot!" She adjusted the tension bolt to its widest setting and placed the boots on the ground. She laid a rag on the ground and wiped her dirty bare wolf paws on it. One by one, she wiped them clean and placed them gingerly into the boots. She held on to the counter and the cart to hoist herself up. This time, her paws slipped further, deeper into the boots. But alas, they still didn't fit.
 
 "Grrrr…" Ersie growled. "I wish I was a cat right now, then I would be able to fit into these boots."
 
 And just like that, a magic spell washed over Ersie, as if she had said the magic words to make her wish come true. It started in her feet. Her arch grew and her toes shortened and twisted into a new form. The transformation felt strangely like a rubber band being released. Whatever was happening, it made her feet slide right into the boots.
 
-"Whoa." Ersatzica steadied herself. Her balance was a bit thrown off. "Magic boots? Yeah. I'll say." She pushed herself upright and tried to balance on her two feet. She stiffened her wolf tail straight out and outstretched her arms. She took a deep breath. "Ok, the first step is always the hardest." She lifted one foot, lifting the boot with it. She put it back down. So far so good. Tiny step, but good. Stripes of orange fur crept up her leg above her knee. She lifted her foot again, this time to take a bigger step. But at that moment, her tail decided to warp and twist, growing longer and thinner, and throwing her off balance. "Whoa!" She landed on her knees and palms.
+"Whoa." Ersatzica steadied herself. Her balance was a bit thrown off. "Magic boots? Yeah. I'll say." She pushed herself upright and tried to balance on her two feet. She stiffened her wolf tail straight out and outstretched her arms. She took a deep breath. "Ok, the first step is always the hardest." She lifted one foot, lifting the boot with it. She put it back down. So far so good. Tiny step, but good. Stripes of orange fur crept up her leg above her knee. She lifted her foot again, this time taking a bigger step. But at that moment, her tail decided to warp and twist, growing longer and thinner, and throwing her off balance. "Whoa!" She landed on her knees and palms.
 
 *KLING!* The latches hit the bricks lining the floor.
 
@@ -614,15 +614,15 @@ And just like that, a magic spell washed over Ersie, as if she had said the magi
 
 She snapped shut the most dinged up latch first. The room seemed to suddenly get quieter. One by one, she clasped the other three latches. She got back up to her feet, trying to ignore the twisted feeling creeping up her thighs.
 
-"Ok, I got this," she mouthed, but no sound came out. She spoke silently. What? That’s weird… She grabbed her muzzle and touched her tongue. They were both still there and intact. She blew on her hands. Cool air flowed across her furry paws. It all seemed to work normally, but no sound came out. She lifted a foot up and stomped. Still no sound. She grabbed her wolf ears. They were still there, perked up like usual. She stomped her foot several times. Nothing. She reached for a screwdriver and tapped it on the counter. Nothing. Not even a little ping.
+"Ok, I got this," she mouthed, but no sound came out. She spoke silently. What? That’s weird… She grabbed her muzzle and touched her tongue. They were both still there and intact. She blew on her hands. Cool air flowed across her furry paws. It all seemed to work normally, but no sound came out. She lifted a foot up and stomped. Still no sound. She grabbed her wolf ears. They were still there, perked up like usual. She stomped her feet several times. Nothing. She reached for a screwdriver and tapped it on the counter. Nothing. Not even a little ping.
 
-Her breathing increased in speed. She reached for anything. Nothing she picked up or slammed made any noise. Was she going deaf? Were these boots cursed?
+Her breathing increased in speed. She reached for anything. Nothing she picked up or slammed made any noise. Was she going deaf? Were the boots cursed?
 
 SLAM! The wind came through and knocked the unhinged door to the ground. It was the first noise Ersie had heard in what felt like an eternity. So, the door can still make noise. Why can’t Ersie? She picked up a screwdriver and tossed it at the door. PING! It bounced off the door and under a table. She breathed a silent sigh of relief.
 
 By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
 
-This was a bit more than expected. She had hoped that her feet would transform so she could fit in the boots. But how could she be dense? Of course the transformation would cover her whole body. At least the transformation is mildly ticklish. It could be worse.
+This was a bit more than expected. She had hoped that her feet would transform so she could fit in the boots. But how could she be so dense? Of course the transformation would cover her whole body. At least the transformation is only mildly ticklish. It could be worse.
 
 A sharp pain arced up her back. Instead of transforming the fur, her old fur was peeling off! Her black fur on her back draped over her back like a jacket, and underneath was more orange-striped fur. She tried pulling it off, hoping to rip it off like a bandage. No such luck: it moved at its own pace. She wanted to scream, but no one would hear. No one would hear! She screamed as loud as she could. No one heard. In the middle of her workshop, in the middle of the village, she screamed as loud as she could, but she didn't make a single sound. Still, letting it all out gave her a modicum of comfort, as her back skin hung over her shoulder like a cape, flapping in the breeze.
 
@@ -636,7 +636,9 @@ The transformation crept across her muzzle. Her skull snapped toward her face, s
 
 Finally, as her old skin peeled off her nose, the transformation ended. Her old skin hung over her new face like a greasy rag. She shook violently, trying to shake off the old skin. It didn't work. For some reason, the water-shaking move she was so accustomed to using failed. She carefully lifted the old skin by the nose and flung it over her head. It landed on the floor behind her with a soft thud.
 
-"Ok, now that that's over," Ersie mouthed to herself. "Let's test this out." She walked up and down the workshop, and around various obstacles. Not surprisingly, it was easier to balance once her form stopped changing. It was finally time for the jump test. She jumped in the air. She barely landed back on her feet. Taking a moment to balance, she righted herself. "Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When the last latch was unbuckled, she could hear her heart pounding in her chest.
+"Ok, now that that's over," Ersie mouthed to herself. "Let's test this out." She walked up and down the workshop, and around various obstacles. Not surprisingly, it was easier to balance once her form stopped changing. It was finally time for the jump test. She jumped in the air. She barely landed back on her feet. Taking a moment to balance, she righted herself.
+
+"Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When the last latch was unbuckled, she could hear her heart pounding in her chest.
 
 She let out an audible sigh. "Finally! It was rather suffocating not being able to make noise."
 
@@ -674,13 +676,13 @@ Mudrich squinted at Ersatzica’s silhouette in the corner. The light was still 
 
 "Yeah, yeah, I'm fine," Ersatzica coughed. "Just gotta tidy up my workspace."
 
-Mudrich glanced at the piles and piles of things on all the worktables in the room, then back at Esatzica. "Ok, see you there." Mudrich meandered outside, but then poked her head back in. “By the way, do you smell a cat?”
+Mudrich glanced at the piles and piles of things on all the worktables in the room, then back at Ersatzica. "Ok, see you there." Mudrich meandered outside, but then poked her head back in. “By the way, do you smell a cat?”
 
 “Um… cat?” Ersatzica sniffed the air. “Oh yeah! That… that…” Ersatzica looked down at her feet. “…is from the boots.”
 
 “Oh right.” Mudrich tapped the door that laid on the ground. “Ok, see you at the barracks!” She ran off.
 
-Ersatzica breathed a sigh of relief. "Ok, now time to take these boots off and go back to wolf form." She slipped the first boot off. It silently fell to the floor. "Cat form was fun and all, and perhaps… mildly useful." She slipped the second boot off. "It feels… kind of good actually?" Ersatzica shook her head. "No, no, no. It's a cat form. It feels unnatural." She nodded with a grunt. "I'm ready to go back to wolf form!"
+Ersatzica breathed a sigh of relief. "Ok, now time to take off these boots and get back to wolf form." She slipped the first boot off. It silently fell to the floor. "Cat form was fun and all, and perhaps… mildly useful." She slipped the second boot off. "It feels… kind of good actually?" Ersatzica shook her head. "No, no, no. It's a cat form. It feels unnatural." She nodded with a grunt. "I'm ready to go back to wolf form!"
 
 She winced. A moment passed. And another. She looked down. The boots laid on the cold floor, which greeted her cat paws with a pleasant chill. Her slender tail flicked anxiously side to side. Her cat hands felt safe, knuckles neatly tucked away. Her ears pricked in a familiar fashion. Her vision was unobstructed by her formerly large muzzle. She was still a cat.
 
