@@ -1,6 +1,6 @@
-Ersatzica Wolf Princess
+# Ersatzica Wolf Princess
 
-# Prologue – Revenge
+Prologue – Revenge
 
 <https://youtu.be/OykiLWjpOzY>
 
