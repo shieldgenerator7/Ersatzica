@@ -1,0 +1,57 @@
+[
+    {
+        "name": "Ersatzica",
+        "nicknames": ["Ersie"],
+        "species": "Wolf",
+        "fur": "black and white",
+        "gender": "Female",
+        "age": "16",
+        "description": "Curious young wolf who likes to tinker. Invents things and repairs things."
+    },
+    {
+        "name": "Mudrich",
+        "nicknames": ["Muddy"],
+        "species": "Wolf",
+        "fur": "all white",
+        "gender": "Female",
+        "age": "16",
+        "description": "Fun-loving young wolf whose favorite pasttime is smashing cats."
+    },
+    {
+        "name": "Wryonin",
+        "nicknames": ["Wry"],
+        "species": "Wolf",
+        "fur": "blue-grey and white",
+        "gender": "Male",
+        "age": "16",
+        "description": "Responsible young wolf who looks after his siblings."
+    },
+    {
+        "name": "Lemilay",
+        "nicknames": ["Lem"],
+        "species": "Wolf",
+        "fur": "grey, tan, and white",
+        "gender": "Female",
+        "age": "16",
+        "description": "Bossy young wolf who believes she deserves to be next-in-line for chieftess.",
+        "species gift": "Hindsight: The bald spot on her head glows, letting her see into the past."
+    },
+    {
+        "name": "Awoomoon",
+        "nicknames": ["Mother"],
+        "species": "Wolf",
+        "fur": "blue-grey and white",
+        "gender": "Female",
+        "age": "37",
+        "description": "Chieftess of the Wolf Village. Mother of Ersatzica, Mudrich, Wryonin, and Lemilay."
+    },
+    {
+        "name": "Fisher",
+        "nicknames": ["Fish"],
+        "species": "Cat",
+        "fur": "black and white",
+        "gender": "Male",
+        "age": "17",
+        "description": "Chill young cat who just wants to relax."
+    }
+]
