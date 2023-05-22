@@ -1,4 +1,4 @@
-# *Ersatzica Wolf Princess*
+Ersatzica Wolf Princess
 
 # Prologue – Revenge
 
