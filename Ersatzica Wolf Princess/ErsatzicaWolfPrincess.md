@@ -2200,9 +2200,9 @@ The next day, Mother met them at the mess hall. She was accompanied by the carpe
 
 The carpenter rolled out the paper onto the empty table.
 
-“Hi, Uncle Onrent.” Ersatzica waved subtly.
+“Hi, Uncle Orent.” Ersatzica waved subtly.
 
-“Hi, Ersie.” Uncle Onrent waved back.
+“Hi, Ersie.” Uncle Orent waved back.
 
 Mother pointed to the paper. It was a map of their village and the surrounding area. “We’re building lookout spots along the river. These posts will also act as first defenses against the cat invasion. Each of these red dots along the river is a position of a lookout post. Your task is to build one of these lookout posts. Choose one and mark your name next to it.”
 
@@ -2242,13 +2242,13 @@ Mother grumbled.
 
 “You said we’re building a lookout post. Is there a schematic?”
 
-“I thought you might like to see one.” Uncle Onrent produced another large piece of paper. “This is the standard one we’re building all along the river.”
+“I thought you might like to see one.” Uncle Orent produced another large piece of paper. “This is the standard one we’re building all along the river.”
 
 “But you don’t have to use this for yours.” Mother added.
 
 Ersatzica poured over it. “What’s the scale on this?”
 
-“Oh, I don’t have it on there?” Uncle Onrent wrote it in a corner. “Just made this up last night. Hopefully it’s a good design.”
+“Oh, I don’t have it on there?” Uncle Orent wrote it in a corner. “Just made this up last night. Hopefully it’s a good design.”
 
 The design was obviously copied from the schematics for an outhouse, but the door was removed, rectangular slit windows were added, and it was topped with a candle holder.
 
@@ -2280,7 +2280,7 @@ Ersatzica pointed to a spot between two dots where she knew the boulder to be.
 
 Ersatzica giggled giddily. “Thank you, Mother. I’ll get started on this right away.” She ran off to her workshop. This was totally something should could do. And it was a perfect excuse to go to the boulder, at any time, and stay as long as she wanted.
 
-She ran into her workshop, kicking the unhinged door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Onrent’s design as a base, and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever that opens it, but then quickly erased it so you couldn’t see it unless you were looking for it.
+She ran into her workshop, kicking the unhinged door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Orent’s design as a base, and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever that opens it, but then quickly erased it so you couldn’t see it unless you were looking for it.
 
 *AWOOO!* “Here!”
 
@@ -2316,7 +2316,7 @@ Ersatzica nodded.
 
 “Very well, I shall be on my way now.” Lemilay walked to the door. “And one more thing, be prepared for me to call on you. Your design skills will come in very handy.” And with that, she left.
 
-Ersatzica pulled her schematic out of the trash can, then put it back in. If she used anything other than Uncle Onrent’s design, Lemilay would know and would sabotage her. She has to find a way to get around Lemilay’s abilities. But how do you hide something from someone who can always be around to witness it after the fact? And can witness it as many times as she pleases? Ersie could cover her design with another paper as she draws it, but then it becomes unreadable to her in the moment. And Lemilay would still be able to find the real version.
+Ersatzica pulled her schematic out of the trash can, then put it back in. If she used anything other than Uncle Orent’s design, Lemilay would know and would sabotage her. She has to find a way to get around Lemilay’s abilities. But how do you hide something from someone who can always be around to witness it after the fact? And can witness it as many times as she pleases? Ersie could cover her design with another paper as she draws it, but then it becomes unreadable to her in the moment. And Lemilay would still be able to find the real version.
 
 Ersatzica leaned her elbows on the counter, and her head in her hands. She cried. What was she doing? All she wanted to do was build a lookout post. But if she did, she would risk losing everything she’s done over the years. All the schematics, all the projects she built, all the memories she has of her workshop. Lemilay didn’t explicitly say what she was going to do, and she never does. But she implied that she would do something horrible to Ersatzica’s work if she didn’t concede. What should she do?
 
