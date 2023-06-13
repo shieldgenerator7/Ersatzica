@@ -700,8 +700,6 @@ A chill ran up her spine as her fur stood up on end. Tensing her shoulders, she 
 
 # Chapter 3 – Wolf Skin
 
-As soon as Ersatzica stepped out of her workshop into the poorly lit night, she knew she made a mistake. Her cat paws, although smaller, pounded loudly on the stone walkway on account of her inexperience with her new form. Several lanterns turned to her direction, scanning eyes searching behind them. She jumped back into the workshop. She would've closed the door, but it was still busted.
-
 "Mudrich would know what to do… but she's already gone to the barracks by now…" Ersatzica whispered to herself, peering out the doorway for an opening. "How do I get to her without being detected?"
 
 She looked around her workshop. A faint light glowed on everything she looked at, making the dark area seem bright. She blinked. She winked. The light seemed to be coming from her eyes. And it flickered off various objects in the room, especially the boots.
@@ -710,7 +708,7 @@ She looked around her workshop. A faint light glowed on everything she looked at
 
 She looked both ways before crossing the doorway. She ran silently into the shadows, avoiding the lantern lights. Not every building had guards 24/7, but there were a fair number of wolves walking around with lanterns winding down for the day. In an hour or so, they would all be gone, leaving only the night guards. But if she didn't show up to the barracks before then, they would start a search party for her, and that would stir up the whole town.
 
-She approached the Grand Barracks, and watched as Mudrich entered through the door to their bedroom. She had just missed her.
+She approached the Grand Barracks, watching as Mudrich entered through the door to their bedroom. She had just missed her.
 
 Inside, Wryonin and Lemilay were sitting impatiently.
 
@@ -720,7 +718,9 @@ Inside, Wryonin and Lemilay were sitting impatiently.
 
 “Where’s Ersatzica?”
 
-“I haven't seen her since this morning." Wryonin mused, staring at the lantern.
+“Oh, she’s coming. She’s at her workshop.”
+
+“Ok, I was getting worried.” Wryonin stared at the lantern. “I haven't seen her since this morning.”
 
 "You didn't see her at training today?" Lemilay glanced at him.
 
@@ -730,15 +730,15 @@ Inside, Wryonin and Lemilay were sitting impatiently.
 
 "Hold on, we can't start bedtime yet, we have to wait for Ersie." Mudrich took off the cuffs and hid them under her pillow.
 
-"Where is she?"
+"Did she say how long she’d be?"
 
-"At her workshop." Mudrich stashed the cuffs under her pillow. "She said she'd be right over. Something about cleaning up a project or something."
+"Well, she said she'd be right over. Something about cleaning up a project or something."
 
 "I've heard that one before," Wryonin groaned.
 
 Ersie walked up to the door and listened in. She held up her hand to knock, but hesitated. She let her hand down. She peeked in through the window. Mudrich was not looking at the window, but Lemilay was. Ersie quickly ducked.
 
-"Did you see that?" Lemilay pointed.
+"Did you see that?" Lemilay’s ears perked.
 
 "No, what?" Wryonin looked at the window.
 
@@ -748,9 +748,9 @@ Ersie walked up to the door and listened in. She held up her hand to knock, but 
 
 Lemilay closed her eyes and her bald spot glowed. She stared intently at the door. Then she jumped to her feet. "There was! There was a cat outside!"
 
-"That doesn't make any sense." Wryonin got up and walked to the door.
+"That doesn't make any sense." Wryonin got up and rushed to the door.
 
-Ersatzica dashed to the side of the building, staying out of sight.
+Ersatzica ducked to the side of the building, staying out of sight.
 
 Lemilay navigated around the side of the building, bald spot still glowing. "The cat came to the door, peeked through the window, and ran over there."
 
@@ -758,7 +758,7 @@ Lemilay navigated around the side of the building, bald spot still glowing. "The
 
 Lemilay rolled her eyes from within her skull. "The cat left footprints next to the puddle." Lemilay pointed down at them.
 
-Wryonin knelt down. There were indeed cat paw prints on the cobblestone next to a small puddle. "Well, I can't deny that. Let's go find that cat!"
+Wryonin knelt down. There were a strange set of boot prints on the cobblestone next to a small puddle. "Well, I don’t know any wolf who wears boots like those.” Wryonin shrugged. “I guess it could be a cat. Which way did it go?”
 
 "Wait, hold on, Wryonin." Lemilay put her hand out to grab Wryonin by the shoulder, but she grabbed the air next to him instead. "Have you ever heard of a single cat invasion? If there's one cat here, there's likely to be more."
 
@@ -780,9 +780,9 @@ Ersatzica unlatched the boots. "Mudrich!" She loud whispered. "Mudrich!"
 
 "Why are you hiding behind a tree? And why is your voice weird?"
 
-"Mudrich I need you to not go berserk, ok?"
+"Mudrich I need you *not* to go berserk, ok?"
 
-"Ok…" Mudrich held up a hand over her eyes, trying to see into the dark better.
+"Ok…" Mudrich peered into the darkness, trying to see behind the tree.
 
 "Remember how I was fixing those boots, and how they were made for cats?"
 
@@ -796,13 +796,13 @@ Ersatzica unlatched the boots. "Mudrich!" She loud whispered. "Mudrich!"
 
 "And I talked about how I would never do that because cats are evil and I like killing them and—"
 
-Ersie reached out and put a paw on Mudrich's mouth. "Yes yes yes, but Muddy,"
+Ersie reached out and put a paw on Mudrich's mouth. "Yes, yes, yes, but Muddy,"
 
-"Hmmm?" Mudrich stared daftly at the cat paw on her mouth.
+"Hmmm?" Mudrich stared daftly at the cat paw on her mouth. She gave it a light sniff and scowled.
 
 "I need your help. You see, I… I put on the boots…"
 
-"Your hand looks weird…" Mudrich squinted in the dark, grabbing Ersie’s paw. "What did you do to it?"
+"Your hand smells weird…" Mudrich squinted in the dark, grabbing Ersie’s paw. "What did you do to it?"
 
 "I turned into a cat."
 
@@ -830,7 +830,11 @@ Ersatzica gave her a look.
 
 "That's the problem, Muddy, I can't!"
 
-"Well if the boots turned you into a cat when you put them on, surely they'll turn you back into a wolf when you take them off." Mudrich pulled the boots off Ersie one at a time. "Any second now."
+"Well if the boots turned you into a cat when you put them on, surely they'll turn you back into a wolf when you take them off."
+
+“Ok.” Ersie leaned up against the tree and lifted her feet one at a time.
+
+Mudrich pulled the unlatched boots off Ersie. "Any second now."
 
 Ersatzica stood on the cobblestone pathway on her digitigrade paws balancing perfectly in front of Mudrich's face. Her orange, white-bottomed cat paws did not become wolf-shaped.
 
@@ -838,7 +842,7 @@ Mudrich frowned. "I guess you tried this already?"
 
 "Yeah and I'm still a cat."
 
-"Ok, well let's go back to your workshop to figure this out. I'm sure there's something there we could use."
+"Ok, well let's get you back to your workshop to figure this out. I'm sure there's something there we could use."
 
 "Ok." Ersie hugged Muddy. "Thanks, Muddy."
 
@@ -936,13 +940,15 @@ Mudrich went to the workshop, and saw her mother. "Mother, what a surprise."
 
 "Well if you see her, can you give her this?" Awoomoon held out the wolf skin. "I think this belongs to her."
 
-"Sure." Mudrich ran back to Ersie.
+"Sure." Mudrich accepted the wolf skin. “I’ll give her back her skin. I’m sure she’s missing it.” She ran back to Ersie.
 
-But before she got there, Lemilay and Wryonin found her.
+But before she got there, Lemilay and Wryonin had found her.
 
 "There it is!" Lemilay pointed.
 
-"It's too dark. I don't see it." Wryonin squinted.
+Ersatzica pulled her long cat tail behind the barrel with her.
+
+"Where? I don't see it." Wryonin squinted.
 
 Ersatzica hid deeper into the corner.
 
@@ -950,17 +956,17 @@ Ersatzica hid deeper into the corner.
 
 "There's no sound coming from there. Are you sure it's there?"
 
-"Yes, I'm sure. Just shoot the barrel, you'll hit it."
+"Yes, I'm sure. Just shoot behind the barrel, you'll hit it."
 
 "Ok, here goes." Wryonin shot his slingshot where Lemilay said. It headed straight for Ersatzica.
 
-Mudrich saw this and was close. She dove in front of the shot and took it full force in her front. She fell onto her back right next to Ersie.
+Mudrich wasted no time reacting. She dove in front of the shot and took it full force in her front. She fell onto her back right next to Ersie.
 
 "Mudrich! What are you doing?" Lemilay yelled.
 
-"Are you ok?"
+"Are you ok?" Wryonin lowered his slingshot.
 
-Mudrich handed the wolf skin to Ersie. "Mother says this is for you," she whispered. Mudrich got up. "Yeah, I'm fine. Did you go easy on that shot?"
+Mudrich handed the wolf skin to Ersie. "Mother says this is for you,” she whispered. Mudrich got up, and addressed Wryonin. "Yeah, I'm fine. Did you go easy on that shot?"
 
 "Get away from there!" Wryonin motioned for her to get back. "There's a cat! Right behind you!"
 
@@ -974,7 +980,7 @@ Mudrich reached up and caught the rock in her hand.
 
 The shadow behind Mudrich reached with its arms and pulled her in close.
 
-"Muddy, thank you so much!" A face revealed itself. It was Ersatzica. It was her wolf face. She squeezed Mudrich from behind.
+"Muddy, thank you so much!" A face revealed itself. It was Ersatzica. It was her wolf face, her wolf fur, and her wolf body. She squeezed Mudrich from behind.
 
 "No problem, Ersie."
 
@@ -991,6 +997,8 @@ Lemilay's ears folded back. "I saw it! You saw it too, didn't you?"
 "No, I was just following you around! In the dark!"
 
 "You saw the footprints!"
+
+“No, they were boot prints.” Wryonin objected.
 
 "Oh yeah, I was testing out these boots." Ersie held up the boots. "They're from the cats."
 
@@ -1012,7 +1020,7 @@ Ersie set the boots down, put her wolf feet into them, and waited.
 
 "Oh, right." Ersatzica extended her arms. "I wish I was a cat."
 
-Ersie's wolf skin immediately ejected off her back and she became a cat again. She lost her balance and fell over backward, but Mudrich caught her fall.
+Ersie's wolf skin immediately detached from her back and she became a cat again. She lost her balance and fell over backward, but Mudrich caught her fall.
 
 "Interesting." Wryonin put away his slingshot. "Let me try."
 
@@ -1036,7 +1044,7 @@ He put them on. "I wish I was a cat." Nothing happened. "I wish I was a cat." St
 
 "Very good. We will need them when the cat invasion starts." She frowned at Wryonin trying to fit into the boots. "Have the boots been fitted for wolves?"
 
-"No, Mother."
+"No, Mother." Ersatzica stated.
 
 Mother laid a hand on Ersatzica. "See to it that they do. This is your top priority."
 
@@ -1046,7 +1054,7 @@ Mother laid a hand on Ersatzica. "See to it that they do. This is your top prior
 
 “Yes, Mother?”
 
-“Do not, under any circumstances, wear the boots again until you have fitted them for wolf feet.” Mother stared straight into Ersie’s eyes with a commanding gaze. “Understand?”
+“Do not, under any circumstances, wear the boots again until you have fitted them for wolf feet.” Mother stared straight into Ersatzica’s eyes with a commanding gaze. “Understand?”
 
 “Yes, Mother.”
 
@@ -1062,7 +1070,7 @@ Mudrich’s ears drooped. "Do I have to?"
 
 "I think these need to be tested a bit more." Wryonin handed the boots back to Ersie. "I don't know what I'm doing wrong, but they're not working."
 
-"Sometimes heirlooms have rules, and maybe you don't fit them?" Lemilay shrugged. She sniffed the night air. “Alright, let’s get to bed.”
+"Perhaps you don’t fit the heirloom’s rules?” Lemilay shrugged. She sniffed the night air. “Alright, let’s get to bed.”
 
 Lemilay led the group back to the barracks. Once inside, Wryonin held up the lantern as the others got into bed.
 
@@ -1086,7 +1094,7 @@ Lemilay gently flapped open her blanket, laid down, and flapped her blanket clos
 
 “I don’t know. I don’t think I’ll like it.” Ersatzica rolled over, turning her back to the light.
 
-“C’mon, Ersie! It’ll be fun to go running with you!”
+“C’mon, Ersie! It’ll be fun going running with you!”
 
 “Yeah, running!” Wryonin stood at the table in the center of the room, hovering the lantern over it.
 
@@ -1104,9 +1112,9 @@ Ersatzica sighed. “Ok, I guess.”
 
 "Ok! It's settled!" Lemilay groaned. "Ersatzica is going to training tomorrow. Get into bed already, Wryonin!"
 
-"Ok." Wryonin whistled happily as he turned off the lantern and climbed into the top bunk. It squeaked and shifted as he climbed up.
+"Ok!" Wryonin whistled happily as he turned off the lantern and climbed into the top bunk. It squeaked and shifted as he climbed up.
 
-“Careful, Wryonin. Ersatzica, you got to fix these bunk beds.”
+“Careful, Wryonin. Ersatzica, you got to fix these bunk beds. They shift too much.”
 
 “I’ll get to it… eventually.”
 
@@ -1118,7 +1126,7 @@ Ersatzica sighed. “Ok, I guess.”
 
 “Goodnight!” They howled back.
 
-The wolf siblings went to sleep, but something was keeping Ersatzica awake. She tossed and turned as she lay in bed. Something felt off. Was it her tail? No, her wolf tail was full and fluffy like usual. She brought it up between her legs and hugged it. Was it her face? She rubbed a paw around her face. No, wasn't that. After laying still for a second, her stomach skin seemed to peel up, like a huge blister. That was it. Something didn't feel right about her skin. It was like she was wearing a sweaty shirt, tightly wrapped around her skin, clinging to it. Must be a lingering effect of the transformation. She'd have to catalogue it as a side effect tomorrow. Now that she knew what it was, she breathed a sigh of relief. She tried to ignore it and go to sleep.
+The wolf siblings went to sleep, but something was keeping Ersatzica awake. She tossed and turned as she lay in bed. Something felt off. Was it her tail? No, her wolf tail was full and fluffy like usual. She brought it up between her legs and hugged it. Was it her face? She rubbed a paw around her face. No, wasn't that. After laying still for a second, her stomach skin seemed to peel up, like a huge blister. She rubbed her belly. It was physically normal, but something didn't feel right about it. It was her skin. It was like she was wearing a sweaty shirt, tightly wrapped around her skin, clinging to it. Must be a lingering effect of the transformation. She'd have to catalogue it as a side effect tomorrow. Now that she knew what it was, she breathed a sigh of relief. She tried to ignore it and go to sleep.
 
 # Chapter 4 - Training
 
