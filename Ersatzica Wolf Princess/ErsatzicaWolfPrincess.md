@@ -68,41 +68,41 @@ Awoomoon laid there, feeding her pups, content amidst the death and war to just 
 
 Pantrinome blinked her green eyes slowly, then collapsed onto the floor without a sound. Her hands fell neatly onto the drums around her chest.
 
-Not long after, another figure ran through the hall to greet the scene in the bedroom.
+Not long after, another figure stomped through the hall to face the scene in the bedroom. She was a big bear with a single snaggle tooth that was currently dripping with blood.
 
-"Oh my coons!" cried the midwife. "Are you alright, my highness?"
+"Oh my tooth!" cried the bear. "Are you alright, Awoomoon?"
 
-"I am, yes, however, we have an emergency on our paws."
+"Medic Lersha, we have an emergency on our paws."
 
 "Is one of your pups sick? Defective?"
 
 "No, but this fallen warrior is pregnant."
 
-"Oh my coons! I'll go get Clounch!"
+"Oh my tooth! Is she alive?"
 
-"There isn't time. Use your knife. You'll have to do it manually."
+"Not for long. We need to save her puppies."
 
-"Oh my! No! Ahhheeew!" the midwife squealed. Nonetheless, she grabbed her knife and reluctantly cut a shallow slit in the feline husk's lower abdomen. Inside, four slimy larvae writhed in pain. They seemed to be trying to make some sort of noise, but it was silent. Not even the knife cutting through the flesh made any sound.
+"Yes, of course.” Medic Lersha pulled out her incisor and widened the hole in the feline husk's lower abdomen. Inside, four slimy larvae writhed in pain. They seemed to be trying to make some sort of noise, but it was silent. Not even the knife cutting through the flesh made any sound.
 
-"Oh, poor babies!" The midwife reached in and fished for a kitten.
+"Oh, poor babies!" Medic Lersha reached in and fished for a kitten.
 
 "Hurry, bring them here, they won't last much longer."
 
-"Oh-" the midwife found one and pulled it out. "This one doesn't seem to be breathing!"
+"Oh no." Medic Lersha found one and pulled it out. "This one doesn't seem to be breathing."
 
 "Give it here."
 
-The midwife handed it to Awoomoon, who grabbed it in her mouth, and rubbed it with her paws.
+Medic Lersha handed it to Awoomoon, who grabbed it in her mouth, and rubbed it with her paws.
 
-"Oh, I don't know anything about birthing felines!" The midwife pulled out another one. "But the prognosis is not good. This one's cold!"
+"I’m not that familiar with the feline birthing process," admitted Medic Lersha as she pulled another one out. "But the prognosis is not good. This one's cold."
 
 "Bring it here," Awoomoon repeated. She took the cold kitten and held it to her chest.
 
-"Ahhh… ooo… Things are looking dire." The midwife pulled out another one, covered in blood.
+"Things are looking dire." Medic Lersha pulled out another one, covered in blood. The burn mark on her right hand lit up, and she placed it on the kitten. The tiny wound it on its side sealed shut.
 
-"Here," Awoomoon held out her hand. Despite the midwife's gentle touch, the kitten landed with a squishy squirt of blood. Awoomoon tore a piece off her cot sheet and wrapped it around the kitten.
+"Here," Awoomoon accepted the kitten.
 
-"How are they doing?" The midwife turned away from the bloody mess on the floor and addressed Awoomoon.
+"How are they doing?" Medic Lersha turned away from the bloody mess on the floor and addressed Awoomoon.
 
 "Where's the fourth one?"
 
@@ -110,23 +110,25 @@ The midwife handed it to Awoomoon, who grabbed it in her mouth, and rubbed it wi
 
 "There's a fourth one in there. Find it."
 
-"Ahhh… ooo…" The midwife tiptoed back to the body and plunged her hand into the bloody pot again. She swished her hand around, squirming as it scraped the edges.
+"Ok.” Medic Lersha’s tooth bled profusely, dripping all over the body. “All I’m sensing is the pain of the cat.”
 
-"Where is it?"
+“Is she still alive?”
+
+Medic Lersha felt for a heartbeat. “Just barely.” She knelt over the dying cat. “I’m sorry, Pantrinome.” Medic Lersha took her knife and stabbed it straight into the cat’s heart. The blood flowing down her tooth slowed to a trickle.
+
+The cat took one last dying breath.
+
+Medic Lersha’s tooth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw, but didn’t find a kitten.
+
+"Where is it?" Awoomoon asked impatiently.
 
 "It's not in here."
 
 "We're running out of time."
 
-"Ahhh… ooo…" She dug around. Suddenly her eyes widened. "There's a hole! There's a hole!" The midwife punched her hand through the hole. A small current blew under the carcass and cooled the wet blood on her hands. Her eyes widened. "We've got to move the body!" She pushed and pushed, but the body was too heavy. She went to unstrap the drums but Pantrinome's hands were resting on them. So she unclasped the boots first.
+Then she found a hole in the backside of the cat. “It’s underneath!” She rolled the cat corpse over to the side. Beneath it, in a puddle of blood, covered in a blanket of guts, laid the fourth and final kitten.
 
-*Bum. Bum. Bum.*
-
-The midwife pulled the boots off one by one. She pushed the cat body over on its side with a great effort and a big breath. Underneath where the body had been, laying in a pool of blood, covered in a blanket of guts, was the fourth kitten.
-
-*Bum. Bum. Bum.*
-
-The midwife reached in and extracted a kitten burrito from the messy pile. "It's breathing!"
+Medic Lersha reached in and extracted a kitten capsule from the messy pile. "It's breathing!"
 
 *Bum. Bum. Bum.*
 
@@ -142,13 +144,13 @@ Awoomoon held out her hand and received her kitten. "Hello, little one." She lic
 
 *Bum. Bum. Bum.*
 
-The midwife's heart raced. She knelt there on the ground, staring into the cot. Finally her breathing normalized. "How are they fairing?"
+Medic Lersha knelt there on the ground, staring into the cot. "How are they fairing?"
 
 "They're going to need some help." Awoomoon looked over the critical kittens.
 
-"I'll go get help!" The midwife ran off.
+“I’ll go get my med kit.” Medic Lersha stomped off down the hall.
 
-Awoomoon licked the wounds of the dying kittens, but it was too late. The breathless one deflated and stopped moving. The cold one didn't warm up. The bleeding one leaked out, soaking its bandage and the cot in blood. They had been slain with their mother. There was nothing she could do, so she licked them.
+Awoomoon licked the wounds of the dying kittens, but it was too late. The breathless one deflated and stopped moving. The cold one didn't warm up. The bleeding one had a big bruise that covered its entire belly. They had been slain with their mother. There was nothing she could do, so she licked them.
 
 She licked the suffocated kitten. *AWOOO!*
 
@@ -158,7 +160,7 @@ She licked the shanked kitten. *AWOOO!*
 
 She held the dead kittens in her hand, and lifted them up to the moon. Gazing up into the shining moon, she thought of her former nemesis. "May you rest in peace, Pantrinome."
 
-Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling as they each responded with a little squirm. Then a tear fell from her eye.
+Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling as they each responded with a little squirm. Except for one. A tear fell from her eye.
 
 *AWOOO!*
 

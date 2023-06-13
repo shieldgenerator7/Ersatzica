@@ -1052,7 +1052,7 @@ Despite being in the middle of the night, help arrived quickly.
 
 “Medic Lersha! My fellow guard has fallen!”
 
-“Oh my coons!” She knelt down next to him. “What happened?”
+“Oh my tooth!” She knelt down next to him. “What happened?”
 
 “The cats got him. I didn’t see, but I think he was shanked.”
 
