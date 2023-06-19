@@ -2457,3 +2457,127 @@ Ersie eyed the boots. “Muddy, you’re not going to like this…”
 “But I know a way to see in the dark.” Ersie picked up the boots.
 
 Muddy’s ears drooped. All the rocks fell out of her arms. She sighed.
+
+# Chapter 8
+
+The next day, Ersatzica went to her workshop to consult the schematics. She calculated how much material she needed, and wrote it down on a piece of paper.
+
+Then Lemilay entered. “Good morning, little sister.”
+
+“Lemilay.” Ersatzica turned around.
+
+“Hopefully you’re not working on plans to show me up?”
+
+“No no,” Ersatzica brushed the materials list under the schematics. “Just thinking about what the base design requires in materials.”
+
+“Good, good. Come along now.” Lemilay exited.
+
+“Where are we going?”
+
+“To scout a location.” Lemilay led Ersatzica through town to the cliff edge on the south side of town.
+
+“Oh, I already scouted my location.”
+
+“No, we’re scouting my location. Fersen!”
+
+A grey wolf got up from a bench. “Here.”
+
+“What’s Fersen doing here?” Ersatzica asked.
+
+“He’s a climbing expert.”
+
+“You mean we’re going down?”
+
+“Yes.”
+
+Fersen tied ropes around poles planted in the ground near the edge. Each of them took a rope and climbed down.
+
+On the way down, Lemilay turned on her hindsight.
+
+“Lemilay?”
+
+“Hold on, I just gotta check something out.” She paused for a moment on her rope, and then continued down, keeping her hindsight on.
+
+Ersatzica waited for her sister to start moving, while Fersen kept going.
+
+“What’s taking so long?” He yelled from the bottom.
+
+“Hold on!” Ersatzica yelled. “Lemilay, you ok?”
+
+“Yeah I’m just searching for something. Go on ahead, scout the location.” Lemilay held out a rolled up sheet of paper.
+
+“I’m down here.”
+
+Lemilay moved the paper to be closer to Ersatzica’s voice.
+
+“Ok, got it.”
+
+“I’ll meet you down there.”
+
+Ersatzica met Fersen at the bottom and rolled the paper. It was a map, with a big circle around the *two* lookouts on this side of the plateau. “She wants me to build her *two* lookouts?”
+
+“I know where that’s at.” Fersen motioned for Ersatzica to follow.
+
+“Thanks. I can’t remember the last time I’ve been to this valley.”
+
+“Yeah it’s pretty off limits. I only come down here to get a special plant that grows here. The apothecary uses it quite often.” Fersen led Ersatzica to the first location.
+
+It was on an embankment that sloped downward into a short flat area, before going into the river. Ersatzica pawed it. “The ground here is rather mushy.”
+
+“Yeah, it’s the preferred soil of the plant.” He picked some plants and put them in his bag.
+
+“How far down do you have to go to get to solid ground?”
+
+Fersen shrugged.
+
+“Hmm. Ok, I guess I can work with this. Where’s the other site?”
+
+“Over here.”
+
+The second location wasn’t much better. There was a cluster of trees that completely obstructed the building site. Ersatzica stared into the trees. A twig snapped. She sniffed the air. “Do you smell that?” She entered the cluster of trees. When she got closer, a short-haired orange-striped cat stared back at her. The cat was wearing a tooth on her necklace. She jumped back, and the cat disappeared. “Did you see that?”
+
+“Yeah I smell cats over here all the time.” Fersen assured. “But I never see any. The smell gets trapped in this enclosed area I think.”
+
+“Yeah, trapped.” Ersatzica peaked back into the trees, but the cat didn’t reappear. “So, this spot: maybe we can move it a little more in this direction?” She gestured to a spot with less obstruction.
+
+“No, because then it would be too close.” Lemilay approached from behind.
+
+“Lemilay, did you see the cat?”
+
+Lemilay looked back and forth. “How did you know about the cat?”
+
+“I just saw one!”
+
+Lemilay looked relieved. “Oh! Here and now? No, but I can.” Lemilay’s bald spot glowed and her eyes rolled into the back of her head. She turned around, focusing on places that might make good hiding spots. After a while, she came back to the present. “No, there weren’t any cats here. Not recently.”
+
+“Ok.”
+
+“Have you got a good look at these lookout spots?”
+
+“Yes, but I think we should move this one over there.”
+
+“No, we’re building it right here.”
+
+“But the trees are in the way.”
+
+“Don’t worry about that, Ersatzica. I’ll handle it. Just worry about the specs.”
+
+“Ok, Lemilay.”
+
+With the scouting completed, Lemilay led Ersatzica and Fersen back to the ropes, and they climbed back up. Ersatzica struggled, hugging her belly scar. Eventually they made it up.
+
+At the top, Fersen said, “Well, it was nice to have some company this time.”
+
+Lemilay nodded at him, and he left. Then she turned to Ersatzica. “I expect those designs by tomorrow before bed.”
+
+“What?”
+
+“This is your top priority. I know you can do it in that amount of time. Bye.” Lemilay left.
+
+Ersatzica sat down on a bench in the town square, trying to process what just happened. She wants to build the lookout, and find out more about the boots. She wants to make Mother proud by converting the boots, but she also doesn’t want to get on Lemilay’s bad side.
+
+“Ersie!” Mudrich ran up to her from across the town square.
+
+“Muddy!” Ersie greeted.
+
+Muddy sat next to her.
