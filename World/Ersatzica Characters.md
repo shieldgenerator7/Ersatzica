@@ -52,6 +52,8 @@ Awsoodoo’s father. Peacock.
 
 Awoomoon’s father. Wolf.
 
+Name change to Frestian?
+
 # Medic Lersha
 
 Bear medic. She resides in the peacock village.
