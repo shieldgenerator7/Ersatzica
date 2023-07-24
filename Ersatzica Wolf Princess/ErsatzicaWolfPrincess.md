@@ -352,7 +352,7 @@ Mudrich pulled back but still held on. "Next time I'm going to swim across the r
 
 "I put it all in the boots."
 
-"Ew!" Lemilay daintily pulled out the cuffs. "That's nasty. Who knows where those boots have been? And you expect me to wear these cuffs after they've been in there? No thank you." She dropped the cuffs on the ground. "Hmm… Could you have maybe gotten something for me, and NOT dirty it up?"
+"Ew!" Lemilay gingerly pulled out the cuffs. "That's nasty. Who knows where those boots have been? And you expect me to wear these cuffs after they've been in there? No thank you." She dropped the cuffs on the ground. "Hmm… Could you have maybe gotten something for me, and NOT dirty it up?"
 
 "Fetch off, Lemilay." Mudrich picked up the cuffs and put them back in the boots. "Ersatzica almost drowned! Don't you care?"
 
@@ -400,7 +400,7 @@ Ersie looked at the stick, then back to Mudrich. "No?"
 
 Mudrich sighed. "Ok, for you, Ersie." Mudrich picked Ersie up again, this time dodging the stick. She contorted her neck so she could awkwardly see forward with one eye past the stick without it poking her.
 
-They made it back to the village before dusk. It was a sizable village, made up of several buildings and huts, all out of brick and mortar. Wooden doors and shutters kept the draft out. About one in a dozen buildings had a second story, dwarfing the common houses with their higher importance. One such building was the Grand Barracks, where Ersatzica and her siblings lived, along with their mother, whenever she was actually home.
+They made it back to the village before dusk. It was a sizable village, made up of several buildings and huts, all out of brick and mortar. Wooden doors and shutters kept the draft out. About one in a dozen buildings had a second story, dwarfing the common houses with their higher importance. One such building was the Grand Barracks, where Ersatzica and her siblings lived. Occasionally their mother would visit, usually once per day.
 
 Mother opened their bedroom door without knocking. A tall black and white wolf, her figure occupied the majority of the small doorframe. Her eyes were focused with intent. Her mouth betrayed no sign of a smile. The necklace dangling from her neck consisted of a single canine tooth. Her chest fur was neatly brushed. Her tail was half the length that it should have been. "What's the report?"
 
@@ -1438,7 +1438,7 @@ Ersatzica stared up at the black-furred hand reaching out to her. Was this a tri
 
 Ersatzica crawled further up onto the beach. With a big motion she shook, but the water weighing down her fur didn’t fling off. The water dampened her fur. Oh, right. Apparently cats can’t shake off water like wolves can. It’s so uncomfortable. Maybe the most uncomfortable thing. Aside from drowning, of course. It’s like a hot sweltering heat on a summers day, but hugging her all around. Her fur stuck together as she moved up the beach. She tried a wolf water shake one last time, to no avail. It’s no use. Time to sun dry. She laid down on her back in the sand. No, the sand isn’t comfortable, but maybe a solid rock would be? Wolf Ersie likes laying down on solid rocks. Maybe Cat Ersie will like it too. She looked at the largest rock on the beach, right next to her.
 
-Up on the rock outcropping, the fisher cat whistled. It was a happy little tune, perfect for passing the time while fishing. A medium basket sat next to him, waiting patiently to be filled with fish.
+Up on the rock outcropping, the fisher cat whistled. It was a happy little tune, perfect for passing the time while fishing. A medium-sized basket sat next to him, waiting patiently to be filled with fish.
 
 Ersatzica cautiously crawled up next to him on all fours. His ears pricked in her direction, but he otherwise kept his attention on his fishing line. As she got closer, she could see more details. The basket wasn’t completely empty. Inside, the lower jaw bone of a wolf sparkled with a blue hue in the sunlight. It was missing several lower teeth, notably the canines. Ersatzica put her face in and sniffed it. Its owner had been dead a long time, and smelled only of fish. If this fisher cat had killed him, it wasn’t recently. Still, it’s a bad omen. Ersatzica’s heart beat faster. She inched away from him. She knew this was a trick. How could she have been so stupid?
 
@@ -1450,7 +1450,7 @@ She approached the fisher cat again. His back was scarred across his shoulder bl
 
 He turned to peek at her. “So, do you like fish?”
 
-“I like it ok,” is what she would’ve said, if she could make sound. “I KINDA LIKE FISH!” She tried yelling, but it didn’t work.
+\~\~“I like it ok,” is what she would’ve said, if she could make sound. “I KINDA LIKE FISH!” She tried yelling, but it didn’t work.\~\~
 
 “I hope you do!” he turned back to his fishing pole. It was bouncing up and down. “Because I just caught one!” He reeled it up and flung it into the basket. Sharp curved claws flipped out of his hand and pierced the fish, letting it no chance of escape. He pulled it up to his mouth and bit its head off. He spat the head into the basket and chucked the body in after.
 
@@ -1736,7 +1736,7 @@ She got back to the barracks just as it was getting dark. Inside, Mudrich was re
 
 “Oh, they’re out doing something or other.” She set the table down. “What do you think of the new arrangement?”
 
-The bunkbeds, which had previously occupied opposite walls of the room, were now end-to-end on the far wall. The table was set along the wall where Wryonin’s and Lemilay’s bunk was, and the shadow of Ersie’s and Muddy’s bunk haunted the now bare wall.
+The bunkbeds, which had previously occupied opposite walls of the room, were now end-to-end on the far wall. The table was set along the wall where Wryonin’s and Lemilay’s bunk used to be, and the shadow of Ersie’s and Muddy’s bunk haunted the now bare wall.
 
 “Feels more spacious in here.” She tossed the boots into her bunk and climbed up. She sniffed the wall. “*This* wall is wood. I never noticed that before.”
 
@@ -1758,7 +1758,7 @@ Ersie giggled. “Muddy, your secret is safe with me.”
 
 “Here we go!” Muddy lifted the whole bunk bed into the air with ease.
 
-“Muddy!” Ersie grabbed onto the bed frame and hugged the boots close to her chest.
+“Muuuddddy!” Ersie grabbed onto the bed frame and hugged the boots close to her chest.
 
 The bed wobbled to and fro as Muddy waved it around. It creaked with each swing, threatening to snap.
 
@@ -1854,7 +1854,7 @@ Mudrich giggled quietly. Ersatzica breathed a sigh of relief.
 
 Ersatzica held a hand to her face. There was barely enough moonlight flowing through the barrack windows for her to make out the outline of her black-furred paw. But there was a way she could fix that. She silently slid the boots onto her feet. “I wish I was a cat.” She whispered. The transformation happened near instantaneously. The bright glow illuminated whatever she looked at. She turned it to her hands.
 
-Her white-furred hands had short fingers. Short, fluffy fingers. She grabbed a finger and stroked it end to base. She winced at the pressure, and lightened up. The claw joint was in there. She careful flicked the claw into position. She squinted at the single exposed claw. It seemed to glow in the reflected moonlight. It itself looked like a crescent moon, sharpened to a point. She flipped her other claws out, one by one. What kind of things do cats use these for? Obviously they were weapons of war, a formidable threat. But what else? Did they use them as tools? Could they pick locks? Carve wood? Clean in between cracks? And the retractability! It’d be so much easier to keep these claws sharp! Wolf claws dull so quickly, and to do anything intricate, she has to keep her claws trimmed or they’d get in the way. Not so with cat claws. These might come in handy for some projects!
+Her white-furred hands had short fingers. Short, fluffy fingers. She grabbed a finger and stroked it end to base. She winced at the pressure, and lightened up. The claw joint was in there. She carefully flicked the claw into position. She squinted at the single exposed claw. It seemed to glow in the reflected moonlight. It itself looked like a crescent moon, sharpened to a point. She flipped her other claws out, one by one. What kind of things do cats use these for? Obviously they were weapons of war, a formidable threat. But what else? Did they use them as tools? Could they pick locks? Carve wood? Clean in between cracks? And the retractability! It’d be so much easier to keep these claws sharp! Wolf claws dull so quickly, and to do anything intricate, she has to keep her claws trimmed or they’d get in the way. Not so with cat claws. These might come in handy for some projects!
 
 But no! Ersatzica shook her head. She pushed her claws back in, took off the boots, and donned her wolf skin. Cats are tricky animals. Why would she want to be one of them? No one would trust her. Being a wolf was so much better. Right?
 
@@ -1872,7 +1872,7 @@ Wryonin’s howl woke her up. The morning light poured into her eyes, which she 
 
 Mudrich stretched. “I’m awake.”
 
-“Now that you’re up,” Lemilay said as she tucked her blanket in around her mattress. “You should know that Mother is going to give us our first challenge today after training.”
+“Now that you’re up,” Lemilay tucked her blanket in around her mattress. “You should know that Mother is going to give us our first challenge today after training.”
 
 Mudrich gave a thumbs up.
 
@@ -1908,7 +1908,7 @@ They all nodded.
 
 Lemilay and Wryonin attentively focused on her, Mudrich played with her cuffs, and Ersatzica looked at the ground.
 
-Mother snapped fer fingers, until all four of her pups were watching her. “The first task is to do a census. Each of you individually must count how many residents we have here in our village. In addition, you must count how many here are battle ready, or are at least willing to fight to help protect the village. Understood?”
+Mother snapped her fingers, until all four of her pups were watching her. “The first task is to do a census. Each of you individually must count how many residents we have here in our village. In addition, you must count how many here are battle ready, or are at least willing to fight to help protect the village. Understood?”
 
 “Yes, Mother.” Lemilay nodded.
 
@@ -1954,7 +1954,7 @@ Ersatzica nodded.
 
 “Later!” Ersatzica waved goodbye to Mudrich.
 
-There’s no way she could outclass Lemilay in an assignment like this. Lemilay’s natural abilities would make it so easy for her. She definitely had an unfair advantage. Instead, she would spend her time doing something actually productive: figuring out to convert the boots for wolf feet. And the next step was research, and the only one who could help her was across a river.
+There’s no way she could outclass Lemilay in an assignment like this. Lemilay’s natural abilities would make it so easy for her. She definitely had an unfair advantage. Instead, she would spend her time doing something actually productive: figuring out to convert the boots for wolf feet. And the next step was research, and the only one who could help her was across the river.
 
 Ersatzica carried the boots down the village stairs, along the running path, and to the rock at the edge of the river. She slipped them on, hid her wolf skin, and waited for the rock to take her across. The trip was easier this time, but still uncomfortable. Being wet as a cat was so much worse than being wet as a wolf.
 
@@ -1994,7 +1994,7 @@ She flipped through all the pages, until she landed on something familiar: the g
 
 “Quivester was a prince of the Cat Empire. However, he was only 5th in line for the throne, so he lived among the people. He learned their plights and cared about their problems. He was caught several times sneaking gold out of the empire’s treasury to give to needy cats in their empire.
 
-“This continued for many years, until the King had enough and had Quivester exiled from the empire. However, that didn’t stop him. He haunted the travel routes between the Cat Empire and the Wolf Nation, stealing food and supplies to keep himself fed.
+“This continued for many years, until the King had had enough and had Quivester exiled from the empire. However, that didn’t stop him. He haunted the travel routes between the Cat Empire and the Wolf Nation, stealing food and supplies to keep himself fed.
 
 “He was a scourge and a plight upon both the cats and the wolves. Bounty hunters and guards were sent to apprehend him, but he slipped through the cracks every time.
 
