@@ -2574,4 +2574,132 @@ Ersatzica sat down on a bench in the town square, trying to process what just ha
 
 “Muddy!” Ersie greeted.
 
-Muddy sat next to her.
+Muddy sat next to her, wagging her tail. “Hey, Ersie! Ersie!” Muddy licked her face.
+
+“What is it, Muddy?”
+
+“I finished my outpost! I finished it! Wanna see?”
+
+“Sure, but…” Ersie shielded herself from the licks with a hand. “How? Lemilay and I have barely started on hers, and Wryonin…”
+
+“Come on!” Mudrich grabbed Ersie’s hand and yanked her off the bench.
+
+They ran down the stairs into the forested valley, all the way to the river where Mudrich’s outpost was supposed to be.
+
+“Tada!” Mudrich gestured gradiously.
+
+It was a mud shack surrounded by a two-foot moat and a plethora of holes.
+
+“Wow, Muddy, I… can’t believe you did all this already…”
+
+Muddy jumped over the moat and into the shack. “It’s got this window so you can look out across the river. It’s got a nice and solid… roof…” She pushed the sagging clay roof up with her hand. “Or it will once it dries. Hand me that stick there.”
+
+Ersie picked a long stick off the ground and gave it to her.
+
+“Thanks. This roof will keep its wolf nice and dry, and since there’s no gaps, there’s no leaks!”
+
+“Wow, that’s great, Muddy, but how’d…”
+
+“Oh and lookie this!” Mudrich leaned her hammer against the wall where two prongs stuck out. “It’s a hammer holder! And and this!” She gestured to a blank wall with a bunch of chicken scratches in it. “Is the tally for how many cats have been killed here! I started us off with the kills I previously got. My hammer isn’t really easy to tally, so but now I have this!”
+
+“Muddy, that’s brilliant. But what’s with all these holes?”
+
+“Ah, I’ll fill them in later. You gotta get your dirt from somewhere, right?”
+
+“I guess. You really built this all today?”
+
+“Built today, yes, but I spent all day yesterday digging the dirt out.”
+
+“Wow, Muddy, you’re amazing.”
+
+“Thanks, Ersie!” Muddy hugged her. “How far have you gotten on yours?”
+
+“Ugh, well… Hey, do you want to check on Wryonin’s?”
+
+“Sure!” Mudrich shrugged.
+
+They walked along the river until they came across a line of branches planted in the ground at an angle, sharpened at the point. It was a spiky fence.
+
+“Whoa, what is this?” Mudrich touched one of the points. She pressed harder until she got it to draw blood. She licked her bleeding finger.
+
+“It’s my defenses.” Wryonin proudly exclaimed. He sat cross-legged on the beach, shaving splinters off logs. “It’ll give me a tactical advantage whenever the cats invade from this direction.”
+
+“Nice! They won’t dare cross this border!”
+
+“Nope!” Wryonin said.
+
+“But where’s the lookout?” Ersie asked.
+
+“Haven’t gotten to it yet. That’ll come later.”
+
+“Ok, keep up the good work, Wrywry.” Mudrich gave a thumbs up.
+
+*AWOOOOO!* “Here!” It was Lemilay’s howl.
+
+“Uhoh.” Ersie’s ears pinned back as she walked briskly to the stairs.
+
+Mudrich followed. “What’s going on?”
+
+“I have to complete the designs for Lemilay’s *two* outposts.”
+
+“She’s building two of them?”
+
+“Yeah, and she needs my help.”
+
+They found Lemilay standing at the doorway to Ersie’s workshop.
+
+“Where’ve you been?” Lemilay tapped her foot on the ground.
+
+“I’ve been…” Ersie looked at Mudrich. “…tracking down our local dirt expert.”
+
+“Dirt *expert*?” Lemilay laughed. “She’s a dirt *lover*.”
+
+“True, I do love me some dirt.”
+
+“Well, you saw the build site.” Ersie defended. “The dirt is all mushy down there, not great for building. I was just consulting someone more knowledgeable than me about it.”
+
+“And what does this dirt expert say?”
+
+Mudrich grimaced, shifting her eyes. “As long as you can hold it up with a stick, it should be fine.” She gave a thumbs up.
+
+“Well, it’s settled then. Now you can get to work.”
+
+A tiny ball of fire sparked deep inside Ersatzica, causing her to curl her fist. But she let it simmer down, and just squeaked out, “Yes, Lemilay.”
+
+“Good.”
+
+Ersatzica got to work drawing up the schematics, starting with the terrain for the two build sites. She finished the first one pretty quickly. She basically just added four sticks, one on each corner, that would prop it up to keep it from tipping over in the squishy dirt. Basically using Wryonin’s ground spears but for a different purpose.
+
+The second one was harder. She started by erasing the trees and working with the ground below. She hadn’t been able to get a good read on the stableness of the ground, so she just assumed it was about the same. She copied the design from the first one over to the second one, adjusting the length of the stabilizing beams as necessary.
+
+She shrugged. “Well I guess that’s done.” She twiddled her pencil. She looked around, but Lemilay wasn’t around. She smiled. She pulled out the schematic of the outpost design for the rock. It was as beautiful as the day she drew it up. She ran a finger across the lines. She jumped up in excitement. This design was perfect! With this, she’ll be able to change into a cat whenever she wants, without anyone questioning her. She’ll be able to cross the river and hangout with Fisher way more safely than before. Wait? Was she excited about being able to be a cat? No, no, no. It's not like that. She just wants to see Fisher again so she can learn about the boots, and maybe other heirlooms, and use that newfound understanding to help her family out. To make Mother proud.
+
+Ersatzica was caught up in thinking about the schematic and what she could do with the outpost. Her fun turned orange, starting at her feet. Her wolf skin peeled off and hung like a jacket on a chair.
+
+*AWOOOO!* “Night!” Lemilay’s howl marked the end of the day, and the time at which the curfew started.
+
+Ersie’s hair stood on end, and her claws flipped out and dug into the stack of schematics.
+
+“Oh well, maybe tomorrow.” Ersatzica sheathed her claws, stashed her schematic in a safe place, and turned toward the door.
+
+“So…” Lemilay’s silhouette stood there. “Have you finished the schematics?”
+
+Ersie’s tail flicked back and forth. “No, you gave me until tomorrow night.”
+
+“Yes, but I fully expected you’d have them done by now.”
+
+“Well, they’re not *quite* finished, but I suppose I can show you the first draft.”
+
+“Give it.”
+
+“Ok, ok.” Ersatzica handed Lemilay the schematics.
+
+“These are…” Lemilay squinted at them. “Pretty bland. Is this really the best you can do? Uncle Orent’s design but with braces?”
+
+Ersie’s brow furrowed. “It’s the standard but with the necessary adaptations for its environment.”
+
+“Eh, you can do better.” Lemilay tossed the two schematics in the trash. “See you tomorrow, cat.” She pointed at Ersie’s flicking tail as she exited.
+
+Ersie’s eyes went wide. She hugged her tail. She was a cat! When had she transformed? She didn’t remember. But Lemilay saw her as a cat, without the boots! Wait, she transformed without the boots! She hadn’t touched the boots all day! Did they have some kind of lingering effect? Did they give her long-lasting cat powers? She’ll have to document that effect tomorrow. For now, she has to go to bed.
+
+“Goodnight, Fisher Rock Outpost.” She adjusted the wolf skin on her head and watched her fur turn back into black and white. She joined Lemilay, Wryonin, and Mudrich at the grand barracks, went to sleep, and dreamed about crossing the river.
