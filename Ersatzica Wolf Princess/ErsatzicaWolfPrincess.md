@@ -2148,7 +2148,7 @@ Mother was not amused. “Ersatzica, did you actually do the assignment?”
 
 “It doesn’t matter anyway, right? She didn’t get the correct answer.” Lemilay interjected.
 
-“Well you didn’t either Lemilay.”
+“Well you didn’t either Lemilay.” Wryonin scowled.
 
 “Yeah I did, Wryonin.”
 
@@ -2282,7 +2282,7 @@ Ersatzica giggled giddily. “Thank you, Mother. I’ll get started on this righ
 
 She ran into her workshop, kicking the unhinged door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Orent’s design as a base, and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever, but then quickly erased it.
 
-*AWOOO!* “Here!”
+*AWOOO!* “Here!” It was Lemilay’s howl!
 
 Ersatzica jumped. That howl was right outside her workshop.
 
@@ -2378,9 +2378,9 @@ Ersatzica looked down at her.
 
 “So the story goes.” Ersatzica nodded.
 
-“And I’m worried about you, sis. So far you’re the only one who’s managed to use the boots to turn into a cat. What does that say about you? Your soul?”
+“And I’m worried about you, Ersie. So far you’re the only one who’s managed to use the boots to turn into a cat. What does that say about you? Your soul?”
 
-Ersatzica clenched the scar on her stomache.
+Ersatzica clenched the scar on her stomach.
 
 “And here you are turning into a cat for fun. If you keep going down this path, you’re going to turn into a cat with no way back.” Muddy burst out into tears. “And I… I’d lose my… my s-sister… and bes-st… my best friend!” She leaned closer to Ersie, but with a quick glance at her cat form, she scooched away instead and leaned on her elbows.
 
@@ -2404,7 +2404,7 @@ Muddy nodded.
 
 Ersie hopped off the boulder, took off the boots, and retrieved her wolf skin. She put it on and turned back into a wolf.
 
-Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, sis.”
+Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, Ersie.”
 
 “I won’t.” Ersie hugged her back, squeezing her tight.
 
@@ -2418,11 +2418,9 @@ Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, sis.�
 
 “But what?” Muddy fidgeted with her cuffs.
 
-“I’ve run into a problem.” Ersie told Muddy about Lemilay and how that’s going to interfere with her plans to build the lookout on the boulder.
+“I’ve run into a problem.” Ersie told Muddy about Lemilay and how that’s going to interfere with her plans to build the lookout on the boulder. They sat together and watched the river go by.
 
-They picked up armfuls of stones and climbed up onto it. They sat together and watched the river go by.
-
-“Oh, Lemilay?” Muddy laughed. “She’s easy. I’ve been sneaking things past her for years.” Muddy threw a stone into the river.
+“Oh, Lemilay?” Muddy laughed. “She’s easy. I’ve been sneaking things past her for years.” Muddy picked up a smooth, flat stone, and skipped it across the river.
 
 Ersie’s jaw dropped. “Wait what?”
 
@@ -2474,11 +2472,7 @@ Then Lemilay entered. “Good morning, little sister.”
 
 “Where are we going?”
 
-“To scout a location.” Lemilay led Ersatzica through town to the cliff edge on the south side of town.
-
-“Oh, I already scouted my location.”
-
-“No, we’re scouting my location. Fersen!”
+“To scout my location.” Lemilay led Ersatzica through town to the cliff edge on the south side of town. “Fersen!”
 
 A grey wolf got up from a bench. “Here.”
 
@@ -2506,7 +2500,7 @@ Ersatzica waited for her sister to start moving, while Fersen kept going.
 
 “Yeah I’m just searching for something. Go on ahead, scout the location.” Lemilay held out a rolled up sheet of paper.
 
-“I’m down here.”
+“I’m over here.”
 
 Lemilay moved the paper to be closer to Ersatzica’s voice.
 
@@ -2514,13 +2508,13 @@ Lemilay moved the paper to be closer to Ersatzica’s voice.
 
 “I’ll meet you down there.”
 
-Ersatzica met Fersen at the bottom and rolled the paper. It was a map, with a big circle around the *two* lookouts on this side of the plateau. “She wants me to build her *two* lookouts?”
+Ersatzica met Fersen at the bottom and unrolled the paper. It was a map, with a big circle around the *two* lookouts on this side of the plateau. “She wants me to build her *two* lookouts?”
 
 “I know where that’s at.” Fersen motioned for Ersatzica to follow.
 
 “Thanks. I can’t remember the last time I’ve been to this valley.”
 
-“Yeah it’s pretty off limits. I only come down here to get a special plant that grows here. The apothecary uses it quite often.” Fersen led Ersatzica to the first location.
+“Yeah it’s pretty off limits. I only come down here to get a special plant that grows here. The apothecary uses it quite often.” Fersen led Ersatzica to the first location. “You know, for medicinal purposes. Though I prefer recreational.”
 
 It was on an embankment that sloped downward into a short flat area, before going into the river. Ersatzica pawed it. “The ground here is rather mushy.”
 
