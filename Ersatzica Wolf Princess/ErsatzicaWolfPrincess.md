@@ -2092,7 +2092,7 @@ Ersatzica walked briskly to her workshop, carrying the boots at her side. That w
 
 Ersatzica cleaned off and dried the boots. They sparkled like new again. A little bit of grease here and there to keep them from squeaking. Not that they ever do, but to prevent it from happening if it would happen to normal boots of this design. Satisfied that she got the boots in good working order again, she carried them to the barracks and hid them in her bed.
 
-# Chapter 7
+# Chapter 7 – Skipping Rocks
 
 The next day, Ersatzica went to visit Fisher again. He brought a new book, but ‘Nic was disappointed that it didn’t have anything about her boots. Fisher was certain there was a book out there somewhere that talked about her boots, but he didn’t have it. He wasn’t planning on going to the cat city for another week, and when he did, he would be gone for a few days. So in the meantime, ‘Nic settled for a story about another heirloom.
 
@@ -2456,7 +2456,7 @@ Ersie eyed the boots. “Muddy, you’re not going to like this…”
 
 Muddy’s ears drooped. All the rocks fell out of her arms. She sighed.
 
-# Chapter 8
+# Chapter 8 – Muddy Hut
 
 The next day, Ersatzica went to her workshop to consult the schematics. She calculated how much material she needed, and wrote it down on a piece of paper.
 
@@ -2703,3 +2703,253 @@ Ersie’s brow furrowed. “It’s the standard but with the necessary adaptatio
 Ersie’s eyes went wide. She hugged her tail. She was a cat! When had she transformed? She didn’t remember. But Lemilay saw her as a cat, without the boots! Wait, she transformed without the boots! She hadn’t touched the boots all day! Did they have some kind of lingering effect? Did they give her long-lasting cat powers? She’ll have to document that effect tomorrow. For now, she has to go to bed.
 
 “Goodnight, Fisher Rock Outpost.” She adjusted the wolf skin on her head and watched her fur turn back into black and white. She joined Lemilay, Wryonin, and Mudrich at the grand barracks, went to sleep, and dreamed about crossing the river.
+
+# Chapter 9 – Burning Passions
+
+The next day, Ersatzica entered her workshop, almost tripping over the unhinged door. She hoisted the door up into place, and then got to work repairing the hinge. It didn’t take long. She moved the door back and forth. It squeaked loudly. She quieted it with oil.
+
+With that task finally done, she could focus on her daily tasks. What was it today? Oh right, the schematics! Oh, right… *the* schematics… Lemilay wouldn’t mind if she took a few hours to work on other things right? Besides, those schematics were in the trash.
+
+Ersatzica pulled her outpost design from its hiding spot and poured over it. Every little detail seemed to be in place, and everything was a go. Now she just needed materials. She took out the list she started before and finished it. She flipped out a claw one by one while counting off the items she needed. Her long, red hair fell onto the list, so she brushed it aside.
+
+Finally, she had a list, and she headed to the door.
+
+*KNOCK. KNOCK.*
+
+Ersatzica backed away from the door. “Who is it?”
+
+“I thought you’d be in there!” Muddy said from the other side. “Come on! It’s time for training!”
+
+“Be right out.”
+
+“What was that?” Muddy opened the door, but in a way that caused the hinges to break again.
+
+“Muddy!”
+
+“Oops, sorryyyy… hey!” Muddy pointed at Ersie. “You’re being a cat in your workshop now? In broad daylight?”
+
+“Shh!” Ersie muffled Muddy with a tight hug, complete with a paw over her mouth. “I’m doing this for a good reason.”
+
+Muddy pulled out of Ersie’s embrace, dusting herself off. “I feel like taking a bath now. Pffft!”
+
+“I’m sorry, Muddy.”
+
+“That has to be one good reason.”
+
+“I need to make sure Lemilay doesn’t find out, remember?”
+
+“Oh yeah.” Mudrich looked around the shop. “But I don’t see how that helps? Lemilay could very easily see all of this.”
+
+“Well, I… found a new blindspot.”
+
+“No way! What is it?”
+
+“Well I can’t tell you, because… because if I talk about it, it doesn’t work.”
+
+Mudrich eyed her suspiciously. “I want to believe you, but I’m worried. You’re a cat, in your workshop, just all casual!”
+
+“Do you want me to change back?”
+
+“*Yes!*”
+
+Ersie refitted her wolf skin back onto her head, and she transformed back into a wolf. “Better?”
+
+Mudrich hugged her. “Don’t ever change.” She looked up at her. “I mean it.”
+
+“Ok. Ok.” Ersie pushed Muddy away. “It’s just sometimes hard to control.”
+
+“Huh?” Mudrich gave a quizzical glance.
+
+*AWOOOO!* “Hour!” The howl rang out throughout the whole town and the two neighboring valleys.
+
+“Well, there’s Lemilay’s mid-morning howl. We have to get to training. Come on.”
+
+Ersie stashed her outpost designs before following Mudrich to training. On the way down the stairs, they ran into Lemilay.
+
+“Oh, Ersatzica! Good to see you’re keeping up with training.” Lemilay said with a fake smile. “How’s the schematics coming?”
+
+“The schematics? Good. I made a material list.”
+
+“Very good. For my outposts or your outhouse?”
+
+“For yours, of course.”
+
+“Very good. Because if I find out you haven’t been prioritizing my outpost, there will be consequences.”
+
+“Fetch off, Lemilay! We’re trying to get to training.” Mudrich dragged Ersatzica down the stairs.
+
+“Hmmph!” Lemilay snuck her nose in the air and walked away indignantly.
+
+“Thanks, Muddy.”
+
+“Let’s just get to training.” Mudrich’s grip on Ersatzica’s wrist grew tighter.
+
+They did training with Wryonin and the late morning lookout wolves. The whole time, Muddy didn’t say anything to Ersatzica except the occasional “Yeah.” and “No.” They finished training with the just the normal amount of scar pain for Ersatzica. As they climbed the staircase back up to the town, Mudrich finally spoke.
+
+“Maybe you should destroy the boots.”
+
+“What?” Wryonin interjected. “They’re a very powerful and valuable heirloom. Why would you want to destroy it?”
+
+Mudrich grumbled. “Then we should send it to the peacocks.”
+
+“But we might need it soon. And Ersatzica’s almost done converting it to wolf feet, right, Ersatzica?”
+
+“I’m making progress.”
+
+“She’s been ‘testing’ it more than anything.” Mudrich sneered.
+
+“Mudrich, what is with you today? So grouchy.” Wryonin remarked. “No more late night jerky for you.”
+
+Ersie pinned her ears back as they got to the top of the stairs. “Well, I’m going to get back to work. See you guys later.”
+
+“Later, Ersatzica.” Wryonin left.
+
+Mudrich just walked away.
+
+Ersatzica entered her workshop and closed the door behind her, as far as it would go with its displaced hinge. She slumped up against the door.
+
+What was Mudrich mad about? Was it the hug as a cat? Was it her just being a cat? Did she somehow know the transformations were happening involuntarily now? God of the Moon, Ersatzica *was* turning into a cat! It was only a matter of time before her wolf skin stopped working on her, and her soul would be completely converted to that of a cat’s. What was she doing? She was becoming an evil, vile creature… No, no! Fisher wasn’t evil. It’s possible to be a cat and *not* be evil. Fisher is proof!
+
+Voices walked by the door outside. It was probably just some wolves going about their business, but it startled Ersatzica nonetheless.
+
+She can’t have Mudrich or Lemilay bust in while she’s working, in case she transforms by accident again. Ersatzica fished two brackets and a bolt out of her drawers and drilled them into the wall. She fitted the door with a few body slams and installed the door lock.
+
+She didn’t want to lock them out, but she needed to be able to work in peace.
+
+Reaching for her outpost design, she hesitated. Lemilay said there would be consequences. But, she also said that Ersatzica had until curfew today. Ersatzica had plenty of time. She pulled out her designs anyway.
+
+Just looking at her designs had her face shortening and her tail lengthening. She adjusted a few things about the rock she had noticed during training today. They didn’t effect the design much, but they did give her some ideas. She took out a new sheet and drew in all the wild things her imagination showed her: a stone walkway into the river, a hook for attaching a return rope, and candle holders on the side walls. She didn’t know what she had time to build, but she knew she couldn’t fit all these ideas in. She tossed several papers to the side, stacking up quite a pile next to the window.
+
+She smiled giddily as she drew in lots of options for the windows, walls, and extra features. This design was going to be amazing when it was done. But now, she had a problem: so many designs to choose from, and now she had to pare them down.
+
+The smell of smoke wafted into her nose, and a warm glow appeared in her peripheral vision. She turned to her pile of design drafts. It was on fire!
+
+“Crap! Crap! Crap!” She blew on the flames, but they only spread faster. She picked up the nearest object, which happened to be the boots, and hit the table with them as fast as she could. The papers flew everywhere, catching the sheets in the trash on fire, and spreading the flames around her workshop. “Crap!” She grabbed her main outpost design and its materials list and headed out the door.
+
+But the door wouldn’t budge. It was screwed shut! Ersatzica looked around for her screwdriver. It glowed as it reflected the light of the flames it was under. Ersatzica reached out with a cat claw and extracted it from the fire, but it was already too hot too handle.
+
+*Cough. Cough.* The smoke was getting to her. She was trapped in a burning building, with no way out. But she wasn’t alone. “How-oooo—” She tried howling, but the sound didn’t come out right. She hurriedly put her wolf skin back on. *AWOOOO!* “Help!”
+
+It didn’t take long. *AWOOO!* “Where?” It was Wryonin!
+
+*AWOOOO!* “Help!”
+
+*AWOOO!* “Coming!”
+
+After a few more smoke-infested breaths, Wryonin was knocking on the door. “Ersatzica, are you in there?”
+
+“Yes!” She yelled as loudly as she could.
+
+“Ok, open up.”
+
+“It’s stuck. I can’t get it open.”
+
+“Ok, stand back Ersie.” Wryonin took a few steps back, then ran at the door. *THUD!* The door jostled, but didn’t budge. *AWOOOO!* “Fire!”
+
+*AWOOO! AWOOOOOO! AWOOO!* “Coming!”
+
+“Is everything alright? What’s going on?” Mudrich stood outside the door.
+
+“Muddy! I’m trapped!”
+
+“Ersie!” Muddy yelled. “Get out of my way, dooor!” *CRASH!* The door splintered into pieces as Muddy shoved a hand through it. The bracelets glimmered blue amongst the fiery reflections. Muddy punched the door away and grabbed Ersie.
+
+Wryonin muzzled himself with a rag as three other wolves arrived. “We need water buckets, now!” Wryonin commanded. He directed the other wolves while he moved flammable objects away from the fire.
+
+Mudrich held Ersie in her arms. “Ersie! Are you ok?”
+
+*Cough, cough.* “I’m… fine, Muddy. Thank you.” She closed her eyes.
+
+“Ersie! Wake up! Hang on, I’ll take you to the medic.” Mudrich ran to the medic building, shaking Ersie with her uneven gait. There at the medic building, Mudrich set Ersie down on the raised bed.
+
+“What’s the issue?” Medic Lersha, an old, tall bear, wiped her paws clean as she approached.
+
+“She was trapped in a burning building! Please, Medic Lersha, can you help her?”
+
+“So, smoke inhalation. That can be a really bad habit.” A drop of blood appeared in her nose, and she snorted it back in, causing the tooth-like growth on her nose to jiggle a little. She sniffed up and down Ersatzica’s body. “Well, honey, it looks like you didn’t get it too bad. Does it hurt anywhere?”
+
+Ersatzica shook her head.
+
+“Ok, that’s good. It seems like you’re ok. You should go home and rest for a day or two. Then if anything is still bothering, pay me a visit, hmm?”
+
+“Ok. Thank you.”
+
+“You’re welcome, honey.”
+
+“To the barracks with you!” Mudrich carried Ersie to their room.
+
+“Muddy! I can walk!”
+
+“Nope! You heard Medic Lersha, you should take a day or two off.”
+
+“But that doesn’t mean—”
+
+“That includes off your feet.”
+
+“But I have to—”
+
+“Nonsense.” Mudrich carried her all the way and plopped her into her bed. “Now you stay right there. I’ll bring you dinner, don’t worry.”
+
+“Muddy, that’s very nice of you, but—”
+
+“Nope. You stay right there. I’ll be right back.” Muddy brought food back for Ersatzica, and they ate in bed.
+
+Later that night, Lemilay and Wryonin finally returned to sleep.
+
+“Ersatzica!” Wryonin exclaimed. “How are you doing?”
+
+*Cough*. “I’m fine.”
+
+“Glad you’re ok.” Wryonin sat next to her on her bed.
+
+Lemilay entered without saying anything. She sat on her bed, contemplating.
+
+“I’m sorry, Ersatzica.” Wryonin patted her on the back. “I tried to save as much of your workshop as I could, but a lot of it was destroyed.”
+
+“What about my designs?”
+
+“I found a schematic on the floor. It looked similar to Uncle Orent’s outpost design. It had a few burnt corners, but was still legible.”
+
+Ersatzica breathed a sigh of relief. Her foot started to shift under blanket, so she quickly thought about something else, and her foot went back to normal. “So everything’s ok now?”
+
+“Yeah…” Wryonin said. “Well, no. You see, now we have to figure out how the cats managed to set your workshop on fire…”
+
+“And why? Why would they attack you?” Mudrich butted in.
+
+“It wasn’t the cats.” Lemilay blurted out.
+
+“What?” They all turned to look at Lemilay.
+
+She tapped on her bald spot. “I saw how it happened. There were no cats out around there. But *inside*…” She nodded at Ersatzica.
+
+Muddy’s eyes got wide, then cross. “Ersie! You didn’t, did you?”
+
+Ersatzica sat up in her bed. “What? No! Why would I… why would I…”
+
+She looked at her siblings, but all three of them stared back, frowning.
+
+“Guys! I love my workshop! Why would I do something like that?”
+
+Wryonin looked away. “Does your screwdriver work on the boot screws?”
+
+“Not easily, but I make it work… but wait! No, Wryonin! You can’t! I need—*We* need those boots! You said it yourself!”
+
+“Don’t make this hard for me. Mudrich, get in bed.”
+
+Mudrich quickly climbed in bed.
+
+Wryonin hastily blew out the lantern, not even waiting for Lemilay to get comfy.
+
+“It’s ok, Ersie, things will go back to normal soon.” Mudrich whispered to her.
+
+But… what if that’s not what she wanted? What if she wanted things to be different? What if she liked her new normal? God of the Moon, what was she saying? She was a wolf, a wolf! All this cat talk… her siblings were right, she was being cursed by a powerful heirloom. And the only way to get things to go back to normal was to destroy the boots. It was the only way. But how could she? After all that time she spent on them, to just throw them away like that? No. Curse or no curse, she can’t let the boots get destroyed. She would give them away instead.
+
+“Psst! Ersatzica, psst!” Lemilay whispered quietly.
+
+“Huh?”
+
+“You still awake?”
+
+“Yes, why?”
+
+“I hope you learned your lesson.”
