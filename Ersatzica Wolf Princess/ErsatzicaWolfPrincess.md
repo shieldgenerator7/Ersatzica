@@ -110,7 +110,7 @@ Medic Lersha handed it to Awoomoon, who grabbed it in her mouth, and rubbed it w
 
 "There's a fourth one in there. Find it."
 
-"Ok.” Medic Lersha’s tooth bled profusely, dripping all over the body. “All I’m sensing is the pain of the cat.”
+"Ok.” The tooth-like growth on Medic Lersha’s nose bled profusely, dripping all over the body. “All I’m sensing is the pain of the cat.”
 
 “Is she still alive?”
 
@@ -118,7 +118,7 @@ Medic Lersha felt for a heartbeat. “Just barely.” She knelt over the dying c
 
 The cat took one last dying breath.
 
-Medic Lersha’s tooth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw, but didn’t find a kitten.
+Medic Lersha’s growth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw, but didn’t find a kitten.
 
 "Where is it?" Awoomoon asked impatiently.
 
