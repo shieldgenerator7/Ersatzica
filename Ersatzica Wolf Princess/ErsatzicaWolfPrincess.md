@@ -40,7 +40,7 @@ Pantrinome let her hand rest on Ersatzica, the fourth pup. Her fur was very soft
 
 All of a sudden, the fuzzy warmth of the pup grew. It crawled up Pantrinome's arm and lodged itself in her heart. It overtook her chest in a big fireball of emotion, pushing out the mechanical drive to wage war. Her pulled back ears pricked forward, her furrowed eyebrows eased, and her downtrodden countenance turned up. An inexplicable euphoria filled her chest cavity. Ersatzica, the newborn pup, had melted her cold heart.
 
-Pantrinome reached down for the wolf mother's hand, and placed it on her own pregnant belly. She looked into the wolf mother's eyes and smiled. The wolf mother closed her eyes. The kittens wriggled inside Pantrinome as the wolf mother held her hand there.
+Pantrinome reached down for the wolf mother's hand and placed it on her own pregnant belly. She looked into the wolf mother's eyes and smiled. The wolf mother closed her eyes. The kittens wriggled inside Pantrinome as the wolf mother held her hand there.
 
 She looked up at the expecting cat mother. "I hope someday I can meet yours, too."
 
@@ -48,7 +48,7 @@ Pantrinome closed her eyes and took a deep breath.
 
 "Take this! You howl-bereaving feline!" *KACHINK!* A sword burst through Pantrinome's lower chest. *SCHIK!* Its blood-tipped blade dripped as it retreated.
 
-Pantrinome held her neck and mimed choking, but did not make any noise. She released her spear. It hit the floor, *clink clink*. She dropped to her knees. She fell to the ground, bleeding.
+Pantrinome held her neck and mimed choking but did not make any noise. She released her spear. It hit the floor, *clink clink*. She dropped to her knees. She fell to the ground, bleeding.
 
 "Awoomoon!" The wolf chief sheathed his bloody sword and knelt next to the cot. "Are you alright, my dear?"
 
@@ -70,7 +70,7 @@ Pantrinome blinked her green eyes slowly, then collapsed onto the floor without 
 
 Not long after, another figure stomped through the hall to face the scene in the bedroom. She was a big bear with a single snaggle tooth that was currently dripping with blood.
 
-"Oh my tooth!" cried the bear. "Are you alright, Awoomoon?"
+"Oh, my tooth!" cried the bear. "Are you alright, Awoomoon?"
 
 "Medic Lersha, we have an emergency on our paws."
 
@@ -78,7 +78,7 @@ Not long after, another figure stomped through the hall to face the scene in the
 
 "No, but this fallen warrior is pregnant."
 
-"Oh my tooth! Is she alive?"
+"Oh, my tooth! Is she alive?"
 
 "Not for long. We need to save her puppies."
 
@@ -98,7 +98,7 @@ Medic Lersha handed it to Awoomoon, who grabbed it in her mouth, and rubbed it w
 
 "Bring it here," Awoomoon repeated. She took the cold kitten and held it to her chest.
 
-"Things are looking dire." Medic Lersha pulled out another one, covered in blood. The burn mark on her right hand lit up, and she placed it on the kitten. The tiny wound it on its side sealed shut.
+"Things are looking dire." Medic Lersha pulled out another one, covered in blood. The burn mark on her right hand lit up, and she placed it on the kitten. The tiny wound on its side sealed shut.
 
 "Here," Awoomoon accepted the kitten.
 
@@ -118,7 +118,7 @@ Medic Lersha felt for a heartbeat. “Just barely.” She knelt over the dying c
 
 The cat took one last dying breath.
 
-Medic Lersha’s growth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw, but didn’t find a kitten.
+Medic Lersha’s growth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw but didn’t find a kitten.
 
 "Where is it?" Awoomoon asked impatiently.
 
@@ -158,7 +158,7 @@ She licked the frozen kitten. *AWOOO!*
 
 She licked the shanked kitten. *AWOOO!*
 
-She held the dead kittens in her hand, and lifted them up to the moon. Gazing up into the shining moon, she thought of her former nemesis. "May you rest in peace, Pantrinome."
+She held the dead kittens in her hand and lifted them up to the moon. Gazing up into the shining moon, she thought of her former nemesis. "May you rest in peace, Pantrinome."
 
 Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling as they each responded with a little squirm. Except for one. A tear fell from her eye.
 
@@ -170,7 +170,7 @@ Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling 
 
 The leaves of the trees around her bounced in time with the drum. Up and down. Up and down. She stared ahead past the drum down the dirt path they were about to take. It was narrow but well-worn. Navigating it would be easy. As the wind blew over her along the path, she pounded the drum at a regular pace.
 
-Three wolves of similar age marched in place around her, syncing themselves up to the beat of the drum. A shorter, stockier, white wolf punched the air in front of her, incidentally shaking off some of the caked mud that had accumulated on her fur. Then she picked up a hammer and swung it wildly to the beat of the drum. A grey and white wolf danced elegantly in place while doing reps with her eyes. Her grey and white fur blurred with the background, but the bald spot on her head was still clearly visible. A black and grey wolf stretched his muscles, flexing them with each drum beat. A slingshot rested on his waist, attached to his belt.
+Three wolves of similar age marched in place around her, syncing themselves up to the beat of the drum. A shorter, stockier, white wolf punched the air in front of her, incidentally shaking off some of the caked mud that had accumulated on her fur. Then she picked up a hammer and swung it wildly to the beat of the drum. A grey and white wolf danced elegantly in place while doing reps with her eyes. Her grey and white fur blurred with the background, but the bald spot on her head was still clearly visible. A black and grey wolf stretched his muscles, flexing them with each drumbeat. A slingshot rested on his waist, attached to his belt.
 
 The first wolf slowed down the beat of the drum, and the other three slowed their motions immediately. After a brief pause, the beat of the drum ramped up, beating faster and faster. At first it seemed the other three wolves were moving faster of their own accord, but soon they began moving faster than humanly possible. Even the short wolf, with her hammer swings, swung her hammer so fast it became a blur. Their rapid movements matched the drum's insanely fast tempo.
 
@@ -186,7 +186,7 @@ The first wolf slowed down the beat of the drum, and the other three slowed thei
 
 Ersatzica pounded the drums on both sides at the same time, signaling the other three wolves to go. And go they did. They ran faster than should be possible, even for a wolf. Ersatzica ran after them, but was not in sync with the drum, and could only go so far before having to stop and take a breath. Despite this, she kept beating the drum at a rapid pace, rapid enough to keep the other three wolves moving quickly.
 
-The wolf with the bald spot rolled her eyes into the back of her head as her bald spot glowed. She pulled out a scope and pointed it at the reflective undersides of the tree tops. "There's three cats in the forest, two on the shore, and one in the boat. Tell me your strategy."
+The wolf with the bald spot rolled her eyes into the back of her head as her bald spot glowed. She pulled out a scope and pointed it at the reflective undersides of the treetops. "There's three cats in the forest, two on the shore, and one in the boat. Tell me your strategy."
 
 The wolf with the slingshot flicked it off his belt, spinning it up into the air in front of him. In a single motion he caught it, loaded it, and fired a rock from it at the same time. It flew seamlessly in the desired direction. "You go distract them over there. Mudrich and I will come up behind them and knock them all out." He nodded at the white wolf.
 
@@ -228,7 +228,7 @@ The horn blower cat took off to the boat, followed closely by the remaining two 
 
 "Hmmph." Mudrich smiled. The blood on her furry chin stretched into a weird pattern. With a mighty howl that said, "Charge!", she ran ahead to the cats. But she found that they were too fast.
 
-They outran her easily, and escaped into their boat. They rowed into the river and escaped.
+They outran her easily and escaped into their boat. They rowed into the river and escaped.
 
 Mudrich swam after them, but it was no use. She couldn't catch them. Her ears perked. The beat of the drum was gone. But she could still fight them on the other side of the beach.
 
@@ -258,7 +258,7 @@ Lemilay turned to Wryonin. "They got away with an heirloom. That pair of boots."
 
 "Quiet!" Wryonin refocused his attention, shifting his ears. He pulled the band of his slingshot back and loaded a rock. After a brief readjustment of his position and aim, he let go. The rock flew through the air, over the river, and deep into the woods. After a brief delay, Wryonin's ear twitched ever so slightly, and he smiled. "Ok, done."
 
-Lemilay folded her arms across her chest, ears pinned back and brow furrowed. "Now how do we get it, genius?"
+Lemilay folded her arms across her chest, ears pinned back, and brow furrowed. "Now how do we get it, genius?"
 
 "Just send Mudrich over, she's already wet."
 
@@ -294,7 +294,7 @@ Mudrich stared back blankly.
 
 "I am?" Ersatzica smiled. "Wow, thank you so much."
 
-"Now we need you to go over there, across the river, and fetch those boots." Lemilay confiscated the drum sticks and pushed Ersatzica towards the river.
+"Now we need you to go over there, across the river, and fetch those boots." Lemilay confiscated the drumsticks and pushed Ersatzica towards the river.
 
 Ersatzica walked confidently to the shoreline, but when she got close, she looked back at them. They waved her on.
 
@@ -302,9 +302,9 @@ She looked around instead. On the other side of the river, there was a log stick
 
 "Hurry, before the tide comes in!" Wryonin yelled.
 
-Ersatzica waded in deeper and switched to a swim, keeping her head focused on the tree sticking out of the water. "Paddle, paddle, paddle, focus on the goal." She whispered to herself. Water flowed across her tongue as she gnawed and licked the stick. She paddled with both hands and legs. But as she got further out, her breathing became faster and more exasperated. She stopped paddling for a moment to hold that spot on her stomach. But while she did so, the water carried her further down river, past the out peeking log. She tried standing up, but the river was too deep. The water pushed her aside and swept her away. She pulled the stick from her mouth and flailed it wildly around her, desperately hoping it would catch on something, anything, but she wasn't close enough to the log. She tried to let out a howl, a cry for help, but her mouth flooded with water and stopped her. The water washed over her and into her, allowing only the slightest opportunity for breath. The dull pain spread through her chest even as she held her belly.
+Ersatzica waded in deeper and switched to a swim, keeping her head focused on the tree sticking out of the water. "Paddle, paddle, paddle, focus on the goal." She whispered to herself. Water flowed across her tongue as she gnawed and licked the stick. She paddled with both hands and legs. But as she got further out, her breathing became faster and more exasperated. She stopped paddling for a moment to hold that spot on her stomach. But while she did so, the water carried her further down river, past the out-peeking log. She tried standing up, but the river was too deep. The water pushed her aside and swept her away. She pulled the stick from her mouth and flailed it wildly around her, desperately hoping it would catch on to something, anything, but she wasn't close enough to the log. She tried to let out a howl, a cry for help, but her mouth flooded with water and stopped her. The water washed over her and into her, allowing only the slightest opportunity for breath. The dull pain spread through her chest even as she held her belly.
 
-Then the stick tried to free itself from her grip, but her thumb got caught on its twig branch and stopped it. Her arm stretched, pulling her whole weight from the river. She was dragged onto the shore, where her lungs expelled all the water. She coughed, took a breathe, and took in all the air. She looked up at the stick.
+Then the stick tried to free itself from her grip, but her thumb got caught on its twig branch and stopped it. Her arm stretched, pulling her whole weight from the river. She was dragged onto the shore, where her lungs expelled all the water. She coughed, took a breath, and took in all the air. She looked up at the stick.
 
 On the other end of the stick, a black furry hand gripped it tightly, while another furry hand dislodged a fishing lure from the stick. This hand didn't look very wolf-like, however. The hand belonged to a furry black arm, which in turn belonged to a creature with a white furry chin and black furry face, with a green hat on top, complete with a red feather. It was a cat!
 
@@ -314,7 +314,7 @@ The cat jumped and hissed, but it got the fishing lure out of the stick. It put 
 
 Ersatzica barked.
 
-The cat's ears pinned back and it winced. It turned around and ran off into the woods as fast as its two legs could take it.
+The cat's ears pinned back, and it winced. It turned around and ran off into the woods as fast as its two legs could take it.
 
 Ersatzica's heart beat rapidly. She looked around to her left and right, for any signs of other cats. She had made it to the cat side of the river.
 
@@ -1788,7 +1788,7 @@ Ersie just shook her head.
 
 *CREEEEAK. PFFING!* “Darkness.” Mudrich stuck an arm inside. “I can’t see anything.”
 
-“Hold on, get your arm out of there.” Ersie put on the boots, and shed her wolf skin. She laid under the blanket, out of view of anyone else. She didn’t latch the boots tho.
+“Hold on, get your arm out of there.” Ersie put on the boots, and shed her wolf skin. She laid under the blanket, out of view of anyone else. She didn’t latch the boots though.
 
 “I think I found something.”
 
@@ -1886,7 +1886,7 @@ IN HONOR OF A LOYAL WOLF
 HUSBAND, FATHER, CHIEF  
 FEISTIVEN
 
-Ersatzica stood in front of it and looked up at his face. “Hi, dad.” She laid a hand on the placque.
+Ersatzica stood in front of it and looked up at his face. “Hi, dad.” She laid a hand on the plaque.
 
 *AWOOO!* “Here!” Wryonin howled.
 
@@ -1928,7 +1928,7 @@ Ersatzica nodded.
 
 “Yeah but don’t forget you have to make a separate count for battle-ready people.” Wryonin said.
 
-“Well, you guys figure it out for yourselves. I’m going to get this done today. Just don’t get in my way.”
+“Well, you all figure it out for yourselves. I’m going to get this done today. Just don’t get in my way.”
 
 “Sure thing, princess.” Wryonin scoffed.
 
@@ -2586,7 +2586,7 @@ Muddy sat next to her, wagging her tail. “Hey, Ersie! Ersie!” Muddy licked h
 
 They ran down the stairs into the forested valley, all the way to the river where Mudrich’s outpost was supposed to be.
 
-“Tada!” Mudrich gestured gradiously.
+“Tada!” Mudrich gestured grandiosely.
 
 It was a mud shack surrounded by a two-foot moat and a plethora of holes.
 
@@ -2600,7 +2600,7 @@ Ersie picked a long stick off the ground and gave it to her.
 
 “Wow, that’s great, Muddy, but how’d…”
 
-“Oh and lookie this!” Mudrich leaned her hammer against the wall where two prongs stuck out. “It’s a hammer holder! And and this!” She gestured to a blank wall with a bunch of chicken scratches in it. “Is the tally for how many cats have been killed here! I started us off with the kills I previously got. My hammer isn’t really easy to tally, so but now I have this!”
+“Oh, and lookie this!” Mudrich leaned her hammer against the wall where two prongs stuck out. “It’s a hammer holder! And and this!” She gestured to a blank wall with a bunch of chicken scratches in it. “Is the tally for how many cats have been killed here! I started us off with the kills I previously got. My hammer isn’t really easy to tally, so but now I have this!”
 
 “Muddy, that’s brilliant. But what’s with all these holes?”
 
@@ -2636,7 +2636,7 @@ They walked along the river until they came across a line of branches planted in
 
 *AWOOOOO!* “Here!” It was Lemilay’s howl.
 
-“Uhoh.” Ersie’s ears pinned back as she walked briskly to the stairs.
+“Uh oh.” Ersie’s ears pinned back as she walked briskly to the stairs.
 
 Mudrich followed. “What’s going on?”
 
@@ -2668,13 +2668,13 @@ A tiny ball of fire sparked deep inside Ersatzica, causing her to curl her fist.
 
 “Good.”
 
-Ersatzica got to work drawing up the schematics, starting with the terrain for the two build sites. She finished the first one pretty quickly. She basically just added four sticks, one on each corner, that would prop it up to keep it from tipping over in the squishy dirt. Basically using Wryonin’s ground spears but for a different purpose.
+Ersatzica got to work drawing up the schematics, starting with the terrain for the two build sites. She finished the first one pretty quickly. She basically just added four sticks, one on each corner, that would prop it up to keep it from tipping over in the squishy dirt. Basically, using Wryonin’s ground spears but for a different purpose.
 
 The second one was harder. She started by erasing the trees and working with the ground below. She hadn’t been able to get a good read on the stableness of the ground, so she just assumed it was about the same. She copied the design from the first one over to the second one, adjusting the length of the stabilizing beams as necessary.
 
-She shrugged. “Well I guess that’s done.” She twiddled her pencil. She looked around, but Lemilay wasn’t around. She smiled. She pulled out the schematic of the outpost design for the rock. It was as beautiful as the day she drew it up. She ran a finger across the lines. She jumped up in excitement. This design was perfect! With this, she’ll be able to change into a cat whenever she wants, without anyone questioning her. She’ll be able to cross the river and hangout with Fisher way more safely than before. Wait? Was she excited about being able to be a cat? No, no, no. It's not like that. She just wants to see Fisher again so she can learn about the boots, and maybe other heirlooms, and use that newfound understanding to help her family out. To make Mother proud.
+She shrugged. “Well, I guess that’s done.” She twiddled her pencil. She looked around, but Lemilay wasn’t around. She smiled. She pulled out the schematic of the outpost design for the rock. It was as beautiful as the day she drew it up. She ran a finger across the lines. She jumped up in excitement. This design was perfect! With this, she’ll be able to change into a cat whenever she wants, without anyone questioning her. She’ll be able to cross the river and hangout with Fisher way more safely than before. Wait? Was she excited about being able to be a cat? No, no, no. It's not like that. She just wants to see Fisher again so she can learn about the boots, and maybe other heirlooms, and use that newfound understanding to help her family out. To make Mother proud.
 
-Ersatzica was caught up in thinking about the schematic and what she could do with the outpost. Her fun turned orange, starting at her feet. Her wolf skin peeled off and hung like a jacket on a chair.
+Ersatzica was caught up in thinking about the schematic and what she could do with the outpost. Her fur turned orange, starting at her feet. Her wolf skin peeled off and hung like a jacket on a chair.
 
 *AWOOOO!* “Night!” Lemilay’s howl marked the end of the day, and the time at which the curfew started.
 
@@ -2708,9 +2708,9 @@ Ersie’s eyes went wide. She hugged her tail. She was a cat! When had she trans
 
 The next day, Ersatzica entered her workshop, almost tripping over the unhinged door. She hoisted the door up into place, and then got to work repairing the hinge. It didn’t take long. She moved the door back and forth. It squeaked loudly. She quieted it with oil.
 
-With that task finally done, she could focus on her daily tasks. What was it today? Oh right, the schematics! Oh, right… *the* schematics… Lemilay wouldn’t mind if she took a few hours to work on other things right? Besides, those schematics were in the trash.
+With that task finally done, she could focus on her daily tasks. What was it today? Oh right, the schematics! Oh, right… *the* schematics… Lemilay wouldn’t mind if she took a few hours to work on other things, right? Besides, those schematics were in the trash.
 
-Ersatzica pulled her outpost design from its hiding spot and poured over it. Every little detail seemed to be in place, and everything was a go. Now she just needed materials. She took out the list she started before and finished it. She flipped out a claw one by one while counting off the items she needed. Her long, red hair fell onto the list, so she brushed it aside.
+Ersatzica pulled her outpost design from its hiding spot and poured over it. Every little detail seemed to be in place, and everything was a go. Now she just needed materials. She took out the list she had started before and finished it. She flipped out a claw one by one while counting off the items she needed. Her long, red hair fell onto the list, so she brushed it aside.
 
 Finally, she had a list, and she headed to the door.
 
@@ -2740,11 +2740,11 @@ Muddy pulled out of Ersie’s embrace, dusting herself off. “I feel like takin
 
 “Oh yeah.” Mudrich looked around the shop. “But I don’t see how that helps? Lemilay could very easily see all of this.”
 
-“Well, I… found a new blindspot.”
+“Well, I… found a new blind spot.”
 
 “No way! What is it?”
 
-“Well I can’t tell you, because… because if I talk about it, it doesn’t work.”
+“Well, I can’t tell you, because… because if I talk about it, it doesn’t work.”
 
 Mudrich eyed her suspiciously. “I want to believe you, but I’m worried. You’re a cat, in your workshop, just all casual!”
 
@@ -2784,7 +2784,7 @@ Ersie stashed her outpost designs before following Mudrich to training. On the w
 
 “Let’s just get to training.” Mudrich’s grip on Ersatzica’s wrist grew tighter.
 
-They did training with Wryonin and the late morning lookout wolves. The whole time, Muddy didn’t say anything to Ersatzica except the occasional “Yeah.” and “No.” They finished training with the just the normal amount of scar pain for Ersatzica. As they climbed the staircase back up to the town, Mudrich finally spoke.
+They did training with Wryonin and the late morning lookout wolves. The whole time, Muddy didn’t say anything to Ersatzica except the occasional “Yeah.” and “No.” They finished training with just the normal amount of scar pain for Ersatzica. As they climbed the staircase back up to the town, Mudrich finally spoke.
 
 “Maybe you should destroy the boots.”
 
@@ -2798,9 +2798,9 @@ Mudrich grumbled. “Then we should send it to the peacocks.”
 
 “She’s been ‘testing’ it more than anything.” Mudrich sneered.
 
-“Mudrich, what is with you today? So grouchy.” Wryonin remarked. “No more late night jerky for you.”
+“Mudrich, what is with you today? So grouchy.” Wryonin remarked. “No more late-night jerky for you.”
 
-Ersie pinned her ears back as they got to the top of the stairs. “Well, I’m going to get back to work. See you guys later.”
+Ersie pinned her ears back as they got to the top of the stairs. “Well, I’m going to get back to work. See you all later.”
 
 “Later, Ersatzica.” Wryonin left.
 
@@ -2816,9 +2816,9 @@ She can’t have Mudrich or Lemilay bust in while she’s working, in case she t
 
 She didn’t want to lock them out, but she needed to be able to work in peace.
 
-Reaching for her outpost design, she hesitated. Lemilay said there would be consequences. But, she also said that Ersatzica had until curfew today. Ersatzica had plenty of time. She pulled out her designs anyway.
+Reaching for her outpost design, she hesitated. Lemilay said there would be consequences. But she also said that Ersatzica had until curfew today. Ersatzica had plenty of time. She pulled out her designs anyway.
 
-Just looking at her designs had her face shortening and her tail lengthening. She adjusted a few things about the rock she had noticed during training today. They didn’t effect the design much, but they did give her some ideas. She took out a new sheet and drew in all the wild things her imagination showed her: a stone walkway into the river, a hook for attaching a return rope, and candle holders on the side walls. She didn’t know what she had time to build, but she knew she couldn’t fit all these ideas in. She tossed several papers to the side, stacking up quite a pile next to the window.
+Just looking at her designs had her face shortening and her tail lengthening. She adjusted a few things about the rock she had noticed during training today. They didn’t affect the design much, but they did give her some ideas. She took out a new sheet and drew in all the wild things her imagination showed her: a stone walkway into the river, a hook for attaching a return rope, and candle holders on the side walls. She didn’t know what she had time to build, but she knew she couldn’t fit all these ideas in. She tossed several papers to the side, stacking up quite a pile next to the window.
 
 She smiled giddily as she drew in lots of options for the windows, walls, and extra features. This design was going to be amazing when it was done. But now, she had a problem: so many designs to choose from, and now she had to pare them down.
 
@@ -2826,7 +2826,7 @@ The smell of smoke wafted into her nose, and a warm glow appeared in her periphe
 
 “Crap! Crap! Crap!” She blew on the flames, but they only spread faster. She picked up the nearest object, which happened to be the boots, and hit the table with them as fast as she could. The papers flew everywhere, catching the sheets in the trash on fire, and spreading the flames around her workshop. “Crap!” She grabbed her main outpost design and its materials list and headed out the door.
 
-But the door wouldn’t budge. It was screwed shut! Ersatzica looked around for her screwdriver. It glowed as it reflected the light of the flames it was under. Ersatzica reached out with a cat claw and extracted it from the fire, but it was already too hot too handle.
+But the door wouldn’t budge. It was screwed shut! Ersatzica looked around for her screwdriver. It glowed as it reflected the light of the flames it was under. Ersatzica reached out with a cat claw and extracted it from the fire, but it was already too hot to handle.
 
 *Cough. Cough.* The smoke was getting to her. She was trapped in a burning building, with no way out. But she wasn’t alone. “How-oooo—” She tried howling, but the sound didn’t come out right. She hurriedly put her wolf skin back on. *AWOOOO!* “Help!”
 
@@ -2860,7 +2860,7 @@ Mudrich held Ersie in her arms. “Ersie! Are you ok?”
 
 *Cough, cough.* “I’m… fine, Muddy. Thank you.” She closed her eyes.
 
-“Ersie! Wake up! Hang on, I’ll take you to the medic.” Mudrich ran to the medic building, shaking Ersie with her uneven gait. There at the medic building, Mudrich set Ersie down on the raised bed.
+“Ersie! Wake up! Hang on, I’ll take you to the medic.” Mudrich ran to the medical building, shaking Ersie with her uneven gait. There at the medical building, Mudrich set Ersie down on the raised bed.
 
 “What’s the issue?” Medic Lersha, an old, tall bear, wiped her paws clean as she approached.
 
@@ -2908,9 +2908,9 @@ Lemilay entered without saying anything. She sat on her bed, contemplating.
 
 “What about my designs?”
 
-“I found a schematic on the floor. It looked similar to Uncle Orent’s outpost design. It had a few burnt corners, but was still legible.”
+“I found a schematic on the floor. It looked similar to Uncle Orent’s outpost design. It had a few burnt corners but was still legible.”
 
-Ersatzica breathed a sigh of relief. Her foot started to shift under blanket, so she quickly thought about something else, and her foot went back to normal. “So everything’s ok now?”
+Ersatzica breathed a sigh of relief. Her foot started to shift under the blanket, so she quickly thought about something else, and her foot went back to normal. “So, everything’s ok now?”
 
 “Yeah…” Wryonin said. “Well, no. You see, now we have to figure out how the cats managed to set your workshop on fire…”
 
@@ -2936,13 +2936,13 @@ Wryonin looked away. “Does your screwdriver work on the boot screws?”
 
 “Don’t make this hard for me. Mudrich, get in bed.”
 
-Mudrich quickly climbed in bed.
+Mudrich quickly climbed into bed.
 
 Wryonin hastily blew out the lantern, not even waiting for Lemilay to get comfy.
 
 “It’s ok, Ersie, things will go back to normal soon.” Mudrich whispered to her.
 
-But… what if that’s not what she wanted? What if she wanted things to be different? What if she liked her new normal? God of the Moon, what was she saying? She was a wolf, a wolf! All this cat talk… her siblings were right, she was being cursed by a powerful heirloom. And the only way to get things to go back to normal was to destroy the boots. It was the only way. But how could she? After all that time she spent on them, to just throw them away like that? No. Curse or no curse, she can’t let the boots get destroyed. She would give them away instead.
+But… what if that’s not what she wanted? What if she wanted things to be different? What if she liked her new normal? God of the Moon, what was she saying? She was a wolf, a wolf! All this cat talk… her siblings were right; she was being cursed by a powerful heirloom. And the only way to get things to go back to normal was to destroy the boots. It was the only way. But how could she? After all that time she spent on them, to just throw them away like that? No. Curse or no curse, she can’t let the boots get destroyed. She would give them away instead.
 
 “Psst! Ersatzica, psst!” Lemilay whispered quietly.
 
