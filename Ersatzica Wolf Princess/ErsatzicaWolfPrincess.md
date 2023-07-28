@@ -16,7 +16,7 @@ The wolf's head rose up to eye level as its tail swayed. Its gaze challenged any
 
 Suddenly, its gut was pierced from behind. It held its belly as it bled out. Its knees buckled, but something stopped it from falling. It looked up and behind at its killer.
 
-The cat leader stood there in the moonlight. Her hair flowed in the wind, royal red and maroon. Her face was cast in shadow but her eyes still glowed a bright green. Just below her chest were two drums held up by a band. They were well worn on the top, but the golden trim showed no sign of age. A rolled up scroll hung tightly in the band. Her hands could be mistaken for furry white gloves and her arms for orange sleeves. Her big round belly could not hide its very muscular shape. Her tail floated high in the wind, orange striped and red tipped. Her paws were completely obscured by red gold-trimmed boots. They had an ornate mechanical quality to them, and although they were made of rigid materials, they made no sound when pounding the brick platform.
+The cat leader stood there in the moonlight. Her hair flowed in the wind, royal red and maroon. Her face was cast in shadow, but her eyes still glowed a bright green. Just below her chest were two drums held up by a band. They were well worn on the top, but the golden trim showed no sign of age. A rolled-up scroll hung tightly in the band. Her hands could be mistaken for furry white gloves and her arms for orange sleeves. Her big round belly could not hide its very muscular shape. Her tail floated high in the wind, orange striped and red tipped. Her paws were completely obscured by red gold-trimmed boots. They had an ornate mechanical quality to them, and although they were made of rigid materials, they made no sound when pounding the brick platform.
 
 The wolf's eyes widened and its jaw fell agape. Its face paled and its limbs went weak. With one last breath, it let out a pitiful howl. The sound nonetheless carried throughout the outpost, calling out to its kin. A loud howl erupted from the outpost, warning of the wolf pack that was about to descend onto the cat warriors.
 
@@ -24,7 +24,7 @@ The cat leader signaled to her comrades to advance into the outpost. But before 
 
 The second wolf swung his sword, and it hit its mark. The sword sliced through the torso of the first wolf. The sliced wolf let out a ghastly howl, and the cat leader lowered her spear. The second wolf pulled its face off to reveal that of a cat warrior. Its wolf body transformed instantly into an upright cat body. The disguised cat nodded at the cat leader, then put its wolf face back on, turning fully back into a wolf.
 
-The rest of the wolves were easily cleaned up, but there were more on their way. The cat leader silently tapped her drums three times. Her fellow warriors assumed a battle stance and awaited the ambush of wolves so she could escape. She expertly stalked across the outpost, dodging left and right through the buildings and evading all the rushing wolves. She arrived at an official looking building, one of the few that still had its guards. With two quick strikes she slaughtered them in the throat. They gasped for breath, but no howl carried their spirits.
+The rest of the wolves were easily cleaned up, but there were more on their way. The cat leader silently tapped her drums three times. Her fellow warriors assumed a battle stance and awaited the ambush of wolves so she could escape. She expertly stalked across the outpost, dodging left and right through the buildings and evading all the rushing wolves. She arrived at an official-looking building, one of the few that still had its guards. With two quick strikes she slaughtered them in the throat. They gasped for breath, but no howl carried their spirits.
 
 She stormed through the door and down the halls, taking out any and all guards along the way. She arrived at the most important room. Spear at the ready, she barged in. The room was a small chamber built up with brick and supported with thin log pillars. Moonlight beamed through the open ceiling and reflected off the walls. Across from the cat leader, a figure shrouded in shadow squirmed and writhed on a cot. The cat leader held up her spear as she approached the cot. Soon, she could hear heavy breathing, and realized her foe was weak. Now was the time to strike.
 
@@ -36,7 +36,7 @@ She stopped in her tracks. Her wide eyes darted back and forth at the moonlit sc
 
 "Pantrinome," the wolf mother gently whispered, as if welcoming a friend. "Meet my babies." She took Pantrinome's hand and placed it on the first pup. "This is Wryonin. He's the first one." Pantrinome's claws sheathed as her hand was moved to the next pup. "This one's Lemilay. She's got this pretty birthmark on her forehead." The wolf mother rubbed a thumb lovingly over the second pup's head. Then she brushed some dirt off the third one. "This is Mudrich. I don't know how she manages to get so dirty." Pantrinome's muscles relaxed as her hand lay on the fourth pup. "Meet Ersatzica. She lets the other pups have so many turns, I'm worried she's going to get sick."
 
-Pantrinome let her hand rest on Ersatzica, the fourth pup. Her fur was very soft and her heart very warm. It was like cuddling with siblings in a bed of humog leaves, like laying on a stone patio in the morning sun. Its heart beat like a little drum. *BUM. BUM. BUM.* Then with a little squeak, she woke up. She rolled over, and licked the hand blanketing her.
+Pantrinome let her hand rest on Ersatzica, the fourth pup. Her fur was very soft and her heart very warm. It was like cuddling with siblings in a bed of leaves, like laying on a stone patio in the morning sun. Its heart beat like a little drum. *BUM. BUM. BUM.* Then with a little squeak, she woke up. She rolled over, and licked the hand blanketing her.
 
 All of a sudden, the fuzzy warmth of the pup grew. It crawled up Pantrinome's arm and lodged itself in her heart. It overtook her chest in a big fireball of emotion, pushing out the mechanical drive to wage war. Her pulled back ears pricked forward, her furrowed eyebrows eased, and her downtrodden countenance turned up. An inexplicable euphoria filled her chest cavity. Ersatzica, the newborn pup, had melted her cold heart.
 
@@ -48,7 +48,7 @@ Pantrinome closed her eyes and took a deep breath.
 
 "Take this! You howl-bereaving feline!" *KACHINK!* A sword burst through Pantrinome's lower chest. *SCHIK!* Its blood-tipped blade dripped as it retreated.
 
-Pantrinome held her neck and mimed choking, but did not make any noise. She released her spear. It hit the floor, *klink klink*. She dropped to her knees. She fell to the ground, bleeding.
+Pantrinome held her neck and mimed choking, but did not make any noise. She released her spear. It hit the floor, *clink clink*. She dropped to her knees. She fell to the ground, bleeding.
 
 "Awoomoon!" The wolf chief sheathed his bloody sword and knelt next to the cot. "Are you alright, my dear?"
 
@@ -272,7 +272,7 @@ Ersatzica finally caught up. She trudged towards the group, sighing and panting,
 
 Wryonin and Lemilay exchanged glances. They smiled at each other.
 
-"'The last one there is the snapped twig.' Ersatizca, sister, you're the last one here." Lemilay loomed over her. "You're the snapped twig."
+"'The last one there is the snapped twig.' Ersatzica, sister, you're the last one here." Lemilay loomed over her. "You're the snapped twig."
 
 "What does that mean?" Ersatzica looked up at her.
 
@@ -302,7 +302,7 @@ She looked around instead. On the other side of the river, there was a log stick
 
 "Hurry, before the tide comes in!" Wryonin yelled.
 
-Ersatzica waded in deeper and switched to a swim, keeping her head focused on the tree sticking out of the water. "Paddle, paddle, paddle, focus on the goal." She whispered to herself. Water flowed across her tongue as she gnawed and licked the stick. She paddled with both hands and legs. But as she got further out, her breathing became faster and more exasperated. She stopped paddling for a moment to hold that spot on her stomach. But while she did so, the water carried her further down river, past the outpeeking log. She tried standing up, but the river was too deep. The water pushed her aside and swept her away. She pulled the stick from her mouth and flailed it wildly around her, desperately hoping it would catch on something, anything, but she wasn't close enough to the log. She tried to let out a howl, a cry for help, but her mouth flooded with water and stopped her. The water washed over her and into her, allowing only the slightest opportunity for breath. The dull pain spread through her chest even as she held her belly.
+Ersatzica waded in deeper and switched to a swim, keeping her head focused on the tree sticking out of the water. "Paddle, paddle, paddle, focus on the goal." She whispered to herself. Water flowed across her tongue as she gnawed and licked the stick. She paddled with both hands and legs. But as she got further out, her breathing became faster and more exasperated. She stopped paddling for a moment to hold that spot on her stomach. But while she did so, the water carried her further down river, past the out peeking log. She tried standing up, but the river was too deep. The water pushed her aside and swept her away. She pulled the stick from her mouth and flailed it wildly around her, desperately hoping it would catch on something, anything, but she wasn't close enough to the log. She tried to let out a howl, a cry for help, but her mouth flooded with water and stopped her. The water washed over her and into her, allowing only the slightest opportunity for breath. The dull pain spread through her chest even as she held her belly.
 
 Then the stick tried to free itself from her grip, but her thumb got caught on its twig branch and stopped it. Her arm stretched, pulling her whole weight from the river. She was dragged onto the shore, where her lungs expelled all the water. She coughed, took a breathe, and took in all the air. She looked up at the stick.
 
@@ -358,7 +358,7 @@ Mudrich pulled back but still held on. "Next time I'm going to swim across the r
 
 "She might as well have, with her terrible performance. It's not that hard to run with a drum."
 
-"She has a condition! Have you forgotten about her scar?" Mudrich parted Ersie's stomache fur to reveal a long, thick scar that stretched diagonally from her breast to her belly button.
+"She has a condition! Have you forgotten about her scar?" Mudrich parted Ersie's stomach fur to reveal a long, thick scar that stretched diagonally from her breast to her belly button.
 
 "No, she's right, Mudrich. I should try to keep up better." Ersie batted her hands away and brushed her own belly with her hands.
 
@@ -552,7 +552,7 @@ Ersie set it down. "No, I've been…" Ersie twirled a screwdriver. "…sidetrack
 
 "What, you wouldn't turn into a cat to wear these?" Ersie bumped her.
 
-"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Everytime I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They got good loot." She grabbed the cart and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
+"No, they're fancy. But no fancy boots are worth becoming a cat." Mudrich turned her attention to the cart full of new items. "Cats are the most vile creatures in the whole land. They'd do anything to catch you off guard and they can kill you in an instant. Every time I see a cat, I just want to smash it." She rummaged through the items, landing on the cuffs first. "The only good cat is a dead cat, you know." She examined the cuffs. A blue tint broke out of the dull shine. "But you know what?" She put a cuff on her wrist. "They got good loot." She grabbed the cart and tried to lift it. To her surprise, and despite her awkward grip on its edge, it floated up into the air with her hand.
 
 "Whoa! How are you doing that?" Ersie dropped her tools.
 
@@ -622,7 +622,7 @@ Her breathing increased in speed. She reached for anything. Nothing she picked u
 
 SLAM! The wind came through and knocked the unhinged door to the ground. It was the first noise Ersie had heard in what felt like an eternity. So, the door can still make noise. Why can’t Ersie? She picked up a screwdriver and tossed it at the door. PING! It bounced off the door and under a table. She breathed a silent sigh of relief.
 
-By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
+By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomach fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
 
 This was a bit more than expected. She had hoped that her feet would transform so she could fit in the boots. But how could she be so dense? Of course the transformation would cover her whole body. At least the transformation is only mildly ticklish. It could be worse.
 
@@ -652,7 +652,7 @@ Ersie closed the window blinds. Her corner of the room fell into darkness, conce
 
 "Ersie, is that you?" Mudrich cautiously approached.
 
-"Of course it is, Mu-uh-udrich!" Ersatizca gulped and clapped a hand over her mouth.
+"Of course it is, Mu-uh-udrich!" Ersatzica gulped and clapped a hand over her mouth.
 
 "Are you ok?"
 
@@ -818,7 +818,7 @@ Ersatzica stepped out from behind the tree.
 
 Mudrich opened her mouth for a battle cry, and readied a fist for a punch.
 
-Ersatzica lept over the bush and covered her mouth. "Mudrich!"
+Ersatzica leapt over the bush and covered her mouth. "Mudrich!"
 
 "Oh, sorry. Why are you a cat?"
 
@@ -1372,7 +1372,7 @@ He slapped her. "Mudrich! Daughter of the Chieftess! I'm shocked you would take 
 
 Mudrich whimpered and put Ersatzica down.
 
-Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plushed animal. But so far, there was no blood.
+Uncle Callustar ordered Ersatzica to do a lot more exercises and pushed her to the point of exhaustion. At the end of the hour, Ersatzica checked her scar again. It felt like someone ripping open a plush animal. But so far, there was no blood.
 
 "Morning training complete!" Uncle Callustar howled. "Done!"
 
@@ -1510,7 +1510,7 @@ She clawed the air again with clawless fingers.
 
 “Oh! The boots turned you into a cat!”
 
-She nodded. She mimed clawing in the air again, and this time, claws popped out of her hand. What’s this? So these are claws? ‘Nic stared wide-eyed at them. They were semi-transluscent, curved, and very sharp. Her wolf claws were never this sharp, unless she spent a good amount of time every day sharpening them by hand. She sniffed them, agressively. Perhaps a bit too aggressively. Her sniffing nose collided with her claw and she cut herself. It wasn’t long before it started bleeding. Wow, her claws were sharp! No way she could cut herself that easily on her wolf claws! ‘Nic covered her face with a clawless paw.
+She nodded. She mimed clawing in the air again, and this time, claws popped out of her hand. What’s this? So these are claws? ‘Nic stared wide-eyed at them. They were semi-translucent, curved, and very sharp. Her wolf claws were never this sharp, unless she spent a good amount of time every day sharpening them by hand. She sniffed them, aggressively. Perhaps a bit too aggressively. Her sniffing nose collided with her claw and she cut herself. It wasn’t long before it started bleeding. Wow, her claws were sharp! No way she could cut herself that easily on her wolf claws! ‘Nic covered her face with a clawless paw.
 
 “Here, let me see that.” Fisher reached out to her, but Ersatzica backed away. “Ok, be careful now.”
 
