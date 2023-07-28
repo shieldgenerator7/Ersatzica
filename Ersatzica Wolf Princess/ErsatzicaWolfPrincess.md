@@ -1168,7 +1168,7 @@ Mudrich whimpered. "I wanted the shovel."
 
 "No, Lemilay is arranging for that to be fixed by the carpenter." Wryonin pulled Ersatzica along. "You're going to training."
 
-The trio headed toward the cliff face, where a long zig-zag stone staircase greeted them. The town was built on top of a plateau, and the staircase was the only easy way to get up to the town or down to the river. Centuries old, the staircase had been carved out of the cliff face. It showed signs of smoothing from the rain and a lot of the steps were sloped and rounded. Every year, it became more and more like a slip and slide. Luckily, the pads at the bottom of the wolves' feet provided enough friction to gain traction on the dry stone.
+The trio headed toward the cliff face, where a long zig-zag stone staircase greeted them. The town was built on top of a plateau, and the staircase was the only straightforward way to get up to the town or down to the river. Centuries old, the staircase had been carved out of the cliff face. It showed signs of smoothing from the rain and a lot of the steps were sloped and rounded. Every year, it became more like a slip and slide. Luckily, the pads at the bottom of the wolves' feet provided enough friction to gain traction on the dry stone.
 
 Wryonin led Ersatzica and Mudrich down the stairs to the forested area below. The area was surrounded on the south side by the stone staircase, on the east side by the cliff of the plateau, on the west side by the river beach where Mudrich recently scored a hammer kill, and on the north side by the river where Ersatzica was saved by the cat with a fishing pole.
 
@@ -1760,7 +1760,7 @@ Ersie giggled. “Muddy, your secret is safe with me.”
 
 “Muuuddddy!” Ersie grabbed onto the bed frame and hugged the boots close to her chest.
 
-The bed wobbled to and fro as Muddy waved it around. It creaked with each swing, threatening to snap.
+The bed wobbled back and forth as Muddy waved it around. It creaked with each swing, threatening to snap.
 
 “Muddy put it down!”
 
@@ -1964,7 +1964,7 @@ Ersatzica carried the boots down the village stairs, along the running path, and
 
 “Glad to hear. I’m glad you’re here today, ‘Nic. I got something special to show you.” He climbed up onto the outcropping. He threw down something that blotted out the sun as it landed on ‘Nic’s face.
 
-‘Nic pulled it off and examined it. It was a forest green rectangular cloth. It was very soft and absorbed the water on her hands.
+‘Nic pulled it off and examined it. It was a forest green rectangular cloth. It was incredibly soft and absorbed the water on her hands.
 
 “You can use that towel to dry yourself off. But if you’re wondering, no, that’s not the surprise.”
 
@@ -2384,7 +2384,7 @@ Ersatzica clenched the scar on her stomach.
 
 “And here you are turning into a cat for fun. If you keep going down this path, you’re going to turn into a cat with no way back.” Muddy burst into tears. “And I… I’d lose my… my s-sister… and bes-st… my best friend!” She leaned closer to Ersie, but with a quick glance at her cat form, she scooched away instead and leaned on her elbows.
 
-Ersie looked down at the river. She knew there was a risk. According to the legends, that’s how most wolves are turned into cats. But all those legends also involve a green hat with a red feather, coincidentally. And now she knows it’s the hats, and not some desire for evil. Did she want to turn into a cat for evil? No. And was Fisher evil? No. Had she ever met an evil cat? Well, sure, maybe. But they were all dead by the time she found them, so she couldn’t know. Muddy was ignorant, but she was still her sister. And very concerned and upset. It didn’t feel good to see her sister upset like this.
+Ersie looked down at the river. She knew there was a risk. According to the legends, that’s how most wolves are turned into cats. But all those legends also involve a green hat with a red feather, coincidentally. And now she knows it’s the hats, and not some desire for evil. Did she want to turn into a cat for evil? No. And was Fisher evil? No. Had she ever met an evil cat? Well, sure, maybe. But they were all dead by the time she found them, so she couldn’t know. Muddy was ignorant, but she was still her sister. And genuinely concerned and upset. It didn’t feel good to see her sister upset like this.
 
 “Well, it won’t be forever.” Ersie leaned over and patted Muddy on the back.
 
