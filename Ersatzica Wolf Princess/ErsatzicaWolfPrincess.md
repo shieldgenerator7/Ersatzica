@@ -34,7 +34,7 @@ She stopped in her tracks. Her wide eyes darted back and forth at the moonlit sc
 
 <https://youtu.be/git6DCXSqjE>
 
-"Pantrinome," the wolf mother gently whispered, as if welcoming a friend. "Meet my babies." She took Pantrinome's hand and placed it on the first pup. "This is Wryonin. He's the first one." Pantrinome's claws sheathed as her hand was moved to the next pup. "This one's Lemilay. She's got this pretty birthmark on her forehead." The wolf mother rubbed a thumb lovingly over the second pup's head. Then she brushed some dirt off the third one. "This is Mudrich. I don't know how she manages to get so dirty." Pantrinome's muscles relaxed as her hand lay on the fourth pup. "Meet Ersatzica. She lets the other pups have so many turns, I'm worried she's going to get sick."
+"Pantrinome," the wolf mother gently whispered, as if welcoming a friend. "Meet my babies." She took Pantrinome's hand and placed it on the first pup. "This is Wryonin. He's the first one." Pantrinome's claws sheathed as the wolf mother guided her hand to the next pup. "This one's Lemilay. She's got this pretty birthmark on her forehead." The wolf mother rubbed a thumb lovingly over the second pup's head. Then she brushed some dirt off the third one. "This is Mudrich. I don't know how she manages to get so dirty." Pantrinome's muscles relaxed as her hand lay on the fourth pup. "Meet Ersatzica. She lets the other pups have so many turns, I'm worried she's going to get sick."
 
 Pantrinome let her hand rest on Ersatzica, the fourth pup. Her fur was very soft and her heart very warm. It was like cuddling with siblings in a bed of leaves, like laying on a stone patio in the morning sun. Its heart beat like a little drum. *BUM. BUM. BUM.* Then with a little squeak, she woke up. She rolled over, and licked the hand blanketing her.
 
@@ -118,7 +118,7 @@ Medic Lersha felt for a heartbeat. “Just barely.” She knelt over the dying c
 
 The cat took one last dying breath.
 
-Medic Lersha’s growth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw but didn’t find a kitten.
+Medic Lersha’s growth still dripped blood. “I’m sensing something.” She ripped open the wound with her bear claw but didn’t find the kitten.
 
 "Where is it?" Awoomoon asked impatiently.
 
@@ -336,7 +336,7 @@ Ersatzica howled. "Where?"
 
 Wryonin lifted his muzzle for a howl, "Woods."
 
-Ersatzica found the cat footprints that led into the cat and followed them in. It didn't take long for her to find the boots. Next to them, a cat was laying face down on the ground unconscious. The side of its head had a huge dent in it. She felt for a heartbeat, but there was none. The cat was wearing metal cuffs on its wrists, and a leather belt on its waist. She took them off and put them in the boots. She also snagged the shovel that was on the belt.
+Ersatzica found the cat footprints that led into the cat and followed them in. It didn't take long for her to find the boots. Next to them, a cat was lying face down on the ground unconscious. The side of its head had a huge dent in it. She felt for a heartbeat, but there was none. The cat was wearing metal cuffs on its wrists, and a leather belt on its waist. She took them off and put them in the boots. She also snagged the shovel that was on the belt.
 
 She carried the haul to the boat in one hand and carried the stick in the other. Plopping them all into the boat, she held the stick for a moment. Then she sat in the boat and rowed it across the river. When she got back, she held up the boots. "I got them!"
 
@@ -394,7 +394,7 @@ No one responded.
 
 "Ok." Ersatzica grabbed everything, making sure to save room for the stick.
 
-Mudrich tried picking up Ersie, but got poked in the face by the stick. "Ow." She rubbed her face. "Can you put the stick down?"
+Mudrich tried picking up Ersie, but the stick poked her in the face. "Ow." She rubbed her face. "Can you put the stick down?"
 
 Ersie looked at the stick, then back to Mudrich. "No?"
 
@@ -640,7 +640,7 @@ Finally, as her old skin peeled off her nose, the transformation ended. Her old 
 
 "Ok, now that that's over," Ersie mouthed to herself. "Let's test this out." She walked up and down the workshop, and around various obstacles. Not surprisingly, it was easier to balance once her form stopped changing. It was finally time for the jump test. She jumped in the air. She barely landed back on her feet. Taking a moment to balance, she righted herself.
 
-"Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When the last latch was unbuckled, she could hear her heart pounding in her chest.
+"Ok! Test successful. Now to get out of these boots and back to normal." She sat on a counter and unlatched the boots. When she unbuckled the last latch, she could hear her heart pounding in her chest.
 
 She let out an audible sigh. "Finally! It was rather suffocating not being able to make noise."
 
@@ -1436,7 +1436,7 @@ Ersatzica stared up at the black-furred hand reaching out to her. Was this a tri
 
 “That’s ok.” He shrugged, pulling his hand back. “I’ll be up on the outcropping if you need me.” He climbed up onto the outcropping, sat down on the edge, and let his fishing line hang down into the water.
 
-Ersatzica crawled further up onto the beach. With a big motion she shook, but the water weighing down her fur didn’t fling off. The water dampened her fur. Oh, right. Apparently, cats can’t shake off water like wolves can. It’s so uncomfortable. Maybe the most uncomfortable thing. Aside from drowning, of course. It’s like the hot sweltering heat on a summers day, but hugging her all around. Her fur stuck together as she moved up the beach. She tried a wolf water shake one last time, to no avail. It’s no use. Time to sun dry. She laid down on her back in the sand. No, the sand isn’t comfortable, but maybe a solid rock would be? Wolf Ersie likes laying down on solid rocks. Maybe Cat Ersie will like it too. She looked at the largest rock on the beach, right next to her.
+Ersatzica crawled further up onto the beach. With a big motion she shook, but the water weighing down her fur didn’t fling off. The water dampened her fur. Oh, right. Apparently, cats can’t shake off water like wolves can. It’s so uncomfortable. Maybe the most uncomfortable thing. Aside from drowning, of course. It’s like the hot sweltering heat on a summer’s day, but hugging her all around. Her fur stuck together as she moved up the beach. She tried a wolf water shake one last time, to no avail. It’s no use. Time to sun dry. She laid down on her back in the sand. No, the sand isn’t comfortable, but maybe a solid rock would be? Wolf Ersie likes laying down on solid rocks. Maybe Cat Ersie will like it too. She looked at the largest rock on the beach, right next to her.
 
 Up on the rock outcropping, the fisher cat whistled. It was a happy little tune, perfect for passing the time while fishing. A medium-sized basket sat next to him, waiting patiently to be filled with fish.
 
@@ -1672,7 +1672,7 @@ Ersatzica hugged her knees.
 
 All her pups crawled to her and shared in the group hug.
 
-Mother patted them and squeezed . But then she had to get up. “I love you, my pups.”
+Mother patted and squeezed them. But then she had to get up. “I love you, my pups.”
 
 “Does this mean you won’t be here at bedtime?” Mudrich asked.
 
@@ -1682,7 +1682,7 @@ Mother patted them and squeezed . But then she had to get up. “I love you, my 
 
 And with that, she stepped through the door, leaving her pups to themselves.
 
-“So what do you think the challenges are going to be?” Wryonin examined his slingshot.
+“So, what do you think the challenges are going to be?” Wryonin examined his slingshot.
 
 “Whatever they are, you all better not try to beat me.” Lemilay huffed.
 
@@ -2100,7 +2100,7 @@ Over the next few days, Ersatzica visited Fisher once a day, even though she kne
 
 But it didn’t help her today.
 
-Finally, the day came and Mother asked them what the results were for the census. They all sat down in their barracks and Mother shut the door behind them.
+Finally, the day came, and Mother asked them what the results were for the census. They all sat down in their barracks and Mother shut the door behind them.
 
 “Lemilay?”
 
@@ -2280,7 +2280,7 @@ Ersatzica pointed to a spot between two dots where she knew the boulder to be.
 
 Ersatzica giggled giddily. “Thank you, Mother. I’ll get started on this right away.” She ran off to her workshop. This was totally something she could do. And it was a perfect excuse to go to the boulder, at any time, and stay as long as she wanted.
 
-She ran into her workshop, kicking the unhinged door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Orent’s design as a base, and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever, but then quickly erased it.
+She ran into her workshop, kicking the unhinged door on the way in. She pulled a blank schematic sheet from the cupboard, a pencil from a beaker, and a protractor from a drawer. She sketched the boulder from memory. By this point, she could recall even the little cracks in it. Then she sketched in a lookout design. It used Uncle Orent’s design as a base and had lots of other features. Notably, it had shutters on the windows, a door, and a second door that opened out to the river. She also added a hidden compartment with a secret lever, but then quickly erased it.
 
 *AWOOO!* “Here!” It was Lemilay’s howl!
 
@@ -2300,7 +2300,7 @@ Ersatzica gulped. Her heart beat fast.
 
 “I don’t suppose this design would work on the south side of the cliff?” Lemilay asked.
 
-“Um… no. I mean, I could modify it to work.” Ersatzica looked away and straightened her pencils so they aligned with the cracks in the tables.
+“Um… no. I mean, I could modify it to work.” Ersatzica looked away and straightened her pencils, so they aligned with the cracks in the tables.
 
 “Ersatzica, I know you’re lying to me.” Lemilay whispered in her ear. She threw the design in the trash can. “You’re trying too hard. And unfortunately for me, this task is one that’s more… outside my wheelhouse. But fits squarely in yours. Curious, isn’t it?”
 
@@ -2318,11 +2318,11 @@ Ersatzica nodded.
 
 Ersatzica pulled her schematic out of the trash can, then put it back in. If she used anything other than Uncle Orent’s design, Lemilay would know and would sabotage her. She has to find a way to get around Lemilay’s abilities. But how do you hide something from someone who can always be around to witness it after the fact? And can witness it as many times as she pleases? Ersie could cover her design with another paper as she draws it, but then it becomes unreadable to her in the moment. And Lemilay would still be able to find the real version.
 
-Ersatzica leaned her elbows on the counter, and her head in her hands. She cried. What was she doing? All she wanted to do was build a lookout post. But if she did, she would risk losing everything she’s done over the years. All the schematics, all the projects she built, all the memories she has of her workshop. Lemilay didn’t explicitly say what she was going to do, and she never does. But she implied that she would do something horrible to Ersatzica’s work if she didn’t concede. What should she do?
+Ersatzica leaned her elbows on the counter, and her head in her hands. She cried. What was she doing? All she wanted to do was build a lookout post. But if she did, she would risk losing everything she’s done over the years. All the schematics, all the projects she built, all the memories she has of her workshop. Lemilay didn’t explicitly say what she was going to do, and she never did. But she implied that she would do something horrible to Ersatzica’s work if she didn’t concede. What should she do?
 
-She looked over at the boots. She swallowed some tears, and grabbed the boots. These will help. She can be productive in getting information while escaping from Lemilay’s eternally prying eyes.
+She looked over at the boots. She swallowed some tears and grabbed the boots. These will help. She can be productive in getting information while escaping from Lemilay’s eternally prying eyes.
 
-She left her workshop, not even bothering to try to close the unhinged door. She held the boots in her arms, wrapped in a cover. She took them to the boulder, shed her wolfskin, hid it, and puts the boots on. Cat Ersie waited on the boulder, but no rock came. Ersie squinted at the outcropping across the river, but it still looked the same as it always did: no Fisher. Could he not be there today? Was it already time for him to go back to the cat city?
+She left her workshop, not even bothering to try to close the unhinged door. She held the boots in her arms, wrapped in a cover. She took them to the boulder, shed her wolfskin, hid it, and put the boots on. Cat Ersie waited on the boulder, but no rock came. Ersie squinted at the outcropping across the river, but it still looked the same as it always did: no Fisher. Could he not be there today? Was it already time for him to go back to the cat city?
 
 “CAAAAAAT!” *SLAAAAAM!* An echo wave traveled through the boulder.
 
@@ -2342,7 +2342,7 @@ Ersie rolled over to the other side of the boulder, just barely dodging the hamm
 
 “I *am* ‘the cat’!”
 
-“Oh that was you?”
+“Oh, that was you?”
 
 “Yeah that was me! Don’t hit me!”
 
@@ -2350,7 +2350,7 @@ Ersie rolled over to the other side of the boulder, just barely dodging the hamm
 
 “I’m… sunbathing. It’s a thing… that cats do.” Ersie peeked out over the boulder.
 
-“So this is what you’re doing all those days you disappear?”
+“So, this is what you’re doing all those days you disappear?”
 
 Ersie held out a hand to Muddy, helping her up onto the boulder. “Yeah, more or less.”
 
@@ -2378,11 +2378,11 @@ Ersatzica looked down at her.
 
 “So the story goes.” Ersatzica nodded.
 
-“And I’m worried about you, Ersie. So far you’re the only one who’s managed to use the boots to turn into a cat. What does that say about you? Your soul?”
+“And I’m worried about you, Ersie. So far, you’re the only one who’s managed to use the boots to turn into a cat. What does that say about you? Your soul?”
 
 Ersatzica clenched the scar on her stomach.
 
-“And here you are turning into a cat for fun. If you keep going down this path, you’re going to turn into a cat with no way back.” Muddy burst out into tears. “And I… I’d lose my… my s-sister… and bes-st… my best friend!” She leaned closer to Ersie, but with a quick glance at her cat form, she scooched away instead and leaned on her elbows.
+“And here you are turning into a cat for fun. If you keep going down this path, you’re going to turn into a cat with no way back.” Muddy burst into tears. “And I… I’d lose my… my s-sister… and bes-st… my best friend!” She leaned closer to Ersie, but with a quick glance at her cat form, she scooched away instead and leaned on her elbows.
 
 Ersie looked down at the river. She knew there was a risk. According to the legends, that’s how most wolves are turned into cats. But all those legends also involve a green hat with a red feather, coincidentally. And now she knows it’s the hats, and not some desire for evil. Did she want to turn into a cat for evil? No. And was Fisher evil? No. Had she ever met an evil cat? Well, sure, maybe. But they were all dead by the time she found them, so she couldn’t know. Muddy was ignorant, but she was still her sister. And very concerned and upset. It didn’t feel good to see her sister upset like this.
 
@@ -2424,7 +2424,7 @@ Muddy ran to wolf Ersie and gave her a big hug. “Don’t ever leave me, Ersie.
 
 Ersie’s jaw dropped. “Wait what?”
 
-“Yeah you didn’t know?” Muddy giggled. “Lemilay is powerful, and she can see anything that happens in the past, yes.” Muddy threw a stone into the river. “But she has… let’s say… ‘blind spots’.”
+“Yeah, you didn’t know?” Muddy giggled. “Lemilay is powerful, and she can see anything that happens in the past, yes.” Muddy threw a stone into the river. “But she has… let’s say… ‘blind spots’.”
 
 “Blind spots, ok.”
 
@@ -2446,7 +2446,7 @@ Ersie’s jaw dropped. “Wait what?”
 
 “That’s a real pickle, for sure.”
 
-They took turns tossing stones in the river. The ripples were barely visible as they got carried away in the current. It didn’t take long for Ersie to have an idea, it just took awhile for her to figure out a way to pitch the idea to Muddy.
+They took turns tossing stones in the river. The ripples were barely visible as they got carried away in the current. It didn’t take long for Ersie to have an idea; it just took a while for her to figure out a way to pitch the idea to Muddy.
 
 Ersie eyed the boots. “Muddy, you’re not going to like this…”
 
@@ -2458,7 +2458,7 @@ Muddy’s ears drooped. All the rocks fell out of her arms. She sighed.
 
 # Chapter 8 – Muddy Hut
 
-The next day, Ersatzica went to her workshop to consult the schematics. She calculated how much material she needed, and wrote it down on a piece of paper.
+The next day, Ersatzica went to her workshop to consult the schematics. She calculated how much material she needed and wrote it down on a piece of paper.
 
 Then Lemilay entered. “Good morning, little sister.”
 
@@ -2498,11 +2498,11 @@ Ersatzica waited for her sister to start moving, while Fersen kept going.
 
 “Hold on!” Ersatzica yelled. “Lemilay, you ok?”
 
-“Yeah I’m just searching for something. Go on ahead, scout the location.” Lemilay held out a rolled up sheet of paper.
+“Yeah, I’m just searching for something. Go on ahead, scout the location.” Lemilay held out a rolled-up sheet of paper.
 
 “I’m over here.”
 
-Lemilay moved the paper to be closer to Ersatzica’s voice.
+Lemilay moved the paper closer to Ersatzica’s voice.
 
 “Ok, got it.”
 
@@ -2514,7 +2514,7 @@ Ersatzica met Fersen at the bottom and unrolled the paper. It was a map, with a 
 
 “Thanks. I can’t remember the last time I’ve been to this valley.”
 
-“Yeah it’s pretty off limits. I only come down here to get a special plant that grows here. The apothecary uses it quite often.” Fersen led Ersatzica to the first location. “You know, for medicinal purposes. Though I prefer recreational.”
+“Yeah, it’s pretty off limits. I only come down here to get a special plant that grows here. The apothecary uses it quite often.” Fersen led Ersatzica to the first location. “You know, for medicinal purposes. Though I prefer recreational.”
 
 It was on an embankment that sloped downward into a short flat area, before going into the river. Ersatzica pawed it. “The ground here is rather mushy.”
 
@@ -2528,9 +2528,9 @@ Fersen shrugged.
 
 “Over here.”
 
-The second location wasn’t much better. There was a cluster of trees that completely obstructed the building site. Ersatzica stared into the trees. A twig snapped. She sniffed the air. “Do you smell that?” She entered the cluster of trees. When she got closer, a short-haired orange-striped cat stared back at her. The cat was wearing a tooth on her necklace. She jumped back, and the cat disappeared. “Did you see that?”
+The second location wasn’t much better. There was a cluster of trees that completely obstructed the building site. Ersatzica stared into the trees. A twig snapped. She sniffed the air. “Do you smell that?” She entered the cluster of trees. When she got closer, a short-haired, orange-striped cat stared back at her. The cat was wearing a tooth on her necklace. She jumped back, and the cat disappeared. “Did you see that?”
 
-“Yeah I smell cats over here all the time.” Fersen assured. “But I never see any. The smell gets trapped in this enclosed area I think.”
+“Yeah, I smell cats over here all the time.” Fersen assured. “But I never see any. The smell gets trapped in this enclosed area I think.”
 
 “Yeah, trapped.” Ersatzica peaked back into the trees, but the cat didn’t reappear. “So, this spot: maybe we can move it a little more in this direction?” She gestured to a spot with less obstruction.
 
@@ -2568,7 +2568,7 @@ Lemilay nodded at him, and he left. Then she turned to Ersatzica. “I expect th
 
 “This is your top priority. I know you can do it in that amount of time. Bye.” Lemilay left.
 
-Ersatzica sat down on a bench in the town square, trying to process what just happened. She wants to build the lookout, and find out more about the boots. She wants to make Mother proud by converting the boots, but she also doesn’t want to get on Lemilay’s bad side.
+Ersatzica sat down on a bench in the town square, trying to process what had just happened. She wants to build the lookout and find out more about the boots. She wants to make Mother proud by converting the boots, but she also doesn’t want to get on Lemilay’s bad side.
 
 “Ersie!” Mudrich ran up to her from across the town square.
 
