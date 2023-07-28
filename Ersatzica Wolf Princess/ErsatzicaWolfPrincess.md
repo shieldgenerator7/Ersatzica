@@ -24,7 +24,7 @@ The cat leader signaled to her comrades to advance into the outpost. But before 
 
 The second wolf swung his sword, and it hit its mark. The sword sliced through the torso of the first wolf. The sliced wolf let out a ghastly howl, and the cat leader lowered her spear. The second wolf pulled its face off to reveal that of a cat warrior. Its wolf body transformed instantly into an upright cat body. The disguised cat nodded at the cat leader, then put its wolf face back on, turning fully back into a wolf.
 
-The rest of the wolves were easily cleaned up, but there were more on their way. The cat leader silently tapped her drums three times. Her fellow warriors assumed a battle stance and awaited the ambush of wolves so she could escape. She expertly stalked across the outpost, dodging left and right through the buildings and evading all the rushing wolves. She arrived at an official-looking building, one of the few that still had its guards. With two quick strikes she slaughtered them in the throat. They gasped for breath, but no howl carried their spirits.
+The rest of the wolves were easily cleaned up, but there were more on their way. The cat leader silently tapped her drums three times. Her fellow warriors assumed a battle stance and awaited the ambush of wolves so she could escape. She expertly stalked across the outpost, dodging left and right through the buildings, and evading all the rushing wolves. She arrived at an official-looking building, one of the few that still had its guards. With two quick strikes she slaughtered them in the throat. They gasped for breath, but no howl carried their spirits.
 
 She stormed through the door and down the halls, taking out any and all guards along the way. She arrived at the most important room. Spear at the ready, she barged in. The room was a small chamber built up with brick and supported with thin log pillars. Moonlight beamed through the open ceiling and reflected off the walls. Across from the cat leader, a figure shrouded in shadow squirmed and writhed on a cot. The cat leader held up her spear as she approached the cot. Soon, she could hear heavy breathing, and realized her foe was weak. Now was the time to strike.
 
@@ -166,7 +166,7 @@ Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling 
 
 # Chapter 1 – Ersatzica
 
-"Ok, I'm all ready." A slender, black and white wolf pulls a strap tight around her waist. In her hands she holds two identical sticks with a ball at the end. In between, strapped to her front via a harness, is a faded red drum with freshly tightened material. She pounded the drum once and then twice, and then more in a rhythm.
+"Ok, I'm all ready." A slender, black-and-white wolf pulls a strap tight around her waist. In her hands she holds two identical sticks with a ball at the end. In between, strapped to her front via a harness, is a faded red drum with freshly tightened material. She pounded the drum once and then twice, and then more in a rhythm.
 
 The leaves of the trees around her bounced in time with the drum. Up and down. Up and down. She stared ahead past the drum down the dirt path they were about to take. It was narrow but well-worn. Navigating it would be easy. As the wind blew over her along the path, she pounded the drum at a regular pace.
 
@@ -268,7 +268,7 @@ Lemilay folded her arms across her chest, ears pinned back, and brow furrowed. "
 
 "See? I'm not wet." Mudrich smiled and rested her hammer on her shoulder.
 
-Ersatzica finally caught up. She trudged towards the group, sighing and panting, and dragging her tail. "I'm… I'm here." She leaned her head up against a tree using her arm as a buffer and took rapid short breaths. She placed a hand under the drum to hold a particular spot on her belly.
+Ersatzica finally caught up. She trudged towards the group, sighing, panting, and dragging her tail. "I'm… I'm here." She leaned her head up against a tree using her arm as a buffer and took rapid short breaths. She placed a hand under the drum to hold a particular spot on her belly.
 
 Wryonin and Lemilay exchanged glances. They smiled at each other.
 
@@ -472,7 +472,7 @@ The canine tooth around her neck glowed blue. Awoomoon caressed it.
 
 # Chapter 2 - Boots
 
-In a dark, damp room, a flicker of light squeaked through the cracks around the seams of the window and door. Dirt, grease, and fabric splinters were suspended in the air, and whisked around when the door opened. In stepped Ersatzica, letting in the morning sun. The sun shone behind her, shining on her black fur and reflecting off her white belly fur to illuminate the interior of the workshop.
+In a dark, damp room, a flicker of light squeaked through the cracks around the seams of the window and door. Dirt, grease, and fabric splinters were suspended in the air, and whisked around when the door opened. In stepped Ersatzica, letting in the morning sun. The sun shone behind her, shining on her black fur, and reflecting off her white belly fur to illuminate the interior of the workshop.
 
 She reached over a table full of tools to open the window, letting more sunshine pour in. The walls were lined on all four sides with tables and tables of tools, materials, and projects in progress. The tables even sandwiched the door, making it hard to open the door all the way. More things were hidden in the shelves that lined the walls, and even more things were stashed in the copious amount of space under the tables.
 
@@ -622,7 +622,7 @@ Her breathing increased in speed. She reached for anything. Nothing she picked u
 
 SLAM! The wind came through and knocked the unhinged door to the ground. It was the first noise Ersie had heard in what felt like an eternity. So, the door can still make noise. Why can’t Ersie? She picked up a screwdriver and tossed it at the door. PING! It bounced off the door and under a table. She breathed a silent sigh of relief.
 
-By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomach fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
+By now the tingling sensation had progressed up her legs, waist, and to her belly button. The top half of her was still wolf, but the bottom half was all cat. She ran her wolf fingers through her belly fur. Underneath, her scar was still intact on both sides of the transformation threshold. Her stomach fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed hold of her tail now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it. The tail felt very alien, like an old friend getting a face change, but at the same time like a breath of fresh air.
 
 This was a bit more than expected. She had hoped that her feet would transform so she could fit in the boots. But how could she be so dense? Of course the transformation would cover her whole body. At least the transformation is only mildly ticklish. It could be worse.
 
@@ -632,7 +632,7 @@ Luckily, the transformation remained somewhat pleasant in her front, sweeping ov
 
 The transformation strangled her neck. The back of her neck peeled off in an increasingly painful separation, pulling the skin tight around her throat. She clawed at her throat, but nothing she did helped. It was hard to get a grip with only two finger ligaments. But it, too, soon passed. She took a deep breath. That hurt. But that’s the worst of it, right? Surely it can’t get worse? But it continued.
 
-Her facial expression contorted as it peeled off her face like plastic wrap. Her cheeks wrinkled and softened, and her ears stretched as they resisted departing from the outer skin. The transformation reached into her eye sockets and threatened to pull them out, too. Luckily it subsided around the eyes, and settled for restructuring the eyes as they were in place. Her vision went blurry, and then dark, and then she could see again, but the world was slightly lighter than it was before. Everywhere she looked, a strange glow illuminated what she was focusing on, even as the sun went down.
+Her facial expression contorted as it peeled off her face like plastic wrap. Her cheeks wrinkled and softened, and her ears stretched as they resisted departing from the outer skin. The transformation reached into her eye sockets and threatened to pull them out, too. Luckily, it subsided around the eyes, and settled for restructuring the eyes as they were in place. Her vision went blurry, and then dark, and then she could see again, but the world was slightly lighter than it was before. Everywhere she looked, a strange glow illuminated what she was focusing on, even as the sun went down.
 
 The transformation crept across her muzzle. Her skull snapped toward her face, shortening her muzzle, squishing her teeth together, and contracting her tongue. She stuck her tongue out. It didn't go as far as it did before. She licked her lips. Her tongue was oddly… spiky?
 
@@ -1086,7 +1086,7 @@ Lemilay led the group back to the barracks. Once inside, Wryonin held up the lan
 
 "Nonsense. Training isn’t going to take that long. Besides, it’ll do you some good. Help get your brain engaged.” Wryonin held the lantern down to illuminate the bed under Ersatzica’s.
 
-“Come on, Ersie, it’ll be fun!” Mudrich jumped into bed, landing on her blanket and rolling into a burrito.
+“Come on, Ersie, it’ll be fun!” Mudrich jumped into bed, landing on her blanket, and rolling into a burrito.
 
 "But I can’t. My scar keeps me from doing intense exercise. You know this." Ersatzica fluffed her pillow.
 
@@ -2670,7 +2670,7 @@ A tiny ball of fire sparked deep inside Ersatzica, causing her to curl her fist.
 
 Ersatzica got to work drawing up the schematics, starting with the terrain for the two build sites. She finished the first one quickly. She just added four sticks, one on each corner, which would prop it up to keep it from tipping over in the squishy dirt. Basically, using Wryonin’s ground spears but for a different purpose.
 
-The second one was harder. She started by erasing the trees and working with the ground below. She hadn’t been able to get a good read on the stableness of the ground, so she just assumed it was about the same. She copied the design from the first one over to the second one, adjusting the length of the stabilizing beams as necessary.
+The second one was harder. She started by erasing the trees and working with the ground below. She hadn’t been able to get a good read on the stableness of the ground, so she just assumed it was about the same. She copied the design from the first one over to the second one, adjusting the length of the stabilizing beams, as necessary.
 
 She shrugged. “Well, I guess that’s done.” She twiddled her pencil. She looked around, but Lemilay wasn’t around. She smiled. She pulled out the schematic of the outpost design for the rock. It was as beautiful as the day she drew it up. She ran a finger across the lines. She jumped up in excitement. This design was perfect! With this, she’ll be able to change into a cat whenever she wants, without anyone questioning her. She’ll be able to cross the river and hangout with Fisher way more safely than before. Wait? Was she excited about being able to be a cat? No, no, no. It's not like that. She just wants to see Fisher again so she can learn about the boots, and maybe other heirlooms, and use that newfound understanding to help her family out. To make Mother proud.
 
