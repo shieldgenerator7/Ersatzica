@@ -318,11 +318,11 @@ The cat's ears pinned back, and it winced. It turned around and ran off into the
 
 Ersatzica's heart beat rapidly. She looked around to her left and right, for any signs of other cats. She had made it to the cat side of the river.
 
-A distant howl asked, "You ok?"
+*AWOOOO!* Wryonin howled, "You ok?"
 
-Ersatzica howled back, "Here." She pulled her thumb out of the stick. "Where?" she howled.
+*AWOOO!* Ersatzica howled back, "Here." She pulled her thumb out of the stick. *AWOOO!* "Where?"
 
-"West." The howl replied.
+*AWOOO!* "West.”
 
 She took a deep breath and got to her feet.
 
