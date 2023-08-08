@@ -2953,3 +2953,231 @@ But… what if that’s not what she wanted? What if she wanted things to be dif
 “Yes, why?”
 
 “I hope you learned your lesson.”
+
+# Chapter 10
+
+“WHAT HAPPENED HERE?” Mother burst through their bedroom door, jarring them all awake.
+
+“Wha…what?” Mudrich mumbled.
+
+Ersatzica turned over so she wasn’t facing Mother.
+
+“What happened to Ersatzica’s workshop?” Mother repeated.
+
+No one answered.
+
+“Ersatzica?”
+
+Ersatzica pretended to snore.
+
+“ERSATZICA!”
+
+“Huh? What?” She pretended to wake up.
+
+“What happened to your workshop?”
+
+“Oh my workshop? It, uh… caught fire.”
+
+“How did it catch on fire?”
+
+“I don’t know.” She squeaked.
+
+“Lemilay!”
+
+“Yes, Mother?” Lemilay sat up in her bed.
+
+“How did Ersatzica’s workshop catch on fire?”
+
+“I inspected it right after the incident. The origin of the fire was right below the window on the inside. There were no cats—”
+
+Wryonin shot her a glance.
+
+“There was one cat involved.”
+
+“So a cat did this?”
+
+“Yes.”
+
+“And you want me to believe that a cat waltz right into our village, burned down Ersatzica’s howling workshop, did nothing else, and left? All without anyone even noticing?”
+
+Wryonin hung his head.
+
+“That’s what I saw.” Lemilay confirmed, tail between her legs.
+
+“Mudrich, what did *you* see?”
+
+Mudrich snorted a snore. “Huh?”
+
+“Mudrich!”
+
+“Yeah what? I’m awake.” She rubbed her eyes as she rolled out of bed, plopping onto the floor from the top bunk. She sat up on the floor in front of Ersie’s bed.
+
+“What did you see?”
+
+“I saw three cats, so I smashed them. But these cats had wings, so I had to jump really high and—”
+
+“Not in your dreams, yesterday. At the workshop.”
+
+“Oh! Ersie’s workshop was on fire!”
+
+“Yes, I know.”
+
+“And I saw it on fire. So I smashed the door down.”
+
+“Did you see any cats?”
+
+“Nope.”
+
+“Smell any?”
+
+Mudrich wiggled her nose. “Nope, just fire.”
+
+Mother growled, then left, slamming the door on her way out.
+
+“What was that about?” Lemilay asked Wryonin.
+
+“We can’t tell Mother it was Ersie.” He answered.
+
+“Why not?”
+
+Wryonin didn’t answer. “Come on, girls. Let’s get some breakfast.”
+
+They all went to breakfast. While Ersatzica was still eating, Mother came in.
+
+“Ersatzica, come with me.”
+
+“Yes, Mother.”
+
+Mother led Ersatzica to their bedroom, and shut the door behind them.
+
+“Ersatzica, I need you to be honest with me.”
+
+“Ok.”
+
+“Did you put the boots on yesterday?”
+
+“No, Mother. I didn’t even touch the boots.”
+
+“Were you a cat yesterday?”
+
+Ersatzica gulped. “I was a wolf when I entered, and a wolf when I exited.”
+
+“Were you a cat at any point in between?"
+
+Ersatzica looked to the side.
+
+“Ersatzica?”
+
+“No.”
+
+“Look at me, then answer.”
+
+Ersatzica looked her in the eyes.
+
+“Ersatzica, were you a cat yesterday?”
+
+After building up some courage, Ersatzica responded, “No, Mother, I was not a cat yesterday.”
+
+Mother squinted at her. “Ok, Ersatzica.”
+
+Ersatzica stared into her eyes.
+
+“Are you ok?”
+
+“I’m fine, just got this burn mark.” Ersatzica parted the fur on her chest to reveal a small burn mark in the shape of a paper cut.
+
+Mother turned her head away in disgust.
+
+“Mother?”
+
+She sighed. “Ersatzica, I love you. You know that, right?”
+
+“Yes, Mother.”
+
+“And I would never leave you, understand?”
+
+“Yes, Mother.”
+
+“So I expect the same of you, Ersatzica.”
+
+“Yes, Mother.”
+
+“Promise me you’ll never leave, ok?”
+
+“Yes, Mother.”
+
+“Promise me.”
+
+“I promise you, Mother, I will never leave you.”
+
+“Promise me you won’t ever turn into a cat again?”
+
+“I promise you, Mother.”
+
+“Promise me what?”
+
+“I won’t intentionally turn into a cat again.”
+
+As she sighed, a tear fell from her eye. She grabbed Ersatzica and gave her a big hug. “I love you.”
+
+“I love you, too, Mother.”
+
+She exited the hug and gazed at Ersatzica with a sad smile. “You’re such a pretty wolf. And you’re so good with your tools and your workshop. You make me and your mother proud.”
+
+“But… you *are* my mother.”
+
+Mother’s eyes briefly went wide, then they smiled again. “Yes, yes I am your mother. And I will love you until the day I die.”
+
+Ersatzica nodded.
+
+“So, about your workshop.”
+
+Ersatzica looked at her.
+
+“It’s not safe for you to build there until it gets inspected and rebuilt. We’ll need to find a place for you to work in the meantime.”
+
+“I know a place!” Ersatzica piped up. “You know that rock where I’m building my outpost? I can move my workshop there! I’ll need my tools and all anyway to build my outpost, and while I’m at it, I can work on other projects and stuff.”
+
+“Well, I was going to suggest you go back to sharing Orent’s workshop, but your suggestion makes a lot of sense.”
+
+“So I can do it?”
+
+Mother nodded. “Yes.”
+
+“Oh thank you!” Ersatzica hugged her. “I won’t let you down, I promise!”
+
+“I know you won’t.” Mother smiled.
+
+*AWOOOOO!* “Chief!”
+
+“Ok, I have to go.”
+
+“Bye!”
+
+Ersatzica ran from their bedroom to her workshop. Several wolves were poking around, tearing the bricks apart and removing debris. One of them stopped Ersatzica.
+
+“What are you doing here?”
+
+“I’m just here to see what’s left of my workshop. Is it ok if I look?”
+
+“Sure. As long as you’re not Lemilay.” He laughed.
+
+“Nope, I’m not.”
+
+“Well then, look at your heart’s content.”
+
+The wood cabinets were charred black, with holes on the bottom. Their contents had spilled out like candy from a piñata. Lots of little bits and scraps were burned or melted to the point of uselessness, and the paper was all ash. But among the wreckage, she noticed one sparkling ray of hope: her trusty screwdriver! She dashed in, grabbed it, and got out. The handle was a bit burnt, but the metal part was perfectly fine. Out of all the tools to survive, she was glad it was this one.
+
+“Well, good. You still have your screwdriver!” Uncle Orent snuck up behind her.
+
+“Uncle Orent!”
+
+“Now I don’t have to lend you mine.” He laughed.
+
+“Would you though?”
+
+“Of course. What else do you need?”
+
+“Just a few things.”
+
+Ersatzica followed Uncle Orent to his workshop, where she picked up some tools. Then Mudrich helped her take them to her worksite.
