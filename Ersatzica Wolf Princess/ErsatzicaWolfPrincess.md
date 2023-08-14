@@ -3056,7 +3056,7 @@ Mother led Ersatzica to their bedroom, and shut the door behind them.
 
 “Did you put the boots on yesterday?”
 
-“No, Mother. I didn’t even touch the boots.”
+Ersatzica swallowed. “No, Mother. I didn’t even touch the boots.”
 
 “Were you a cat yesterday?”
 
@@ -3126,7 +3126,7 @@ She exited the hug and gazed at Ersatzica with a sad smile. “You’re such a p
 
 “But… you *are* my mother.”
 
-Mother’s eyes briefly went wide, then they smiled again. “Yes, yes I am your mother. And I will love you until the day I die.”
+Mother’s eyes briefly went wide, then they smiled again. “Yes, yes I am your mother. And I will continue being your mother and I always love you, until the day I die.”
 
 Ersatzica nodded.
 
@@ -3180,4 +3180,62 @@ The wood cabinets were charred black, with holes on the bottom. Their contents h
 
 “Just a few things.”
 
-Ersatzica followed Uncle Orent to his workshop, where she picked up some tools. Then Mudrich helped her take them to her worksite.
+Ersatzica followed Uncle Orent to his workshop, where she picked up some tools.
+
+“I’m really sorry, Ersatzica.” Uncle Orent rummaged through an old tool bin. “It’s a real shame what happened to your workshop.”
+
+“Thank you. I don’t know what happened.”
+
+“Help yourself to anything you want from here.”
+
+“Thanks.”
+
+“Was it the cats?” Uncle Onrent turned his attention to a project on a worktable.
+
+“No, Lemilay says she didn’t see any cats outside when the fire started.”
+
+“Ok, so it wasn’t the cats.”
+
+“Yeah, and don’t tell anyone this, but I wonder if Lemilay caused the fire.”
+
+“Why would your sister do that?” Uncle Onrent grunted as he turned a wrench.
+
+“Because she wanted me to work on her outpost design but I was working on mine.”
+
+“Well that’s not nice of her.”
+
+“Yeah I almost died.”
+
+“Well I’m glad you survived.”
+
+“…Yeah.” Ersatzica put a tool in the cart. “Have you heard of Yotleph?”
+
+“What about Uncle Yotleph?"
+
+“He was your uncle?”
+
+“Yeah. He… went missing years ago. We never found him.”
+
+“He’s dead, and he died in cat territory.”
+
+“Oh well. That’s a real shame. Did the cats find him?”
+
+“Yeah, and they’re using his skull to hide themselves.”
+
+“Well how nifty. Those cats are clever.”
+
+“Yeah. Anyway, thanks for the tools, Uncle Onrent.” Ersatzica loaded the last thing into the cart. “I’m going to go cross the river and talk with the cats about Yotleph.”
+
+“No problem Ersatzica. Say hi to the cats for me.”
+
+“Will do.” Ersatzica left with the cart full of tools.
+
+“Yotleph died in cat territory.” Uncle Onrent chuckled. “Kids say the darndest things.”
+
+On the way out of town, Ersatzica ran into Mudrich. “Hey Muddy! Can you help me take this cart to my new workshop?”
+
+“You got a new workshop? Where? Where?”
+
+“It’s temporary. It’s at my outpost location.”
+
+“Ok! I’ll help.” Then Mudrich helped her take the cart of tools to her outpost worksite.
