@@ -166,29 +166,29 @@ Awoomoon looked over her newborn pups and kitten. She stroked each one, smiling 
 
 # Chapter 1 – Ersatzica
 
-ERZ:"Ok, I'm all ready." A slender, black-and-white wolf pulls a strap tight around her waist. In her hands she holds two identical sticks with a ball at the end. In between, strapped to her front via a harness, is a faded red drum with freshly tightened material. She pounded the drum once and then twice, and then more in a rhythm.
+ERZ:"Ok, I'm all ready." A slender, black-and-white wolf@ERZ pulls a strap tight around her waist. In her hands she holds two identical sticks with a ball at the end. In between, strapped to her front via a harness, is a faded red drum with freshly tightened material. She pounded the drum once and then twice, and then more in a rhythm.
 
 The leaves of the trees around her bounced in time with the drum. Up and down. Up and down. She stared ahead past the drum down the dirt path they were about to take. It was narrow but well-worn. Navigating it would be easy. As the wind blew over her along the path, she pounded the drum at a regular pace.
 
-Three wolves of similar age marched in place around her, syncing themselves up to the beat of the drum. A shorter, stockier, white wolf punched the air in front of her, incidentally shaking off some of the caked mud that had accumulated on her fur. Then she picked up a hammer and swung it wildly to the beat of the drum. A grey and white wolf danced elegantly in place while doing reps with her eyes. Her grey and white fur blurred with the background, but the bald spot on her head was still clearly visible. A black and grey wolf stretched his muscles, flexing them with each drumbeat. A slingshot rested on his waist, attached to his belt.
+Three wolves of similar age marched in place around her, syncing themselves up to the beat of the drum. A shorter, stockier, white wolf@MUD punched the air in front of her, incidentally shaking off some of the caked mud that had accumulated on her fur. Then she picked up a hammer and swung it wildly to the beat of the drum. A grey and white wolf@LEM danced elegantly in place while doing reps with her eyes. Her grey and white fur blurred with the background, but the bald spot on her head was still clearly visible. A black and grey wolf@WRY stretched his muscles, flexing them with each drumbeat. A slingshot rested on his waist, attached to his belt.
 
-The first wolf slowed down the beat of the drum, and the other three slowed their motions immediately. After a brief pause, the beat of the drum ramped up, beating faster and faster. At first it seemed the other three wolves were moving faster of their own accord, but soon they began moving faster than humanly possible. Even the short wolf, with her hammer swings, swung her hammer so fast it became a blur. Their rapid movements matched the drum's insanely fast tempo.
+The first wolf@ERZ slowed down the beat of the drum, and the other three slowed their motions immediately. After a brief pause, the beat of the drum ramped up, beating faster and faster. At first it seemed the other three wolves were moving faster of their own accord, but soon they began moving faster than humanly possible. Even the short wolf@MUD, with her hammer swings, swung her hammer so fast it became a blur. Their rapid movements matched the drum's insanely fast tempo.
 
-ERZ:"Everyone in sync?" asked the wolf with the drum.
+ERZ:"Everyone in sync?" asked the wolf@ERZ with the drum.
 
-LEM:"*Everyone* in sync?" the bald-spotted wolf spoke over her, as if she hadn't said anything.
+LEM:"*Everyone* in sync?" the bald-spotted wolf@LEM spoke over her@ERZ, as if she@ERZ hadn't said anything.
 
-MUD:"I am!" said the white stocky wolf.
+MUD:"I am!" said the white stocky wolf@MUD.
 
-WRY:"Affirmative," declared the wolf with the slingshot.
+WRY:"Affirmative," declared the wolf@WRY with the slingshot.
 
-LEM:"Take us away, Ersatzica," ordered the wolf with the bald spot.
+LEM:"Take us away, Ersatzica," ordered the wolf@LEM with the bald spot.
 
-ERZ:Ersatzica pounded the drums on both sides at the same time, signaling the other three wolves to go. And go they did. They ran faster than should be possible, even for a wolf. Ersatzica ran after them, but was not in sync with the drum, and could only go so far before having to stop and take a breath. Despite this, she kept beating the drum at a rapid pace, rapid enough to keep the other three wolves moving quickly.
+Ersatzica pounded the drums on both sides at the same time, signaling the other three wolves to go. And go they did. They ran faster than should be possible, even for a wolf. Ersatzica ran after them, but was not in sync with the drum, and could only go so far before having to stop and take a breath. Despite this, she kept beating the drum at a rapid pace, rapid enough to keep the other three wolves moving quickly.
 
-LEM:The wolf with the bald spot rolled her eyes into the back of her head as her bald spot glowed. She pulled out a scope and pointed it at the reflective undersides of the treetops. "There's three cats in the forest, two on the shore, and one in the boat. Tell me your strategy."
+LEM:The wolf@LEM with the bald spot rolled her eyes into the back of her head as her bald spot glowed. She pulled out a scope and pointed it at the reflective undersides of the treetops. "There's three cats in the forest, two on the shore, and one in the boat. Tell me your strategy."
 
-The wolf with the slingshot flicked it off his belt, spinning it up into the air in front of him. In a single motion he caught it, loaded it, and fired a rock from it at the same time. It flew seamlessly in the desired direction. "You go distract them over there. Mudrich and I will come up behind them and knock them all out." He nodded at the white wolf.
+The wolf@WRY with the slingshot flicked it off his belt, spinning it up into the air in front of him. In a single motion he caught it, loaded it, and fired a rock from it at the same time. It flew seamlessly in the desired direction. "You@LEM go distract them over there. Mudrich and I@WRY will come up behind them and knock them all out." He nodded at the white wolf@MUD.
 
 MUD:"Yeah!" Mudrich tightened her grip on her hammer.
 
@@ -202,9 +202,9 @@ Trees rushed by them as ran. They were almost there.
 
 LEM:Lemilay opened her eyes and her bald spot dimmed. "That's not a plan. We want to get them off our side of the river, remember Wryonin?"
 
-WRY:"Ok fine," Wryonin huffed. "I'll shoot my noise shot at a tree, and then Mudrich will come out and knock one of them out. From there, we take out the closest cat to Mudrich." He looked at Lemilay. "Is *that* a good plan?"
+WRY:"Ok fine," Wryonin huffed. "I'll shoot my noise shot at a tree, and then Mudrich will come out and knock one of them out. From there, we take out the closest cat to Mudrich." He@WRY looked at Lemilay. "Is *that* a good plan?"
 
-LEM:"Hmmph." Lemilay smiled. "I'll accept it. Ready your shot, Wryonin. Fire in 3…"
+LEM:"Hmmph." Lemilay smiled. "I'll accept it. Ready your@WRY shot, Wryonin. Fire in 3…"
 
 They approached the clearing where a cat guard was stationed. Wryonin loaded his slingshot. Mudrich peeled off from the group.
 
@@ -222,7 +222,7 @@ Mudrich jumped out of the bushes behind the tree with the speed granted to her b
 
 Not missing a beat, another cat on the beach pulled its horn from its belt and blew into it. A voice from another tree yelled, "Retreat!"
 
-She pointed to the horn blower cat and shouted, "You're next!"
+MUD:She pointed to the horn blower cat and shouted, "You're next!"
 
 The horn blower cat took off to the boat, followed closely by the remaining two cats in the forest and the other cat on the beach. One of them carried a pair of mud-covered golden boots.
 
