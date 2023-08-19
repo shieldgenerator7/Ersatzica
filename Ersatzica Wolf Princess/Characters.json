@@ -2,6 +2,7 @@
     {
         "name": "Ersatzica",
         "nicknames": ["Ersie"],
+        "id": "ERZ",
         "species": "Wolf",
         "fur": "black and white",
         "gender": "Female",
@@ -11,6 +12,7 @@
     {
         "name": "Mudrich",
         "nicknames": ["Muddy"],
+        "id": "MUD",
         "species": "Wolf",
         "fur": "all white",
         "gender": "Female",
@@ -20,6 +22,7 @@
     {
         "name": "Wryonin",
         "nicknames": ["Wry"],
+        "id": "WRY",
         "species": "Wolf",
         "fur": "blue-grey and white",
         "gender": "Male",
@@ -29,6 +32,7 @@
     {
         "name": "Lemilay",
         "nicknames": ["Lem"],
+        "id": "LEM",
         "species": "Wolf",
         "fur": "grey, tan, and white",
         "gender": "Female",
@@ -39,6 +43,7 @@
     {
         "name": "Awoomoon",
         "nicknames": ["Mother"],
+        "id": "AWM",
         "species": "Wolf",
         "fur": "blue-grey and white",
         "gender": "Female",
@@ -48,6 +53,7 @@
     {
         "name": "Fisher",
         "nicknames": ["Fish"],
+        "id": "FSH",
         "species": "Cat",
         "fur": "black and white",
         "gender": "Male",
