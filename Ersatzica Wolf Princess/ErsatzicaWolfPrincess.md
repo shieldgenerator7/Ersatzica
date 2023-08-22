@@ -208,17 +208,17 @@ LEM:"Hmmph." Lemilay smiled. "I'll accept it. Ready your@WRY shot, Wryonin. Fire
 
 They approached the clearing where a cat guard was stationed. Wryonin loaded his slingshot. Mudrich peeled off from the group.
 
-"2…"
+LEM:"2…"
 
 The cat guard was holding a mace, wearing body armor and a helmet. Wryonin aimed his slingshot. Mudrich licked her lips and prepared to engage.
 
-"1!"
+LEM:"1!"
 
 Wryonin let loose. The shot hit the tree with an initial thud. The following sound was a crack of lightning and thunder of such intensity it could shatter ear drums. Shattered bark from the tree went flying everywhere: flinging into the air, shooting past the three wolves, and bouncing off the startled cat's helmet.
 
 The cat jumped and fell down in shock, landing on his butt and tail in an awkward way, breaking several tail bones. He didn't have time to contemplate his pain though.
 
-Mudrich jumped out of the bushes behind the tree with the speed granted to her by the drums. This white wolf put all her might into an over-the-head hammer swing, coming down hard on the cat. The helmet didn't save the cat from the blunt-force trauma. The hammer crushed the cat's helmet, shattered its skull, and mashed its brains. Mudrich had put him out of his misery for good. Crimson droplets decorated Mudrich's blank muddy canvas.
+Mudrich jumped out of the bushes behind the tree with the speed granted to her by the drums. This white wolf@MUD put all her might into an over-the-head hammer swing, coming down hard on the cat. The helmet didn't save the cat from the blunt-force trauma. The hammer crushed the cat's helmet, shattered its skull, and mashed its brains. Mudrich had put him out of his misery for good. Crimson droplets decorated Mudrich's blank muddy canvas.
 
 Not missing a beat, another cat on the beach pulled its horn from its belt and blew into it. A voice from another tree yelled, "Retreat!"
 
