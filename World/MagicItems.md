@@ -84,7 +84,7 @@ A tooth amulet that kills anyone who tries to kill the wearer, Final Destination
 
 Wolf
 
-A wolf skull that renders evidence of humanoid presence invisible to those outside its perimeter.
+A wolf skull that renders evidence of humanoid presence invisible to those outside its perimeter. It only works on sight, but does not conceal scent or sounds.
 
 # Quivester’s Feather
 
@@ -122,7 +122,7 @@ A candle that never goes out, as long as it has fuel. It can spread. It can burn
 
 Deer
 
-A pair of antlers that show a peron’s or an object’s true nature when one views it through this pair of antlers into a reflective surface, especially a pool of water.
+A pair of antlers that show a person’s or an object’s true nature when one views it through this pair of antlers. Often used with a reflective surface, especially a pool of water, so the user can see themselves.
 
 # Sash of Soofawkoo
 
@@ -134,7 +134,7 @@ Grants the wearer indestructible fists while punching.
 
 Deer
 
-While the sun shines into the well, the water inside becomes enchanted. Drawing the water from the well allows it to retain its magical properties. When the sunlight leaves the well, all water stops being enchanted by the well.
+While the sun shines directly into the well, the water inside becomes enchanted. Drawing the water from the well allows it to retain its magical properties. When the sunlight leaves the well, all water stops being enchanted by the well.
 
 Enchanted water from the Well of Growth increases the growing speed of plants watered with it by 200%.
 
@@ -237,3 +237,11 @@ I think I wrote about this one before but don’t remember what I called it.
 The wearer of this naturally-grown combined antler can merge antlers into their body and move these merged antlers around at will. They can merge antlers into other antlers and move them around at will.
 
 queRenari-Ko is the current wearer of this heirloom. And she wears a lot of antlers all over her body.
+
+# Wolf Skin Cape of ?
+
+Wolf
+
+Allows its wearer to teleport a short distance in any direction.
+
+Worn by Treescorn (Drathalion)
