@@ -1,5 +1,9 @@
 # Ersatzica Wolf Princess
 
+by shieldgenerator7
+
+Content Warning: blood, gore, emotional abuse
+
 # Prologue – Revenge
 
 <https://youtu.be/OykiLWjpOzY>
