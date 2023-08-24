@@ -1,0 +1,102 @@
+[
+    {
+        "name": "Huripka",
+        "nicknames": ["Awoomoon"],
+        "id": "AWM",
+        "species": "Wolf",
+        "fur": "blue-grey and white",
+        "gender": "Female",
+        "age": "9, 17, 21",
+        "description": "Young wolf of loyalty, daughter of a guard."
+    },
+    {
+        "name": "Awsoodoo",
+        "nicknames": [""],
+        "id": "ASD",
+        "species": "Peacock",
+        "feathers": "white and grey",
+        "gender": "Male",
+        "age": "8, 16, 20",
+        "description": "Ambitious peacock of perfection, son of a master martial artist."
+    },
+    {
+        "name": "Frestian",
+        "nicknames": ["Frestiyen"],
+        "id": "FRS",
+        "species": "Wolf",
+        "fur": "white and grey",
+        "gender": "Male",
+        "age": "26, 34, 38",
+        "description": "Respected night shift guard, moved to peacock village with his daughter."
+    },
+    {
+        "name": "Soofawkoo",
+        "nicknames": [""],
+        "id": "SFK",
+        "species": "Peacock",
+        "feathers": "white and grey, with green rings",
+        "gender": "Male",
+        "age": "30, 38, 42",
+        "description": "Master martial artist, trains young peacocks in the art of Pea-Fo."
+    },
+    {
+        "name": "Pantrinome",
+        "nicknames": [""],
+        "id": "PNT",
+        "species": "Cat",
+        "fur": "orange fur, red hair, red tail tip",
+        "gender": "Female",
+        "age": "21",
+        "description": "Noble cat who yearns for a better future."
+    },
+    {
+        "name": "Pantrinome",
+        "nicknames": [""],
+        "id": "PNT",
+        "species": "Cat",
+        "fur": "orange fur, red hair, red tail tip",
+        "gender": "Female",
+        "age": "21",
+        "description": "Noble cat who yearns for a better future."
+    },
+    {
+        "name": "Pantrinome's Mate",
+        "nicknames": [""],
+        "id": "PMT",
+        "species": "Cat",
+        "fur": "orange fur, red tail tip",
+        "gender": "Male",
+        "age": "22",
+        "description": "Adventurous cat who is a master planner."
+    },
+    {
+        "name": "Medic Lersha",
+        "nicknames": ["Lersha"],
+        "id": "LRS",
+        "species": "Bear",
+        "fur": "brown",
+        "gender": "Female",
+        "age": "45",
+        "description": "Kind bear who takes care of others with her healing powers."
+    },
+    {
+        "name": "Matteti",
+        "nicknames": [""],
+        "id": "MTT",
+        "species": "Wolf",
+        "fur": "grey and white",
+        "gender": "Male",
+        "age": "37",
+        "description": "Guard wolf who is always open to give advice."
+    },
+    {
+        "name": "Feistiven",
+        "nicknames": ["Feisty"],
+        "id": "FST",
+        "species": "Wolf",
+        "fur": "black and white",
+        "gender": "Male",
+        "age": "22",
+        "description": "Son of the wolf chief, has Hindsight, investigates serious crimes."
+    }
+]
