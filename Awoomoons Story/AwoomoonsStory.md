@@ -2,7 +2,7 @@
 
 # Chapter 1
 
-*AWOOO!* A young grey and white wolf howled at the moon in the daylight. "Prey here!" she howled again.
+AWM:*AWOOO!* A young grey and white wolf@AWM howled at the moon in the daylight. "Prey here!" she howled again.
 
 She jumped into the creek from the bank and grabbed at a fish. She missed. The fish wiggled away. She grabbed again, and caught it in her hands! But the fish was slippery, and was able to wiggle out.
 
@@ -14,19 +14,19 @@ She rounded a corner, jumped on the fish, and caught it! She tightened her grip,
 
 A stone came out of nowhere and hit the fish straight in the head. It stopped wiggling as a bruise formed next to its eye.
 
-The wolf pup turned to the bank. "Wow! That was a great shot!"
+The wolf pup@AWM turned to the bank. "Wow! That was a great shot!"
 
-A young peacock stood on the bank with a slingshot. His eyes went wide as he realized that the wolf pup had seen him. He turned around and ran off.
+A young peacock@ASD stood on the bank with a slingshot. His eyes went wide as he realized that the wolf pup@AWM had seen him. He turned around and ran off.
 
-"Wait!" The wolf pup climbed up the bank and ran after. She easily caught him and got in front of him. "Don't run. I'm not going to hurt you. Do you want to be friends?"
+AWM:"Wait!" The wolf pup@AWM climbed up the bank and ran after. She easily caught him and got in front of him. "Don't run. I'm not going to hurt you. Do you want to be friends?"
 
-The peacock blushed and looked away.
+The peacock@ASD blushed and looked away.
 
-The wolf pup held out a hand. "My name is Huripka. What's yours?"
+AWM:The wolf pup@AWM held out a hand. "My name is Huripka. What's yours@ASD?"
 
-The peacock looked at her. "Aw… Awsoodoo." He put a winged hand in hers.
+ASD:The peacock@ASD looked at her. "Aw… Awsoodoo." He put a winged hand in hers.
 
-"Nice to meet you, Awsoodoo." Huripka licked his wing.
+AWM:"Nice to meet you, Awsoodoo." Huripka licked his wing.
 
 Awsoodoo cracked a smile, which he hid by turning away and sheepishly withdrawing his hand.
 
@@ -34,7 +34,7 @@ Huripka moved into his vision. "Do you want to go catch some more fish?"
 
 He looked at her, and then nodded.
 
-"Great! Let's go!"
+AWM:"Great! Let's go!"
 
 They tried the same strategy again. Huripka caught the fish with her hands, and Awsoodoo struck the fish with a rock before it could get away. They caught quite a few more fish. They stopped when Awsoodoo missed and hit the Huripka in the hand.
 
@@ -60,11 +60,11 @@ Awsoodoo froze.
 
 "It was an accident." Huripka cut in.
 
-"So you did!" His oldest brother got up in his face. "How could you?" He pushed him.
+"So you@ASD did!" His oldest brother got up in his face. "How could you?" He pushed him.
 
 "Hey! Leave him alone!" Huripka growled.
 
-"Aw the little doggy is standing up for the cowardly birdy." Another brother knelt in front. "You gonna let this wolf pup fight your battles for you?" He shoved Awsoodoo, knocking him to the ground.
+"Aw the little doggy@AWM is standing up for the cowardly birdy@ASD." Another brother knelt in front. "You@ASD gonna let this wolf pup fight your@ASD battles for you@ASD?" He shoved Awsoodoo, knocking him to the ground.
 
 Huripka barked and dove on one of their feet. She grabbed it with her hands and squeezed tight.
 
@@ -84,7 +84,7 @@ Huripka growled.
 
 Huripka didn't see it coming. She got hit straight in the face and went flying back.
 
-The peacock stood over her. "Ha. 'Good at fighting', sure. You're weak." He looked at his younger brother. "Just like your friend. Leave now, wolf pup, while you still can."
+The peacock stood over her. "Ha. 'Good at fighting', sure. You're@AWM weak." He looked at his younger brother. "Just like your friend@ASD. Leave now, wolf pup@AWM, while you still can."
 
 A tear formed in Huripka's eye as she sat up. She furrowed her eyebrows and bared her teeth. She growled as she stood back up.
 
@@ -114,11 +114,11 @@ The other peacocks caught up quickly, but by the time they did, they were in sig
 
 "Yes, sir." She nodded.
 
-"Yeah she cried injury!" The older peacock brother cut her off. "We heard her cries too, and when we got to the scene, this runt—" he kicked Awsoodoo. "—was hitting her with rocks." He hid his bit wing behind his back, taking great care to make sure the wolf guards didn’t see it.
+"Yeah she cried injury!" The older peacock brother cut her off. "We heard her cries too, and when we got to the scene, this runt@ASD—" he kicked Awsoodoo. "—was hitting her with rocks." He hid his bit wing behind his back, taking great care to make sure the wolf guards didn’t see it.
 
 Awsoodoo hung his head.
 
-"That's not true! That's not true!"
+AWM:"That's not true! That's not true!"
 
 The guards ignored her. "We'll take it from here. You're free to go."
 
@@ -130,11 +130,11 @@ Huripka looked up at the light shining through the roof. She sat on the bench an
 
 Awsoodoo grabbed onto the bars and peered his head out between them. "Hu… Huripka?"
 
-"Yeah?"
+AWM:"Yeah?"
 
-"I'm sorry… I got you into this."
+ASD:"I'm sorry… I got you into this."
 
-"No, you're my friend." Her growl subsided. "Friends stick together."
+AWM:"No, you're@ASD my friend." Her growl subsided. "Friends stick together."
 
 "Friends stick together." Awsoodoo smiled.
 
