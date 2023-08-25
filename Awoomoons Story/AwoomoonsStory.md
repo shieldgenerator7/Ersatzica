@@ -30,7 +30,7 @@ AWM:"Nice to meet you, Awsoodoo." Huripka licked his wing.
 
 Awsoodoo cracked a smile, which he hid by turning away and sheepishly withdrawing his hand.
 
-Huripka moved into his vision. "Do you want to go catch some more fish?"
+AWM:Huripka moved into his vision. "Do you want to go catch some more fish?"
 
 He looked at her, and then nodded.
 
@@ -52,7 +52,7 @@ A look of panic overtook Awsoodoo. He grabbed his slingshot and ran off.
 
 "What is that?" Huripka followed.
 
-"My brothers."
+ASD:"My brothers."
 
 No sooner did he say that, than three older peacocks with fully splayed tails show up. They immediately noticed the wolf pup caressing her hand. "Awsoodoo, did you hurt this poor wolf pup and cause her to howl in pain?"
 
@@ -62,7 +62,7 @@ Awsoodoo froze.
 
 "So you@ASD did!" His oldest brother got up in his face. "How could you?" He pushed him.
 
-"Hey! Leave him alone!" Huripka growled.
+AWM:"Hey! Leave him alone!" Huripka growled.
 
 "Aw the little doggy@AWM is standing up for the cowardly birdy@ASD." Another brother knelt in front. "You@ASD gonna let this wolf pup fight your@ASD battles for you@ASD?" He shoved Awsoodoo, knocking him to the ground.
 
@@ -78,7 +78,7 @@ Huripka growled.
 
 "I am trained in Pea-Fo." He swirled his wings gracefully in the air, then made three swift punches.
 
-"I'm good at fighting too!" Huripka barked.
+AWM:"I'm good at fighting too!" Huripka barked.
 
 "We'll see about that." The Pea-Fo trained peacock sent a quick punch flying at Huripka.
 
@@ -94,7 +94,7 @@ Awsoodoo got up and ran over to Huripka, but he got tripped. "Awooo!" He tried t
 
 “Did you just try to howl?” His older brother laughed as he grabbed him by the legs and held him upside down. "You really suck at it."
 
-Huripka propped herself up on her elbows and turned her muzzle towards the moon. *AWOOOO!* "Injury!" *AWOOOOO!* "Injury!" Her howls her pitiful but determined. They rang out loud and carried far and wide. They echoed off the trees. *AWOOOO!*
+AWM:Huripka propped herself up on her elbows and turned her muzzle towards the moon. *AWOOOO!* "Injury!" *AWOOOOO!* "Injury!" Her howls her pitiful but determined. They rang out loud and carried far and wide. They echoed off the trees. *AWOOOO!*
 
 The peacocks looked around hastily. "Shut her up! Shut her up!"
 
@@ -112,7 +112,7 @@ The other peacocks caught up quickly, but by the time they did, they were in sig
 
 "What's the trouble? Are you the wolf crying injury?" The wolf guards looked down at Huripka.
 
-"Yes, sir." She nodded.
+AWM:"Yes, sir." She nodded.
 
 "Yeah she cried injury!" The older peacock brother cut her off. "We heard her cries too, and when we got to the scene, this runt@ASD—" he kicked Awsoodoo. "—was hitting her with rocks." He hid his bit wing behind his back, taking great care to make sure the wolf guards didn’t see it.
 
