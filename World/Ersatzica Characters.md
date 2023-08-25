@@ -44,7 +44,7 @@ aka Huripka (as a young wolf)
 
 Awoomoon’s peacock best friend growing up.
 
-# Fawsookoo
+# Soofawkoo
 
 Awsoodoo’s father. Peacock.
 
@@ -76,6 +76,6 @@ Wolf training coach. Awoomoon’s older brother. Ersatzica’s uncle. War vetera
 
 *The wolf at the head of the formation led them in stretches. He was missing an arm. Nevertheless, his tall stature and muscular frame combined with his scowling face made him rather intimidating.*
 
-# Onrent
+# Orent
 
-Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts. Will eventually fix the door to Ersatzica’s workshop.
+Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts.
