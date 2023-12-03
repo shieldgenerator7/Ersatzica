@@ -2,10 +2,6 @@
 
 Each species has their own god that most of the population follows.
 
-# Cat
-
-Axcil, Cat God of Happiness
-
 # Wolf
 
 Alpha, Wolf God of the Loyal Moon
@@ -13,6 +9,10 @@ Alpha, Wolf God of the Loyal Moon
 # Deer
 
 aDirada-Do, Deer Goddess of Truth & Nature
+
+# Cat
+
+Axcil, Cat God of Happiness
 
 # Peacock
 
