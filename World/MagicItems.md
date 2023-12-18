@@ -86,6 +86,8 @@ Wolf
 
 A wolf skull that renders evidence of humanoid presence invisible to those outside its perimeter. It only works on sight, but does not conceal scent or sounds.
 
+It can be ship of theseus’d, but the smaller pieces produce a smaller radius.
+
 # Quivester’s Feather
 
 Cat
@@ -158,11 +160,11 @@ Wolf
 
 Artyr was a merciless warrior. He would maim his foes and then drink their blood while they were still alive and conscious, but immobilized.
 
-He died in a last stand against a battalion of cats. His adreline-filled blood became an heirloom when he was felled.
+He died in a last stand against a battalion of cats. His adrenaline-filled blood became an heirloom when he was felled.
 
 Drinking a drop of blood grants thickened skin, increased muscle capacity, and an insatiable desire to kill. Perhaps also an increased healing factor? The effect wears off when the user pees out all the blood.
 
-Ship of Theseus: As long as the user has at least one Artyr blood cell in their body, they gain the full effects. Drinking more Artyt blood only increases the likely duration of the effect.
+Ship of Theseus: As long as the user has at least one Artyr blood cell in their body, they gain the full effects. Drinking more Artyr blood only increases the likely duration of the effect.
 
 The blood cells are immune to being digested.
 
@@ -245,3 +247,11 @@ Wolf
 Allows its wearer to teleport a short distance in any direction.
 
 Worn by Treescorn (Drathalion)
+
+# Zayhard’s Shard
+
+?
+
+*“Don’t touch that!” yelled Granfork. “That’s Zayhard’s shard! It’ll cut anything made of flesh!”*
+
+Source: Ersatzica 2015
