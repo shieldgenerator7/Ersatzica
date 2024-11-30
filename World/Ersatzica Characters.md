@@ -79,3 +79,7 @@ Wolf training coach. Awoomoon’s older brother. Ersatzica’s uncle. War vetera
 # Orent
 
 Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts.
+
+# Magystra
+
+Cat spy. She’s Ersatzica’s cousin by blood, and looks almost exactly like her, to the point people often mistake one for the other. She uses a tooth from Yotleph’s Skull to make herself undetectable as she snoops around the wolf village. She wants to help conquer the lands beyond the mountains and become a ruler away from the Cat Kingdom.
