@@ -3,13 +3,25 @@ Ersatzica Key Scenes
 This document is a list of key scenes in the story. Its purpose is to help me organize my thoughts. Some scenes might be connected together.
 
 -   Wryonin complains to Ersatzica about modifications she made to his slingshot
+-   Mudrich and Ersie test out the drums
+-   Cats invade the forest
+-   A howl says to retreat
+-   Ersatzica uses the drums to speed up Mudrich, Wryonin and Lemilay join in on the fight
 -   Mudrich fights some cats and gets injured
 -   Wryonin shoots a cat dead from across the map
 -   Ersatzica crosses the river, gets saved my Fisher
--   Ersatzica finds the boots
+-   Ersatzica retrieves the cuffs
+-   Mudrich gets the cuffs
 -   Ersatzica assures Mudrich she’s not stupid
+-   Mudrich punches hole in wall
+-   Ersatzica finds the boots
 -   Ersatzica fixes the boots
+-   Mudrich breaks Ersie’s workshop door
 -   Ersatzica wears the boots for the first time
+-   Cat Ersatzica escapes to the cat outpost, possibly with the help of Fisher and Magystra
+-   Awoomoon tasks Lemilay with finding Ersatzica
+-   Lemilay mistakenly runs into Magystra, but nothing happens
+-   Fisher helps Ersatzica across the river, then they go back
 -   Ersatzica hangs out with Fisher
 -   Fisher teaches Ersatzica how to be a cat
 -   Fisher shows Ersatzica heirloom encyclopedia
@@ -19,7 +31,6 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 -   Ersatzica leaves behind her wolf skin, Magystra steals it
 -   Ersatzica’s shop burns down
 -   Lemilay rejects Ersatzica, and chooses fake Ersie (Magystra)
--   Mudrich and Ersie test out the drums
 -   Awoomoon tasks them to build lookout posts
 -   Cat Ersatzica is asked what she is, and she says she’s a wolf
 -   Cat Ersatzica learns to use her cat claws in a unique way for inventing
