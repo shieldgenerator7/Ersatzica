@@ -4,6 +4,8 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 
 # Chapter 1
 
+Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
+
 -   Wryonin complains to Ersatzica about modifications she made to his slingshot
 -   Mudrich and Ersie test out the drums
 -   Cats invade the forest
@@ -19,6 +21,8 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 
 # Chapter 2
 
+Summary: Ersatzica finds the boots, fixes the boots, becomes cat
+
 -   Ersatzica finds the boots
 -   Ersatzica fixes the boots
 -   Mudrich breaks Ersie’s workshop door
@@ -26,22 +30,39 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 
 # Chapter 3
 
+Summary: Cat Ersatzica escapes to cat outpost
+
 -   Cat Ersatzica escapes to the cat outpost, possibly with the help of Fisher and Magystra
 -   Awoomoon tasks Lemilay with finding Ersatzica
 -   Lemilay mistakenly runs into Magystra, but nothing happens
--   Fisher helps Ersatzica across the river, then they go back
+-   Fisher helps Ersatzica across the river, then they go back to cat outpost
+-   Magystra is stuck overnight in wolf village
 
 # Chapter 4
 
+Summary: Ersatzica spends a day as a cat
+
 -   Ersatzica hangs out with Fisher
 -   Cat Ersatzica is asked what she is, and she says she’s a wolf
+-   Fisher teaches Ersatzica how to be a cat
 
 # Chapter 5
 
--   Fisher teaches Ersatzica how to be a cat
+Summary: siblings rescue Ersatzica
+
+-   Lemilay uses hindsight to track down Ersatzica
+-   Wryonin and mudrich cross river in boat
+-   Ersatzica greets them
+-   They take her back to wolf village, gives her back wolf skin
+-   Magystra comes back to cat outpost
+-   Magystra claws out Fisher’s eye
 
 # Chapter 6
 
+Summary: Ersatzica ponders being a cat while doing the first chief training task
+
+-   Awoomoon tasks them to census the wolf village
+-   Ersatzica sneaks off to hang out with Fisher
 -   Fisher shows Ersatzica heirloom encyclopedia
 
 # Chapter 7
@@ -49,9 +70,6 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 -   Lemilay catches Magystra, makes a deal with her
 
 # Chapter 8
-
--   Awoomoon tasks them to census the wolf village
--   Magystra claws out Fisher’s eye
 
 # Chapter 9
 
