@@ -158,4 +158,58 @@ Ersie’s stomach growled.
 
 “Come on, Ersie, let’s go eat.”
 
-They were a bit late to the mess hall. Most wolves were already finished eating and tossing their leftover bones onto the bone pile.
+They were a bit late to the mess hall. Most wolves were already finished eating and tossing their leftover bones onto the bone pile. Ersie helped herself to some of the leftovers, taking it with her.
+
+Muddie looked up from picking through the bone pile. “Where you going?”
+
+“Back to my workshop.”
+
+“But it’s such a nice day out! Let’s go down to the river.”
+
+“But I don’t want to eat where it’s wet.”
+
+“Just eat on the way. Come on!”
+
+Ersie followed Muddie to the river, eating her rations as she went. She finished well before they walked down the cliff stairs, through the forest, and to the river. She left a trail of bones as she went.
+
+“So why the river?”
+
+“I want to show you something.”
+
+Muddie led her to big rock by the river, so close it was literally part of the river bank. The river roared up next to the boulder, threatening to swallow it up.
+
+“It’s a boulder.”
+
+“Not just any boulder!” Muddie tapped the boulder gently with her hammer. *TING TING*. “See?”
+
+“That’s just the noise boulders make.”
+
+“No, it’s not!” Muddie insisted. “I think there’s something inside it.”
+
+“Like what?”
+
+“I don’t know, minerals maybe?”
+
+“Well if it did, why hasn’t it been mined yet?”
+
+“Because it’s been buried under a hole bunch of dirt, until recently.” Muddie jumped onto the boulder island. “The river and I have done a fine job of finding it.” Muddie danced on the boulder.
+
+Ersie, with the drums still attached to her side, banged on them. *BUM BUM BUM*
+
+“Oh yeah!” Muddie danced to the music.
+
+Muddie danced to the beat of Ersie’s drums .
+
+“Whoa!” Muddie’s eyes went wide. “Did you feel that?”
+
+“No, what happened?” *BUM BUM BUM*
+
+“I’m not sure.” Muddie let her hands relax and her feet rest, but they didn’t want to. “Hey! Hey! Hey!”
+
+“What’s wrong Muddie?”
+
+“Stop playing the drums!”
+
+*BUM BUM—*
+
+“Whew!” Muddie took a deep breath
