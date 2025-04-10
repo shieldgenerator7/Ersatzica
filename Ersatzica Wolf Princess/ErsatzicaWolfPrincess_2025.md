@@ -884,6 +884,178 @@ Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it 
 
 “Hold on Muddie! It’s going to take a while. They probably won’t be ready today.”
 
-“Ok.” Muddie left Ersatzica to her work.
+“Ok.” Muddie pushed open the door to Ersie’s workshop, then set the boots down on her desk. “See you in a muddy!”
 
-Ersatzica sat her next patient onto her desk.
+“It’ll be longer than a muddy.”
+
+“Ok, see you in an ersie!”
+
+“Bye, Muddy.”
+
+The boots had been sitting in a cool, dry place for a very, very long time. They were covered in, and filled with, dust. Ersie gently tapped them in in various directions to get the dust out. She wiped down every surface she could, making sure to keep her nose strapped shut. Still, she sneezed a few times, necessitating opening the window.
+
+Finally she was able to see what she was dealing with: Red metal imperial boots with gold plating. It had patches where the paint had been chewed down. It was very mechanical for a pair of boots: a spring from the heel to the sole, gears in the middle, and a sliding mechanism that separated the rest of the boot from the ground. It was very stubborn in moving, making it difficult to tell what the mechanism was for. But that wasn’t anything a little oil couldn’t fix.
+
+After a good oiling, scrubbing, and polishing, the boots sparkled like new. Even the missing paint splotches looked fantastic, gave it character.
+
+A blue streak flashed across the boots for but a moment.
+
+“Happy now? You’re looking so much better!” Ersatzica gave the boots a few wolf kisses, polishing the boots with the resulting saliva afterwards.
+
+The boots were very enticing. The best part of refurbishing an heirloom was always getting to try it out, to see what it could do. Even the disappointing effects were interesting. But without being able to fit into them, there didn’t seem to be a way to test them out.
+
+*KNOCK KNOCK*
+
+“Come in.” Ersatzica said, not taking her attention from the boots.
+
+“Erse’, it break again.”
+
+Ersatzica turned around. It was Tormael, the town chef. He stood just outside the workshop. His large frame almost matched the door opening. He held his hand out, dangling a pickled wolf foot from a string. It was covered in ice crystals. “Oh, no problem. I can fix that for you.”
+
+Tormael dropped the foot as she reached out for it. “See you tomorrow.”
+
+Ersatzica barely caught it. “Oh, I’ll have it fixed here in a few minutes.”
+
+“Tomorrow. I go now.” He walked away.
+
+Ersatzica put the foot on a shelf. Then she turned back to the boots. No use in fixing it soon if it won’t be needed until tomorrow.
+
+The boots called to her. She embraced them in both her arms. The boots felt warm and welcoming, as if they were hugging her back. She had felt connections like this to other heirlooms, but none as strongly as this one.
+
+She placed the boots on the ground, and scooted her stool to be right next to them. She tried to slip a wolf foot in, but it wouldn’t fit, even with the latches swung all the way open.
+
+“I promise Alpha, I wish I could try you on. To see what you are, to learn more about you.”
+
+It was as if Alpha himself had granted her a wish, from a top his perch on the moon.
+
+A feeling started in her toes. It was tingling, a slight numbness, like her fur was being pulled. Then the tips of her toes cracked and flipped upwards, disappearing into her foot. The white fur of her wolf socks ceded way to an orange, stripy fur. But more importantly, they were now smaller.
+
+Ersatzica clapped in excitement, giddy about a wish coming true. How did it happen, and why? That wasn’t important.
+
+She dipped her toes into the boots, which hugged her feet, welcoming them inside. The orange fur crept up her foot, her ankle, and her calves, letting her fit snugly into the boots.
+
+Without clasping the boots, she lifted them up, one by one, to see how heavy they were. Despite being made of metal, they felt light enough to move about easily. She walked around her workshop a little, stomping about, clanging the metal boots on the stone floor. Then she returned to her stool.
+
+Reaching down, she clasped the boots shut, paying no mind to the orange fur at her knee. Instead, the world around her demanded her attention. The door, it creaked? Even when shut and stationary? The wind blew through its cracks, around the workshop, and out the window, pushing the pane ever so slightly to make occasional scraping noises, and jittering the jars ever so slightly. The whipper-whirls outside were singing their nightly songs from their nests all the way down by the river. And the townsfolk! The walls usually muffled their voices into unintelligible murmurs, but now they were unmistakable whispers.
+
+“Is this what it’s like to be Wryonin, all the time?” She wondered. She said it out loud, but this time, she didn’t hear her own voice. She got up and stomped around the workshop. No noise. She took her screwdriver and tapped it on the counter. No noise. She picked up the frozen wolf foot, and smashed it with a hammer. No noise. She picked up an ice shard and threw it at the door. It made a small *PIP* when it hit, and a small *PAT* when it fell to the floor.
+
+She sat down and unlatched the boots. Immediately the world fell silent, and her breathing spoke up again.
+
+“You give super hearing and silent stepping! That’s wonderful!” Ersatzica slipped the boots off. “You have such an amazing effect. Whoever gets you is going to really enjoy…”
+
+The orange fur crept up her thighs. It was almost to her groin area.
+
+“Oh, and you also turn wolves into cats?” She brushed the transition line with her paw, as if she was pulling a skirt down. “You have more effects than most. You really are quite special.” She whimpered. The orange fur didn’t stop advancing. “But you can stop now. I took you off, that means you have to stop effecting me.”
+
+Ersatzica jumped off her stool and walked away from the boots. The orange fur kept advancing. “This isn’t right.” She demanded.
+
+The boots gave off warm, positive vibes. They offered her a consoling, welcoming hug.
+
+“No, no, no.” Ersatzica frantically threw open her cupboards. “This can’t be happening.” She pulled out a lock that was rusted shut and quickly strapped it to her waist. “This ends now.”
+
+A blue shimmer crossed the lock. It seemed to bolt shut tighter than it already was. The strap around Ersatzica’s waist tightened like thorny vines.
+
+Still, the orange fur advanced up her legs to her waist, crossing the strap into her belly. In fact, it sped up, reaching her tail and quickly turning it from black to orange, and topping it off with a red tuft.
+
+She grabbed her tail in shock. It was a cat’s tail. “I didn’t need *this*! I just wanted to fit into the boots!”
+
+Her eyes widened. Of course! You don’t put Ordaent’s Lock on the victim of the heirloom, you put it on the heirloom itself! That’ll stop its effects!
+
+She unstrapped herself and strapped the boots together. The boots protested as she strapped them to the lock, and it broke her heart to do so, but she couldn’t live as a cat. Usually transformation heirlooms reversed their transformation when taken of or removed, but if this one wasn’t going to, she had to take every measure she could to protect herself. Even if that meant making an heirloom unhappy.
+
+Remorsefully, the boots accepted the lock’s effects. The blue shimmer on the boots dimmed.
+
+But the transformation didn’t slow. In fact, it got more painful. The skin near the base of her tail peeled off, dangling on her back as the transformation continued.
+
+“I’m sorry! I’m sorry!” Ersatzica cried. She unstrapped the lock from the boots, letting the lock slip off her desk and clang onto the floor. The blue shimmer returned to the boots. “Please stop! Please just stop!”
+
+*AWOOO—* She turned her muzzle up to cry for help, but stopped herself. What if she was a cat when help came? How would the others respond? There’s no way to know. Best to wait it out, and figure it out from there.
+
+She put the boots on, and latched them up. Now she could let out all the howls of pain she wanted without attracting unwanted attention.
+
+But it was *painful*. The skin peeling moved up her back, tormenting her sensitive nerves, and pulling at her new orange fur. It wasn’t even in a place she could lick easily. She howled silently.
+
+The orange fur advanced down her arms, slightly changing their proportions, and flinging her finger tips back into her fluffy hand paws. She drove her fists into her legs to try and quell the pain in her neck, but instead found a new pain: several sharp knives stabbing her thighs. She pulled her hands back, howling silently in pain.
+
+Her old wolf skin hung from the back of her head, as the hairs were pulled out one by one as it peeled itself off her scalp. Then, as if taking off a mask, her face peeled off, starting at her forward, reaching down around her eye sockets, and down her nose. Her muzzle snapped back into her face, leaving her old skin feeling like a wet rag on her nose. Her new jaw was full of teeth just as sharp. Finally, with her cheeks peeling off in one last painful burst, she was free of her old wolf skin.
+
+She shrieked in disgust as she shook violently to get her old skin off. But it was as if her muscles didn’t know how. She just awkwardly shook her head back and forth instead. Finally, she gingerly picked up the skin by the nose and flipped it over her head, jumping to the other side of the room as it landed.
+
+Her heart beat rapidly as she assessed her new condition. Using a mirror, she found that her face was much smaller, and oranger, with a white muzzle. Her green eyes glowed even in the night’s darkness. Red hair flowed from her head to her shoulders, where her orange-striped arms attached. She had white gloves, and a strange arrangement of knuckles, with no claws? Ah, there were claws, just hidden.
+
+The rest of her body was all orange. Surely, there’s such a thing as an orange wolf, right? Just because she’s smaller than before, orange, and have feet that can fit into a cat’s boots, doesn't mean she’s a cat, right?
+
+The cat boots around her feet hugged her, comforted her, welcomed her to cathood.
+
+Ersatzica shook her head. This can’t be happening. It didn’t work! The treacherous lock didn’t work! It was supposed to stop the heirloom from working, but it didn’t! And these boots! How did they have so many effects?? That’s not how heirlooms are supposed to work!
+
+Ersatzica slumped onto her stool, buried her face in her hands, and cried.
+
+“Ersatzica!” Mudrich yelled from across the town.
+
+Ersatzica looked out the window. It was dark, and that meant curfew, and bedtime. Her eyes widened, and her ears flipped back. She paced around her workshop.
+
+How is she going to go to the barracks like this? As a cat? But how can she not go? If she stays, the first place they’ll look for her is her workshop. And when they find her and they see that she’s a cat, they’ll… they’ll…
+
+Well, they won’t find her. She’ll leave. But how? Her workshop is in the middle of town. How could she possibly get out without anyone…
+
+“Ersatzica!” Mudrich opened the workshop door.
+
+# Chapter 3 – Nosalen’s Foot
+
+Ersatzica quickly hid in a corner and unlatched the boots. “Oh, hi Mudrich!”
+
+“Ersie, is that you?” She sniffed around.
+
+“Yes, of course it is. Why wouldn’t—”
+
+“Do you smell a cat?”
+
+“Mudrich, I’ve been doing nothing all day but working on an heirloom that an old cat *died*.”
+
+“Oh… right.” Mudrich tapped on the door. “Well, anyway, did you get the boots fixed?”
+
+“In a way…” Ersatzica stared out the window. The guards were posted in their usual positions.
+
+“So?”
+
+“Uh… no, you can’t try them out. They’re not fixed so that you can use them.”
+
+“Mud luck!” Mudrich spat. “Well, anyway, Wryonin says it’s time for bed.”
+
+“Sure, just let me finish up here.”
+
+“Want some help? I can light your lantern for you.”
+
+“No!” Ersie threw her screwdriver at Muddy. “I mean, the new heirloom is a bit light sensitive.”
+
+“Your voice sounds different.”
+
+“It’s because of the boots.”
+
+“The boots just change your voice?”
+
+“That… and other things.”
+
+“Huh, well that’s disappointing.”
+
+“Yeah, heh, voice changing boots.”
+
+“I was hoping for super speed. You know, to go with these super strength cuffs!”
+
+“Yeah, hey Muddy, can you give me some time? I’ll be right over as soon as I’m done with this.”
+
+“Ok, but don’t take too long. Wryonin says he wants to have a word with us about the whole secret room thing.”
+
+“Sure thing. Ok bye.”
+
+“Bye.” Mudrich left.
+
+The hair on the back of Ersatzica’s neck stood on end. She only bought herself a little time. It was only a matter of time before another wolf smelt the cat and came to inspect.
+
+Latching the boots, she rounded up some useful tools into a sack, including her trusty screwdriver, some maintenance supplies, straps, Ordaent’s Lock, and of course, Nosalen’s Foot.
+
+If she couldn’t turn back into a wolf, she would have to go to the cat outpost, and hope for the best. Maybe they would have some idea about how these boots work and how to undo their effects. And to get to the cats, she would have to cross the river. And she’d rather not have to rely on the kindness of a ghost again. Nosalen’s Foot can freeze water, hopefully it’ll be enough to cross a river.
+
+She peeked out her workshop door. There were no guards immediately in her vicinity. She opened the doors and sprinted to the nearest shadow. There were plenty of lanterns throughout the village, but there weren’t enough to cover it all. The way directly to the staircase down to the forest was very well lit, and the staircase was also very well lit. There was no way to get down there without being seen. But without being heard? That was easy, thanks to the boots.
