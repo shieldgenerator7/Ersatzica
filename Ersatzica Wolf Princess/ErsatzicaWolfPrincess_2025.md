@@ -622,35 +622,15 @@ Lemilay looked at Ersatzica, then rolled her eyes. She growled and stomped her f
 
 “Sorry, Lemilay. Now let’s all get home before these cats wake up.”
 
-“Wait. I think we can get it back, tonight.” Lemilay said.
+“But we *need* to get it *tonight*!”
 
-“How?”
+The voices of her siblings faded into the background as Ersatzica tightened the straps on the drums. *Just doggy paddle, just doggy paddle. There’s no shame in not being the best swimmer.* She gave herself a running start, jumping feet-first into the river with a splash.
 
-“We send Ersatzica over.”
+“Ersatzica!” Wryonin yelled. “What are you doing?”
 
-“What? Me? I can’t swim!”
+“I’m going to get the telescope!”
 
-“Yeah why would you do that?” Wryonin asked.
-
-“Because she’s the one wolf that the cats don’t kill on sight.”
-
-“Ha! I wish.” Wryonin chuckled. “No.”
-
-“No seriously. If they were going to kill her on sight, why did they just apprehend her?”
-
-Wryonin tilted his head and raised an eyebrow.
-
-“We can send her over, and she’ll be safe.”
-
-“Fine. But how?”
-
-“Get super speed and run across the river!”
-
-“I can’t, Muddie. Remember?”
-
-“Oh yeah, you don’t have the beat.”
-
-Her siblings argued with how best to do it. Meanwhile, Ersatzica just walked into the river, holding the drums close to her side.
+*AWOOOOO!*
 
 The drums helped her float, and she paddled herself across the river, but slowly. The current pulled her along, and she floated out of view of her siblings.
 
