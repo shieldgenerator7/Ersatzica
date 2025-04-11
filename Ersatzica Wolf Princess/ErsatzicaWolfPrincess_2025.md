@@ -1059,3 +1059,155 @@ Latching the boots, she rounded up some useful tools into a sack, including her 
 If she couldn’t turn back into a wolf, she would have to go to the cat outpost, and hope for the best. Maybe they would have some idea about how these boots work and how to undo their effects. And to get to the cats, she would have to cross the river. And she’d rather not have to rely on the kindness of a ghost again. Nosalen’s Foot can freeze water, hopefully it’ll be enough to cross a river.
 
 She peeked out her workshop door. There were no guards immediately in her vicinity. She opened the doors and sprinted to the nearest shadow. There were plenty of lanterns throughout the village, but there weren’t enough to cover it all. The way directly to the staircase down to the forest was very well lit, and the staircase was also very well lit. There was no way to get down there without being seen. But without being heard? That was easy, thanks to the boots.
+
+Ersatzica darted around the village, jumping from shadow to shadow, finding opportunities when no one was looking. The silent footsteps meant it remarkably easy to stay hidden. And the enhanced hearing made it easier to tell where everyone was.
+
+Soon the staircase was in sight. Imraen, the guard, stood by it, watching out for anyone coming up. He always very sharp.
+
+Passing hoof steps caught the attention of her ear. It was Nephalie. Deer magic has been known to transform people as well as walls. Maybe she could help her out of this mess.
+
+Ersatzica called out to her, but the boots silenced her. Ersatzica unlatched the boots, and called out, “Nephalie!”
+
+Nephalie’s ears turned before her head did. “Ers… atz… ica?”
+
+“Here…” Ersatzica whispered as she hid behind a barrel.
+
+Nephalie sighed. “Did you break another wall?”
+
+“Not this time.”
+
+“Good. Good night.” Nephalie got up.
+
+Ersatzica pulled her down with her sharp claws.
+
+“Ow.”
+
+“Sorry.” Ersatzica rubbed the claw marks with her paw pads. “I need your help.”
+
+“Can it wait until morning?” Nephalie yawned. “I’m exhausted.”
+
+“Not really—”
+
+“Also what did you do to me? I didn’t know wolf claws were so sharp. What did you do to your claws?”
+
+“That’s the thing. That’s it. I need you to turn my claws back into wolf claws.”
+
+“What did you mess them up or something?”
+
+“Well, I found a new heirloom, and now my claws are… cat claws.” Ersatzica whispered as quietly as she could.
+
+“Uh huh.” Nephalie nodded. “Nope! You’d have to talk to my aunt for that, and she’s not been around for who knows how long.”
+
+“Why can’t you do it?”
+
+“You think I can do that? I only know how to transform bricks into bigger bricks.”
+
+“But isn’t it the same—”
+
+“No! Also why are you hiding behind those barrels?”
+
+“Can’t you at least try?”
+
+“No, I’m tired. What are you hiding?”
+
+“Nephalie…”
+
+“Nevermind, I don’t want to know.” She walked off.
+
+“Nephalie!”
+
+“See you tomorrow, Ersatzica. I hope you figure out your cat problem.”
+
+Shoot. That was the best chance she had of a quick fix. Apparently even deer magic has its limits. She strapped the boots back up.
+
+“Is something wrong, Nephalie?” Imraen asked.
+
+“I’m off work hours and Ersatzica is requesting immediate service. For something I don’t even do.”
+
+“Well, she is daughter of the chief, so you have to obey her orders.”
+
+“I’m tired, wolf. Can’t I just go to bed?”
+
+Imraen left his post! Now was the perfect chance to run down the stairs.
+
+“No, deer. You get over there and fulfill your orders.” Imraen grabbed Nephalie by the scruff of the neck.
+
+Ersatzica dashed down the stairs, just out of view of the plateau.
+
+“Let go of me!”
+
+Ersatzica flinched. Nephalie didn’t deserve this. She unlatched the boots. “Hey! Imraen! Let Nephalie go!”
+
+“Ersatzica?” Imraen turned around, but didn’t drop Nephalie. “But she disobeyed an order.”
+
+“I dismissed her. Let her go!”
+
+“But—”
+
+“That’s an order!” Ersatzica stood straight up, and stared daggers into Imraen’s eyes.
+
+“Ca—” Imraen stared back at Ersatzica, mouth agape. “Caaaat!” He dropped Nephalie. Drawing his sword and charged at Ersatzica. “Die!”
+
+“No, it’s me! Stop!” Ersatzica quickly relatched the boots. She ran down the stairs as fast as she could, careful not to trip over any loose pebbles.
+
+*AWOOOOOO!* “Enemy!”
+
+*AWOOOOO! AWOOOOOO! AWOO! AWOOOOOO!* The whole town erupted into a howl.
+
+“She’s still not back yet?” Wryonin grumbled.
+
+“She said she’d just be a few minutes.” Mudrich played with her cuffs, swinging her legs off her bed.
+
+Lemilay slipped into bed. “She’s probably roped into one of her projects again. Just let her sleep in her workshop. Let’s get to bed.”
+
+*AWOOOOOO!* “Enemy!”
+
+*AWOOOO!* Wryonin replied. “Let’s go, girls.”
+
+Mudrich jumped out of bed and grabbed her hammer in one smooth motion, beating Wryonin out the door.
+
+Wryonin calmly took his utility belt off the wall and strapped it on himself. He took out his slingshot and send a pebble bouncing off the bedframe right next to Lemilay’s head. “Come on.”
+
+Lemilay growled, but got up anyway. She stood behind Wryonin, grabbing him by the arm.
+
+“What are you doing?”
+
+“I’m going to need a guide. Be my eyes.”
+
+Wryonin rolled his. “Don’t slow me down. First we go find Ersie.”
+
+They went straight to Ersie’s workshop, where they found a dark scene. The door had been left wide open. Several tools and supplies were scattered everywhere, even more than was normal. And worst of all, there was a wolf skin lying on the ground, with the exact fur pattern of their sister.
+
+Lemilay, eyes normal gasped in shock, and immediately left the scene.
+
+Wryonin knelt down and picked it up, sniffing it with his scarred nose. It smelled vaguely of cat. It was very soft in his hands, something he had never realized about Ersatzica’s fur before. Strangely, there was no blood.
+
+“Wryonin? Where’s Ersie?” Mudrich entered.
+
+“Mudrich, you didn’t fix the wall, did you?”
+
+“Well…”
+
+“Lemilay saw it. What did you find?” Wryonin growled, baring his teeth.
+
+“Ok, ok!” Mudrich dropped her hammer. “We found this old pair of boots. Ersie was working on them today and—”
+
+“Ok. And where are the boots now?”
+
+“I don’t know, Ersie must have—”
+
+“Ok. Where is she?”
+
+“I don’t—”
+
+“Can you smell her?”
+
+“All I smell is a cat.”
+
+“Good enough. Let’s go. Lemilay!”
+
+“I’m not! I’m not doing it!” Lemilay cried.
+
+“I’m not asking you to. Can you track a cat?”
+
+Lemilay’s eyes rolled into her head and her bald spot glowed. “It went this way.”
