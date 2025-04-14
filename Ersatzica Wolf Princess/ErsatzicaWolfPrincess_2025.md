@@ -1336,4 +1336,6 @@ She unlatched the boots.
 
 “I’m… I’m alive!” She yelled. “I’m here! I’m here!” She raised her chin to the moon. “AWOOO!” She gagged. Her throat did not want to cooperate. She was drenched and tired, and alone.
 
-She looked up to the moon. “Alpha, Wolf God of the Loyal Moon, please help me.”
+The moon shone warmly through the rain clouds, illuminating down on Ersatzica.
+
+She looked up to it. “Alpha, Wolf God of the Loyal Moon, please help me.”
