@@ -1211,3 +1211,129 @@ Wryonin knelt down and picked it up, sniffing it with his scarred nose. It smell
 “I’m not asking you to. Can you track a cat?”
 
 Lemilay’s eyes rolled into her head and her bald spot glowed. “It went this way.”
+
+Ersatzica ran down the stone stairs. Imraen, the wolf guard, chased close behind. Ersatzica was never the fastest wolf, and thus as a cat, she was also slow. But she had a head start.
+
+Another wolf, Byporf, was running up, sword drawn. There was nowhere for Ersatzica to run now, except down. She got to the edge of the staircase where it made a 180 degree zigzag turn and jumped down the side. She intended to grab the cliff face on the opposite side, but it was too slippery. She fell off the wall. She landed on her feet, the boots sliding forward, pushing her onto all fours. Breathing heavily, she assessed her situation. Nothing broken, not even a bruise. All her things were intact, too.
+
+Above, both Imraen and Byporf were looking down on her. Her pleading eyes were met with hateful looks. Imraen spat on her.
+
+Ersatzica ran through the forest. The wolf guards would have to take the long, zigzag way down the stone railingless stairs. They could sniff her, but she’d have enough time to run away before they caught up. As long the night guards weren’t stationed at the river. They could surround her and take her out. So far, all the howling was behind her. It was getting closer and closer, but the river was just within reach.
+
+First one drop, then another. Then a whole downpour. The sky aided in her escape. The rain soaked her fur and cooled her cat skin. As she shivered in the pouring rain, she smiled, thanking Alpha for his help. Now the wolves wouldn’t be able to track her scent.
+
+Ersatzica got to the river. The moon illuminated it through the storm clouds. The river roared, as if daring Ersatzica to cross it. Last time she swam through it, it was calmer and she was upstream, and it still almost carried her over the waterfall. Crossing would be no easy task.
+
+But this time, she was prepared. She reached into her sack and pulled out Nosalen’s Foot. It was cold to the touch, and covered in ice. Rain had gotten in and covered it. Ersatzica held it up to the moonlight. Rain drops bounced off it and trickled down her arms. It wasn’t freezing all the rain.
+
+“It break.” Ersatzica could hear the chef’s voice in her head as she searched through her bag.
+
+Everything was wet and soaked, and she couldn’t find any shelter to help her stay dry. She pulled out her trusty hammer, and pounded the foot until the broke off. But every time she broke off some ice, rain pelted the foot and froze back onto it. She couldn’t keep the foot thawed in the heavy rain. And without the foot to freeze the river, she didn’t dare try crossing the river.
+
+She could search for a better place to cross, but she knew the river was wide all along the bank. And the wolves were deep in the woods looking for her. She would risk them finding her.
+
+She tried to make a make-umbrella for the foot out of straps and fabric, but it soaked up the rain and dripped onto the foot. She also wasn’t able to hold the tarp with one hand, which made holding the tarp and breaking the ice impossible.
+
+Out in the woods, several torch lights shown through the branches. She would be having company soon if she wasn’t careful. They were like tiny menacing eyes of a creature eager to kill her for killing’s sake, just meandering out in the forest as if blind.
+
+But among them, one focused, seeking light shown. It was white and circular, and it didn’t bother searching every nook and cranny on the way. It knew exactly where she was, and it was coming for her. Lemilay!
+
+Ersatzica scrapped the tarp idea and shoved her supplies back into her sack, accidentally wrapping the hammer up in the tarp. She pulled out Ordaent’s Lock, and applied it to the foot.
+
+The white light got closer. Ersatzica moved out of the moonlight to work in the shade of a tree.
+
+Without her hammer, resorted to pounding the foot against a tree. It made no sound as it hit, although ice still shattered off it. With the lock right up against it, the foot didn’t freeze the ice. Instead, it soaked it in.
+
+The light was close enough now that Ersatzica could make out her sister’s beady little eyes rolled back into her head, and could hear her pants and footsteps as she ran. She wasn’t alone, either.
+
+She hit the lock and foot against a tree one last time before holding out the pair to the river. She let the lock up, and the foot froze the river beneath it.
+
+The water froze instantly, despite being several feet away from the foot. However, the ice still flowed downstream. Walking across wasn’t going to be easy with such a turbulent river.
+
+“Hold it right there!” Wryonin yelled. “Don’t go anywhere!”
+
+A rock flew by Ersatzica, grazing her stomache fur.
+
+Lemilay was closing in, her bald spot almost blinding Ersatzica in the cold, wet darkness.
+
+Ersatzica didn’t take any chances. She struck the foot with the lock, then palmed the foot to the river. And she jumped.
+
+She landed on a solid sheet of ice. The ice swayed as she landed, knocking her off balance. She grabbed the edge of the ice with one hand, and with the other, she swung the foot around, increasing the amount of surface area of ice she had to work with. Eventually the ice expanded enough to give her a stable boat of ice.
+
+Back on the shore, Lemilay’s light glared at her, accompanied by a shadow with a slingshot.
+
+*PING!*
+
+A rock hit her ice raft, cracking it.
+
+*PING!*
+
+Another rock.
+
+*PING! PING! PING!*
+
+The raft cracked under the attacks. It would’ve made such an interesting noise if it wasn’t forced to be silent.
+
+The heavy rain pelted the raft. Ever the resourceful one, Ersatzica wiped water over the cracks and exposed it to the foot, healing the cracks. Her raft was intact.
+
+The river roared, but the waterfall roared louder. The river was illuminated by the moon, but then it just ended, engulfed by a black void.
+
+Ersatzica got up to run across the river, but found that her left boot was stuck in the ice, frozen solid. She was part of the raft.
+
+*PING!*
+
+Ersatzica got an idea. She’s never known Wryonin to miss a shot, especially when it counts. And she’s never known him to show mercy to a cat. That means he’s been missing his shots. He also has really good hearing.
+
+Ersatzica unlatched the boots. The roaring river roared slightly less loudly, and her breathing was rapid, and faster than her audible heart beat. She banged the lock against the ice. The ice cracked a little, but it was thicker than the ice that collected on the foot. That, and the awkward angle made it hard to hit with enough force to break the ice.
+
+*PING!*
+
+The rock landed exactly where Ersatzica had been tapping.
+
+*PING!*
+
+With that last hit, the ice broke and Ersatzica was free.
+
+*PING!*
+
+This time, the rock hit the boots, denting one of the latches.
+
+Ersatzica quickly snapped the latches shut. The last latch wouldn’t shut properly. But still, she was quiet and the world was loud.
+
+*PING!*
+
+The next rock whizzed by her face.
+
+Foot in hand, she ran to the edge of the raft, running away from the waterfall. But she was closing in on it faster than she could run away from it. So she ran to the other side of the river, allowing herself to get dragged ever closer to the waterfall.
+
+*PING!*
+
+The raft was almost as wide as the river now. She was close to the other side. The river froze into sheets of ice as she ran.
+
+*PING!*
+
+Now she was just a few steps away from the other side. She took another step, but the ice cracked and flipped, and her feet slipped out from under her.
+
+The head of the raft toppled over the waterfall, cracking and crumbling as the support underneath it vanished. Her piece of it, still connected, swayed and threw her off balance.
+
+She grabbed on to the edge, but it was no use. She was going over the waterfall.
+
+The moment it happened, it was like she was suspended in midair. Then the wind rushed up at her face as she accelerated downward, the hairs on the back of her neck pricking, all her fur standing on end. She stood like a bullet, diving feet first into the river below. The ice sheets all toppled down below her. She held out the foot to her feet, screaming at the top of her lungs, but silently.
+
+Ice fragments flew everywhere, mixed with the fog from the rain and flowing water.
+
+The ice beneath froze solid, and she landed feet first onto it. The boots slid forward on their plates, forcing her to her knees. She landed on a newly created piece of ice, from a deadly drop, and didn’t even have a scratch.
+
+The moon was bright, still shining down on the river through the storm clouds. Ersatzica was trapped in a narrow corridor with steep rock walls on both sides. It was going to be hard to get out of this one, and she didn’t want to go all the way down the river. She had no idea where it led. She was trapped.
+
+Just around the bend, the moon revealed a log trapped in the river too. It was stationary, somehow lodged in place. She crawled over to it, expanding her new ice raft as she did. The ice formed around the log, staying in place. She expanded the raft a little more, widening it to the whole width of the river, which was only about twice her height.
+
+She held onto the log for dear life, waiting out the storm.
+
+The sounds of the wolves were drowned out by the rain, and she felt safe from the immediate threat that they posed. Not even Lemilay was likely to find her here. No one was.
+
+She unlatched the boots.
+
+“I’m… I’m alive!” She yelled. “I’m here! I’m here!” She raised her chin to the moon. “AWOOO!” She gagged. Her throat did not want to cooperate. She was drenched and tired, and alone.
+
+She looked up to the moon. “Alpha, Wolf God of the Loyal Moon, please help me.”
