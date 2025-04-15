@@ -1339,3 +1339,147 @@ She unlatched the boots.
 The moon shone warmly through the rain clouds, illuminating down on Ersatzica.
 
 She looked up to it. “Alpha, Wolf God of the Loyal Moon, please help me.”
+
+# Chapter 5
+
+Ersatzica slept under the stars that night in the river.
+
+In the morning, when she woke up, she was shivering and sneezing. Her nose was dripping and she was miserable.
+
+She patted herself down. Her fur was intact, her belly scar was still there, her tail was complete with the red tuft, and all four limbs and both ears were present. Peeking into her sack, she confirmed all her belongings were still there.
+
+Nosalen’s foot was covered in ice, several layers below the surface of the ice raft. The lock was also frozen into the raft. She must’ve dropped them while she was asleep.
+
+The boots were again stuck into the ice, but this time it wasn’t so bad. She wiggled them around a little and they popped right out.
+
+The sun was shining, beaming directly into the river canyon she found herself in, but the ice raft showed no signs of melting.
+
+“How am I going to get out of this one?”
+
+The sides of the canyon were too steep and smooth to climb. The river flowed through the mountains, twisting and winding, taking a path that was totally unknown to her. The heirloom she relied on was stuck in the ice.
+
+She didn’t really have any good options.
+
+She took her trusty screwdriver out and scraped at the ice, trying to get the foot out. Pounding the ice to crack it risks breaking the whole raft, and trying to melt the ice away would prove fruitless against the foot’s power.
+
+After about an hour of scraping and blowing the ice scrapes, she realized she hadn’t packed any food. Her stomache grumbled as she picked away at the ice.
+
+Finally she was able to scrape the foot out of the ice. She held it above the river and it worked like normal, freezing the water under it instantly.
+
+She stood up, stabilizing herself with the tree. Then with all her belongings, she held the foot out in front of her and walked upstream to the waterfall.
+
+As she approached, the mist kicked up from the waterfall crystalized in the air, falling like snow onto the ice road she made. She held the foot out to the falls itself, and it instantly froze around the foot.
+
+However, it didn’t do quite as she imagined. The frozen water fell from the air as a solid sheet, splashing into the river below her feet. The water flowing from above was still liquid, and it created a steady flow of small ice sheets.
+
+Ersatzica’s eyes lit up. She kept the foot there, in a place where it couldn’t easily be drenched by the falls, and waited for the sheets to come. Upon touching the water, the sheets didn’t instantly break or melt, so they just kept piling up.
+
+But to her dismay, she realized that they were being washed away under her ice road.
+
+So she froze the area under the falls to make a floor for the ice sheets. This resulted in the water flowing over her road, freezing her boots to it.
+
+“Well, at least I’m not slipping away.”
+
+Now that she had a base for the new water to freeze to, she could start working on a structure to get back up. She figured out that freezing to the canyon wall made it sturdier, so she froze it up against the cat side of the river. She climbed up the handlebars of ice all the way to the top.
+
+The foot was getting very warm by the time she got there.
+
+But at the top, she found that the bank was a bit taller than the current river level, and that trying to freeze the river water in this position didn’t help much.
+
+“Take my hand.” A clawed paw hand invited her to the cat side of the river.
+
+She took it, and it pulled her up. She clambered up onto the bank on all fours, trying to shake the water off. But her usual post-bathtime instinct didn’t kick in. Instead, she just had to soak it in.
+
+She looked up at her saviour. He was a black and white cat in a red-feathered green hat.
+
+“You’re the ghost!” Ersatzica screamed.
+
+“Hey calm down,” the cat said. “I didn’t ghost you. I was just getting in out of the rain.”
+
+“Huh?”
+
+“I just left to get an umbrella. I’m so so sorry you ended up down there.”
+
+Ersatzica stared at him. She poked him. He was real.
+
+“But hey, it looks like you got a lot of good loot, huh?” The cat knelt down to look at the boots. “Some shiny boots, a creepy cooked foot, and a sack of goodies.”
+
+“It’s all I could take with me.”
+
+“Well, you did a fine job.” He grimaced. “Please don’t hurt me.”
+
+Ersatzica stared at him. She didn’t know what to expect meeting a cat for the first time, but it wasn’t this. He wasn’t at all scary or menacing like she thought he would be.
+
+Her stomach growled.
+
+“Oh! You must be hungry! Come! I’ve caught some fish!” He walked off along the bank and then disappeared.
+
+Ersatzica knelt there, bewildered.
+
+He reappeared again. “Aren’t you coming?”
+
+Ersatzica nodded, got up, and walked over to him.
+
+He disappeared again. Just walked away, and gone. She followed after him, and found that he magically reappeared, sitting on a blanket with a basket full of fish. Next to him was a wolf jaw bone with most of its teeth missing. A blue streak shined across it.
+
+Ersatzica took a step back. All of it disappeared. In its place was a patch of dirt and some grass. She stepped forward again. It all came back. She took out her screwdriver, and poked everything. It was all real. She stepped in and out a few more times.
+
+“I’m sorry, I’m sorry,” the cat said. “I know this isn’t your favorite fish, and you prefer them cooked, but this was all I caught today so far.” He held out a fish, letting it hang limply from his hand.
+
+Ersatzica looked at it for a second. Its bulbous eyes protruded from its oily scales and its wide-open mouth pleaded for it to be over. She snatched it from his hand and took a big, deep bite into its side.
+
+The cat flinched away. “I’m glad you like it.”
+
+Eratzica gobbled it all up, and licked the bits off the bones.
+
+“Still hungry?” He gave her another one.
+
+She gobbled that one up, too.
+
+After she ate that one, she licked her lips, and let a hearty burp escape. Then she hugged him. “Oh, thank you so much!”
+
+The cat winced at first, but then patted her on the back. “Heh, heh. I’m glad you liked it.”
+
+Ersatzica sat back down on the blanket. She stared at him, taking in all of his cat features. Is this more or less what she looks like now too?
+
+“Wow, I can’t believe you actually hugged me. I didn’t think you would ever—” He put his arms up over his head, as if to guard against something.
+
+Ersatzica sat and watched.
+
+He peeked his eyes open, and upon seeing her calm, he relaxed his guard. “You’re not going to…?”
+
+“Going to what?”
+
+He tilted his head. “Did you, hit your head or something?”
+
+Erssatzica held her head. “No, I don’t think so.” She sneezed.
+
+“Oh, you might have a cold. Here, get up.” He moved the jaw bone off the blanket. He picked up the basket by the handle, but it was broken and he immediately remembered to pick it up with both hands from the bottom. He moved it next to the jawbone in the grass. Now with the blanket vacant, he wrapped her in the blanket. “Feeling better?”
+
+“A little bit.”
+
+“So, how did you do it?”
+
+“Do what?”
+
+“Get away with all this stuff?”
+
+“Well, I just packed my sack here and grabbed what I could. I didn’t have much time or I would’ve taken more with me.”
+
+“Did you snag anything for me?” He raised his arm to guard again. And again, when she didn’t react, he relaxed.
+
+“Hmm…” she rummaged through her sack. “How would you like a strap?”
+
+“A strap?”
+
+Ersatzica crawled out of the blanket and pulled out a strip of leather, two nails, and her faithful hammer. She wrapped the leather around the break in the basket handle and tapped the nails into the handle with the hammer. Then she filed down the points of the nails sticking through with the file part of her screwdriver, to keep it from pricking those who pick it up.
+
+Then she lifted the basket up by the handle to demonstrate. Despite the weight in the basket, the handle didn’t break.
+
+“You fixed it!” The cat proclaimed. He grabbed the handle and lifted it up and down several times. “Thank you so much!” He hugged her, but then immediately disengaged and flinched again.
+
+Ersatzica held out her arms. He embraced her once again.
+
+“So, you like hugs now?”
+
+“I guess… I do now, yeah.” Ersatzica couldn’t remember the last time she had hugged anyone. Then again, she couldn’t remember the last time anyone had saved her life twice in the same week before, either.
