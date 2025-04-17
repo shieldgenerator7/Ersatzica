@@ -2,13 +2,13 @@
 
 This document is for magic items that are used in the stories.
 
-# Boots of Retriyoan
+# Boots of Pantrinome
 
 Cat
 
-These boots were made by Retriyoan to prevent fall damage. When she died, she empowered the boots to also negate all outgoing sound, rendering the wearers indetectable by ears.
+These boots were made by Pantrinome to prevent fall damage. When she died, she empowered the boots to also negate all outgoing sound, rendering the wearers indetectable by ears.
 
-Worn by Pantrinome when she raided the wolf village for revenge, and fixed up and modified by Ersatzica.
+Worn by Pantrinome when she raided the wolf village to kill Awoomoon, and fixed up and modified by Ersatzica.
 
 ## Rules
 
@@ -23,7 +23,7 @@ In order to activate its effect, these requirements must be met:
 The following are not requirements:
 
 1.  Both boots be worn
-2.  Both latches be latched
+2.  Both latches on a boot be latched
 3.  Both boots be in proximity to each other
 4.  The limb in the boot is a foot
 5.  The wearer is a cat (or species the boot is made to fit)
@@ -34,7 +34,7 @@ The following are not requirements:
 
 #### Ship of Thesius
 
-The boots can be taken apart (and they do get taken apart by Ersatzica). Each piece contains a part of Retriyoan’s essence. If each piece could individually satisfy the requirements, they could each on their own provide the same effect that the whole boot does. However, because most pieces can’t be worn and/or latched on their own, they do not satisfy the requirements in order to activate the effect. The gears can’t be worn (no, wearing it like a button doesn’t count), nor can they be latched. The mouth of the boot can be worn, but it can’t be latched by itself (tho you could install a separate set of latches on it to satisfy this requirement). The latches can be latched, but can’t be worn (tho you could install them on a separate set of boots to satisfy this requirement).
+The boots can be taken apart (and they do get taken apart by Ersatzica). Each piece contains a part of Pantrinome’s essence. If each piece could individually satisfy the requirements, they could each on their own provide the same effect that the whole boot does. However, because most pieces can’t be worn and/or latched on their own, they do not satisfy the requirements in order to activate the effect. The gears can’t be worn (no, wearing it like a button doesn’t count), nor can they be latched. The mouth of the boot can be worn, but it can’t be latched by itself (tho you could install a separate set of latches on it to satisfy this requirement). The latches can be latched, but can’t be worn (tho you could install them on a separate set of boots to satisfy this requirement).
 
 So yes, you could ship of thesius the Boots of Retriyoan. However, I dislike the idea of doing so.
 
@@ -42,7 +42,7 @@ So yes, you could ship of thesius the Boots of Retriyoan. However, I dislike the
 
 The boots negate sound coming from the wearer. The point of origin for this effect comes from the wearer, not the boots. The wearer has an aura around them that negates sound. Things they wear, and things in their pockets, and things they’re holding don’t make sound. If they’re holding a bag of coins, or have the coins in their pocket, the coins won’t make sound, even though they aren’t directly touching the coins.
 
-The boots only block outgoing sound, not incoming sound. This means that the wearer can still hear noises around them.
+The boots only block outgoing sound, not incoming sound. This means that the wearer can still hear noises around them. In fact, the boots amplify sound coming from outside for the wearer, giving them enhanced hearing.
 
 In addition to sound negation, the boots negate fall damage, which is what they were originally designed to do.
 
@@ -68,7 +68,7 @@ If the wearer wears the wolf skin for a long period of time, they will still age
 
 It can be Ship of Theseus’d, but the new pieces don’t gain any magic properties.
 
-# Pantrinome’s Drum
+# Retriyoan’s Drum
 
 Cat
 
