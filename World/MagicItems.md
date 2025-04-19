@@ -255,3 +255,17 @@ Worn by Treescorn (Drathalion)
 *“Don’t touch that!” yelled Granfork. “That’s Zayhard’s shard! It’ll cut anything made of flesh!”*
 
 Source: Ersatzica 2015
+
+# Ordaent’s Lock
+
+Wolf?
+
+*She pulled out a lock that was rusted shut and quickly strapped it to her waist.*
+
+*A blue shimmer crossed the lock. It seemed to bolt shut tighter than it already was. The strap around Ersatzica’s waist tightened like thorny vines.*
+
+*Her eyes widened. Of course! You don’t put Ordaent’s Lock on the victim of the heirloom, you put it on the heirloom itself! That’ll stop its effects!*
+
+\-Ersatzica 2025
+
+A lock heirloom that is stuck shut. It negates the effects of heirlooms that it touches or that is in its field. You can expand its field by strapping it to the item in question.
