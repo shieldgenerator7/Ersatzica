@@ -1386,7 +1386,7 @@ The foot was getting very warm by the time she got there.
 
 But at the top, she found that the bank was a bit taller than the current river level, and that trying to freeze the river water in this position didn’t help much.
 
-“Take my hand.” A clawed paw hand invited her to the cat side of the river.
+“Take my hand, Your Majesty.” A clawed paw hand invited her to the cat side of the river.
 
 She took it, and it pulled her up. She clambered up onto the bank on all fours, trying to shake the water off. But her usual post-bathtime instinct didn’t kick in. Instead, she just had to soak it in.
 
@@ -1394,25 +1394,25 @@ She looked up at her saviour. He was a black and white cat in a red-feathered gr
 
 “You’re the ghost!” Ersatzica screamed.
 
-“Hey calm down,” the cat said. “I didn’t ghost you. I was just getting in out of the rain.”
+“Hey calm down,” the cat said, raising an arm over his face. “I didn’t ghost you, Your Majesty. I was just getting in out of the rain. Your Majesty.”
 
 “Huh?”
 
-“I just left to get an umbrella. I’m so so sorry you ended up down there.”
+“I just left to get an umbrella, Your Majesty. I’m so so sorry you ended up down there, Your Majesty.”
 
 Ersatzica stared at him. She poked him. He was real.
 
-“But hey, it looks like you got a lot of good loot, huh?” The cat knelt down to look at the boots. “Some shiny boots, a creepy cooked foot, and a sack of goodies.”
+“But hey, it looks like you got a lot of good loot, Your Majesty?” The cat knelt down to look at the boots. “Some shiny boots, a creepy cooked foot, and a sack of goodies.”
 
 “It’s all I could take with me.”
 
-“Well, you did a fine job.” He grimaced. “Please don’t hurt me.”
+“Well, you did a fine job.” He grimaced. “Please don’t hurt me, Your Majesty.”
 
 Ersatzica stared at him. She didn’t know what to expect meeting a cat for the first time, but it wasn’t this. He wasn’t at all scary or menacing like she thought he would be.
 
 Her stomach growled.
 
-“Oh! You must be hungry! Come! I’ve caught some fish!” He walked off along the bank and then disappeared.
+“Oh! You must be hungry! Come! I’ve caught some fish! …Your Majesty.” He walked off along the bank and then disappeared.
 
 Ersatzica knelt there, bewildered.
 
@@ -1424,7 +1424,7 @@ He disappeared again. Just walked away, and gone. She followed after him, and fo
 
 Ersatzica took a step back. All of it disappeared. In its place was a patch of dirt and some grass. She stepped forward again. It all came back. She took out her screwdriver, and poked everything. It was all real. She stepped in and out a few more times.
 
-“I’m sorry, I’m sorry,” the cat said. “I know this isn’t your favorite fish, and you prefer them cooked, but this was all I caught today so far.” He held out a fish, letting it hang limply from his hand.
+“I’m sorry, I’m sorry,” the cat said. “I know this isn’t your favorite fish, Your Majesty, and you prefer them cooked, but this was all I caught today so far.” He held out a fish, letting it hang limply from his hand. “Your Majesty.”
 
 Ersatzica looked at it for a second. Its bulbous eyes protruded from its oily scales and its wide-open mouth pleaded for it to be over. She snatched it from his hand and took a big, deep bite into its side.
 
@@ -1438,7 +1438,7 @@ She gobbled that one up, too.
 
 After she ate that one, she licked her lips, and let a hearty burp escape. Then she hugged him. “Oh, thank you so much!”
 
-The cat winced at first, but then patted her on the back. “Heh, heh. I’m glad you liked it.”
+The cat winced at first, but then patted her on the back. “Heh, heh. I’m glad you liked it. Your Majesty.”
 
 Ersatzica sat back down on the blanket. She stared at him, taking in all of his cat features. Is this more or less what she looks like now too?
 
@@ -1470,7 +1470,7 @@ Erssatzica held her head. “No, I don’t think so.” She sneezed.
 
 “Hmm…” she rummaged through her sack. “How would you like a strap?”
 
-“A strap?”
+“A strap, Your Majesty?”
 
 Ersatzica crawled out of the blanket and pulled out a strip of leather, two nails, and her faithful hammer. She wrapped the leather around the break in the basket handle and tapped the nails into the handle with the hammer. Then she filed down the points of the nails sticking through with the file part of her screwdriver, to keep it from pricking those who pick it up.
 
@@ -1480,6 +1480,6 @@ Then she lifted the basket up by the handle to demonstrate. Despite the weight i
 
 Ersatzica held out her arms. He embraced her once again.
 
-“So, you like hugs now?”
+“So, you like hugs now, Your Majesty?”
 
 “I guess… I do now, yeah.” Ersatzica couldn’t remember the last time she had hugged anyone. Then again, she couldn’t remember the last time anyone had saved her life twice in the same week before, either.
