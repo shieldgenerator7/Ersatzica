@@ -1483,3 +1483,145 @@ Ersatzica held out her arms. He embraced her once again.
 “So, you like hugs now, Your Majesty?”
 
 “I guess… I do now, yeah.” Ersatzica couldn’t remember the last time she had hugged anyone. Then again, she couldn’t remember the last time anyone had saved her life twice in the same week before, either.
+
+“Your majesty?”
+
+“Yes?”
+
+“Is it ok if I just call you Majestra?”
+
+Ersatzica shrugged. “Sure, why not?”
+
+The cat breathed a sigh of relief. “Thank you, Your Majest—uh, Majestra. I shall call you Majestra now.”
+
+“And I shall call you… Fisher.”
+
+“Fisher?” He smiled. “I like it. But…”
+
+“So, Fisher, what are you doing on the river?”
+
+“Waiting for you, of course.”
+
+“Really?”
+
+“Yes—are you sure you didn’t hit your head?”
+
+“It’s been a long night in that cold river. Maybe I am a little ill.”
+
+“Well let’s get you back to the outpost.” Fisher helped Majestra to her feet.
+
+Still wrapped in the blanket, she got up and walked with him. Fisher offered to carry her sack of supplies, which she accepted.
+
+When they entered the outpost, Fisher yelled out, “Hey! Your Majesty, Majestra is back!”
+
+The outpost was a temporary settlement made of canvas tents, with a few permanent stone structures. The stone had the classic sign of deer magic, tear marks that streaked upwards, as if it was made of hardened taffy.
+
+When Fisher got the attention of the outpost, the cats mulling about all stood and begrudgingly clapped, staring straight at Majestra.
+
+An older cat emerged from a canvas tent. She wore various pieces of armor. “Majestra! My dear! Where is your armor?”
+
+“She spent the night in the river, General Seamtrust.” Fisher explained.
+
+“Well why did it take you so long to get out? You’re all wet.” She put a hand on her shoulder and led her into the canvas tent.
+
+“General Seamtrust?”
+
+“Majestra, dear,” General Seamtrust cooed once inside. “Why so formal with your auntie? What happened? Was that cat bothering you again? Does he need more punishment?”
+
+Ersatzica’s eyes widened, then she nodded slowly, while staring into the space behind General Seamtrust. “No, …auntie.”
+
+“Well what then? Speak, child.”
+
+“Like he said, I spent the night in the river. I barely escaped the wolves.”
+
+“Well, it’s good to see you survived. Now tell me the mission report.”
+
+“Mission report?”
+
+“Yes, are you daft? Tell me what happened on the mission.”
+
+“Well, I lost all my things, but I managed to snag these items.” Ersatzica pointed out the items: the boots, the paw, and the contents of the sack.
+
+“What about the tooth I lent you?”
+
+Ersatzica shook her head.
+
+“And the…”
+
+“Nope.”
+
+“Well!” She put her hands on her hips. “This just won’t do! You must step up your game, your little majesty, if you want to take command of the town. This is really unbecoming of a lead—”
+
+“I’ll make it up to you.”
+
+“You better! Are you still able to stick to the schedule?”
+
+“Yes.”
+
+“So you’ll be ready for the mission in 2 days?”
+
+“Yes.”
+
+“Come here.” She grabbed Ersatzica’s face in her palms and directed her to look up at her, then brought her in close for a hug. “Make me and your mama proud, little majesty.”
+
+“Yes, auntie.”
+
+Ersatzica stepped out of the canvas tent with her stuff. She looked bewildered out at the outpost, not sure where to go.
+
+“Majestra! Are you ok?” Fisher was waiting outside.
+
+“Yes, yes, I’m quite fine.” Ersatzica raised her head high, mimicking Auntie Seamtrust. She eyed Fisher out of the corner of her eye; he was flinching. She dropped the act. “I’m… not feeling well. Can you take me to the medic bear?”
+
+Fisher relaxed. “Medic bear? I don’t know what that is, but I can take you to the doctor.”
+
+Fisher took Ersatzica to the medic tent. The medic cat checked her out and said she was fine. They gave her some headache medicine that she hesitantly accepted.
+
+As the day wore on, it was time to go to bed. Ersatzica asked Fisher to escort her to her barracks, and he escorted her to her sleeping room: one of the few stone structures in the outpost. Two guards were stationed just outside. Ersatzica said good night to Fisher.
+
+[TODO: Fill in this in more detail]
+
+Then the next morning, Ersatzica followed Fisher to the beach.
+
+“Your next mission isn’t until tomorrow. Are you sure?”
+
+“I want to… observe the wolf side from this side.”
+
+“Ok.”
+
+They sat down on the blanket. Fisher set the skull, basket, and fishing equipment on it.
+
+“So, Fisher,” Ersatzica said.
+
+“Yes, Majestra?”
+
+“Have you tried howling? When you make announcements? I see your people yelling a lot to get attention.”
+
+“Howling? You mean like wolves?”
+
+“Oh, right.” Ersatzica looked down. “Well then how do you pray to Alpha?”
+
+“Alpha… the wolf god?”
+
+“Yeah.”
+
+“We… don’t. *You* don’t, do you?”
+
+Ersatzica looked away. “Uh, no, of course not.” She played with her claws, flipping them in and out. “I mean, I have to study the wolves for my mission.”
+
+“Right.”
+
+After a while of talking on the beach, a familiar face appeared. A white wolf came up and sat on a boulder on the other side of the river. She looked down into the water.
+
+Ersatzica jumped up, waving her arms.
+
+“You know she can’t see you, right?” Fisher whispered.
+
+“Oh, right.” Ersatzica took a deep breath in, then yelled, “Mudrich!”
+
+Fisher jumped up and put a hand over her mouth. “Shh!”
+
+Mudrich looked around. She stood up, turning around, trying to find the source of the noise.
+
+“Don’t give away our position! It’ll compromise our mission.”
+
+“Oh, right.”
