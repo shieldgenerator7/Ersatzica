@@ -58,7 +58,7 @@ Awoomoon’s husband. Wolf. Bio father of Lemilay, Wryonin, Mudrich. Wolf father
 
 # Medic Lersha
 
-Bear medic. She resides in the peacock village.
+Bear medic. She resided in the peacock village. After the events of Awoomoon’s story, she moved to the wolf village with Awoomoon.
 
 *A bear a head taller than Dad walked into the room. She wiped her fire-burnt palm on her medic apron.*
 
