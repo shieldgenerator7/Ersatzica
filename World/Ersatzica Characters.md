@@ -48,11 +48,13 @@ Awoomoon’s peacock best friend growing up.
 
 Awsoodoo’s father. Peacock.
 
-# Frestiyen
+# Freyest
 
 Awoomoon’s father. Wolf.
 
-Name change to Frestian?
+# Freyest
+
+Awoomoon’s husband. Wolf. Bio father of Lemilay, Wryonin, Mudrich. Wolf father of Ersatzica.
 
 # Medic Lersha
 
