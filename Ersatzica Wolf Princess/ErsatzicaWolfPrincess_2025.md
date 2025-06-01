@@ -1625,3 +1625,39 @@ Mudrich looked around. She stood up, turning around, trying to find the source o
 “Don’t give away our position! It’ll compromise our mission.”
 
 “Oh, right.”
+
+*AWOOOOO!* Mudrich let out a baleful cry. It was the special howl they use when they try to find each other.
+
+Ersatzica wanted so desperately to respond, but not only could she physically not, she also couldn’t risk putting herself in danger. Her arms drifted down slowly and her excitement waned.
+
+Fisher shushed her, covering her mouth with his hand.
+
+Finally, after a few minutes, Mudrich left.
+
+Fisher relaxed. “What was that about?”
+
+“Uh, nothing.”
+
+“How did you know that wolf’s name?”
+
+“Like I said, I’ve been studying them.” Ersatzica searched for a new topic. “So for tomorrow’s mission. Are you coming with me?”
+
+“Into the wolf village? No way.” Fisher sat down and cast a fishing line into the river. “That’s your job.”
+
+“Then can I take this skull with me?”
+
+“No. Don’t you have your necklace?”
+
+“What neck… Oh, no, I lost it.”
+
+“Ah, the storm, yes.” Fisher nodded. “That’s too bad.”
+
+“What did my necklace do? I mean, which necklace are you talking about?”
+
+“You had more than one? I only seem to remember you having the one, you know with the tooth from the skull attached to it.”
+
+“The tooth was removed from the skull?” Ersatzica whispered to herself.
+
+“Yes. Are you feeling ok, Majestra?”
+
+“Uh, yes. Of course I am.”
