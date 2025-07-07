@@ -69,8 +69,12 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 # Chapter 7
 
 -   Lemilay catches Magystra, makes a deal with her
+-   Cats convince Ersatzica that they want to take over the wolf village to provide them better utilities
+-   Ersatzica helps cats identify ways to get in
 
 # Chapter 8
+
+-   Reflection chapter: Ersatzica switches from identifying as a wolf to identifying as a cat, and it changes her perspective on everything.
 
 # Chapter 9
 
