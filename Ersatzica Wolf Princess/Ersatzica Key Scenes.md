@@ -43,6 +43,7 @@ Summary: Cat Ersatzica escapes to cat outpost
 Summary: Ersatzica spends a day as a cat
 
 -   Ersatzica hangs out with Fisher
+-   Fisher and Ersatzica talk about Yotleph
 -   Cat Ersatzica is asked what she is, and she says she’s a wolf
 -   Fisher teaches Ersatzica how to be a cat
 

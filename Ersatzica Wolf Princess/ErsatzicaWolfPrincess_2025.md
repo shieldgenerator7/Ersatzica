@@ -1661,3 +1661,93 @@ Fisher relaxed. “What was that about?”
 “Yes. Are you feeling ok, Majestra?”
 
 “Uh, yes. Of course I am.”
+
+“So are you feeling up to exploring the forest?”
+
+“Sure!”
+
+“Really? I thought you hated the forest.”
+
+“…it’s not so bad, now that I’ve spent some time in it.”
+
+“Sweet!”
+
+“Wait, don’t you have to stand guard here?”
+
+“Wow, you really don’t remember much, huh?” Fisher got up and held out a hand to Ersatzica. “My main job is to bring you back across the river after your mission. But since you’re here, I also have the day off!”
+
+“Ok, where to first?”
+
+“This way, Majestra.” Fisher took her by the hand and led her through the woods. They came to a hole in the side of a small hill.
+
+“What’s this?”
+
+“You wanted to know about the tooth necklace?” Fisher reached in and scooped up some dirt from inside the hole. “This is where it was found.”
+
+*There once was an old and craggedy monster who blocked the cat’s advance into the valley for decades. It was a giant wolf, a terror to all cats. It had massive fangs and claws, and the more cats you threw at it, the easier time it had killing them all. Occasionally, it would disappear for days at a time, and the cats would advance into the valley. Those that did, never returned. When the wolf reappeared, it would be carrying a sack full of skulls, and leave it laying in the open for the cats to collect. It was known as the Phantom Guard, for the ghostly white fur pattern on his face, that looked like a skull, and the three stripes on his belly, that looked like a ribcage.*
+
+“Yotleph!” Ersatzica interrupted.
+
+“Yotleph?” Fisher quizzed.
+
+“Yeah, that’s his name!”
+
+“Ah, ok, Yotleph.”
+
+*Yotleph, as he was named, was a fierce wolf monster that terrorized the cats for years. Until one day, it vanished, like it had several times before. The cats waited a week, a month. No sign of the Phanto—Yotleph. It was months before a single cat was brave enough to step foot into the valley.*
+
+*When they finally did, they found the dead, headless bodies of their fallen cat comrades, littered around the forest. They tried to collect them all, but every single body was… trapped! I’m talking pit traps, hidden spikes, vine snares, all of it. A lot more cats were lost to the recovery project.*
+
+“And then Yotleph comes out and kills them all!” Ersatzica said gleefully.
+
+Fisher flinched.
+
+“No, no, I’m sorry. I didn’t mean to scare you.” Ersatzica rubbed Fisher’s shoulder. “Continue please.”
+
+Fisher brought his arms back down.
+
+*Yotleph, in fact, did not jump out and kill them all, because he was also dead. No one knows how or when he died, but when his bones were discovered, the cats that found him simply vanished.*
+
+Ersatzica gasped, covering her mouth.
+
+*All that was found was his skull, eerily similar to the markings on his face. But some still say, that to this day, he haunts these very woods, waiting to behead the next cat that steps foot—*
+
+“Yotleph is *dead*?”
+
+“Well, so they *say*, but you never really know about ghosts…”
+
+Ersatzica began to tear up.
+
+“Ah, don’t cry. It’s ok. I’m sure these are just tales they tell to scare the shit out of the recruits.” Fisher hugged Ersatzica.
+
+“I’m… I’m not scared.” Ersatzica wiped a tear from her eye. “I’ve heard a different story about Yotleph.
+
+*Yotleph was my uncle—I mean, he had a family, a wolf pack, and he was an uncle to a litter of wolf cubs. He was big and strong, courageous, and loyal, like Alpha. He was the strongest and most experienced of his brothers, so he left the village to defend it the only way he knew how. He would be gone for weeks at a time, fighting off the bad cats. But he was also compassionate. Every month, he would return with shiny new gifts, heirlooms from the cats he had protected us—I mean the wolf village—from. My favorite was a screwdriver with multiple functions. It wasn’t an heirloom, per se, but it was my favorite tool.*
+
+“*Your* favorite tool?”
+
+“Yeah.” Ersatzica reached in and pulled out her screwdriver, handing it to Fisher to examine.
+
+“That is a very nice tool. This is what you used to fix my basket?”
+
+“Yes.”
+
+Fisher thought for a moment. Then his eyes went wide. He looked Ersatzica up and down. “You’re… you’re not…” He gasped and scurried back away from her. “You’re not Majestra!”
+
+Ersatzica dashed to him and covered his mouth. “Shhh!” She looked around to make sure no one else was listening. “Ok, I’m not Majestra. I’m a wolf in a cat’s body.”
+
+Fisher tore her hand off his face and jumped to his feet. “What—what are you doing here?”
+
+“Calm down, Fisher. I’m not here to hurt you.” She reached out to him, but he flinched, so she backed away.
+
+“You’re not?”
+
+“Have I been mean to you at all since I got here?”
+
+Fisher lowered his arms. “Well, you didn’t scratch me, you didn’t punch me, and you didn’t kick me in the groin.”
+
+“No, and I’m not going to.”
+
+“So you’re not here to bury me like the Phantom Guard?”
+
+“No. And actually, I need your help.”
