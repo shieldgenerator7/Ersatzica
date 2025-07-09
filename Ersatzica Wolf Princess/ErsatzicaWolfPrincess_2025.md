@@ -1384,7 +1384,7 @@ Now that she had a base for the new water to freeze to, she could start working 
 
 The foot was getting very warm by the time she got there.
 
-But at the top, she found that the bank was a bit taller than the current river level, and that trying to freeze the river water in this position didn’t help much.
+But at the top, she found that the bank was a bit taller than the current river level, and that trying to freeze the river water in this position didn’t help much. She was stuck.
 
 “Take my hand, Your Majesty.” A clawed paw hand invited her to the cat side of the river.
 
@@ -1412,7 +1412,7 @@ Ersatzica stared at him. She didn’t know what to expect meeting a cat for the 
 
 Her stomach growled.
 
-“Oh! You must be hungry! Come! I’ve caught some fish! …Your Majesty.” He walked off along the bank and then disappeared.
+“Oh! You must be hungry! Come! I’ve caught some fish! …Your Majesty.” He walked off along the bank and then suddenly disappeared.
 
 Ersatzica knelt there, bewildered.
 
@@ -1446,7 +1446,7 @@ Ersatzica sat back down on the blanket. She stared at him, taking in all of his 
 
 Ersatzica sat and watched.
 
-He peeked his eyes open, and upon seeing her calm, he relaxed his guard. “You’re not going to…?”
+He peeked his eyes open, and upon seeing her calm expression, he relaxed his guard. “You’re not going to…?”
 
 “Going to what?”
 
@@ -1508,7 +1508,7 @@ The cat breathed a sigh of relief. “Thank you, Your Majest—uh, Majestra. I s
 
 “It’s been a long night in that cold river. Maybe I am a little ill.”
 
-“Well let’s get you back to the outpost.” Fisher helped Majestra to her feet.
+“Well let’s get you back to the outpost.” Fisher helped “Majestra” to her feet.
 
 Still wrapped in the blanket, she got up and walked with him. Fisher offered to carry her sack of supplies, which she accepted.
 
@@ -1516,7 +1516,7 @@ When they entered the outpost, Fisher yelled out, “Hey! Your Majesty, Majestra
 
 The outpost was a temporary settlement made of canvas tents, with a few permanent stone structures. The stone had the classic sign of deer magic, tear marks that streaked upwards, as if it was made of hardened taffy.
 
-When Fisher got the attention of the outpost, the cats mulling about all stood and begrudgingly clapped, staring straight at Majestra.
+When Fisher got the attention of the outpost, the cats mulling about all stood and begrudgingly clapped, staring straight at Majestra. It was very awkward and forced.
 
 An older cat emerged from a canvas tent. She wore various pieces of armor. “Majestra! My dear! Where is your armor?”
 
@@ -1524,7 +1524,7 @@ An older cat emerged from a canvas tent. She wore various pieces of armor. “Ma
 
 “Well why did it take you so long to get out? You’re all wet.” She put a hand on her shoulder and led her into the canvas tent.
 
-“General Seamtrust?”
+“General Seamtrust?” Ersatzica looked up at her.
 
 “Majestra, dear,” General Seamtrust cooed once inside. “Why so formal with your auntie? What happened? Was that cat bothering you again? Does he need more punishment?”
 
@@ -1684,7 +1684,7 @@ Fisher relaxed. “What was that about?”
 
 “You wanted to know about the tooth necklace?” Fisher reached in and scooped up some dirt from inside the hole. “This is where it was found.”
 
-*There once was an old and craggedy monster who blocked the cat’s advance into the valley for decades. It was a giant wolf, a terror to all cats. It had massive fangs and claws, and the more cats you threw at it, the easier time it had killing them all. Occasionally, it would disappear for days at a time, and the cats would advance into the valley. Those that did, never returned. When the wolf reappeared, it would be carrying a sack full of skulls, and leave it laying in the open for the cats to collect. It was known as the Phantom Guard, for the ghostly white fur pattern on his face, that looked like a skull, and the three stripes on his belly, that looked like a ribcage.*
+*There once was an old and craggedy monster who blocked the cat’s advance into the valley for decades. It was a giant wolf, a terror to all cats. It had massive fangs and claws, and the more cats you threw at it, the easier time it had killing them all. Occasionally, it would disappear for days at a time, and the cats would advance into the valley. Those that did, never returned. When the wolf reappeared, it would be carrying a sack full of skulls, and leave it laying in the open for the cats to collect. It was known as the Phantom Guard, for the ghostly white fur pattern on its face, that looked like a skull, and the three stripes on its belly, that looked like a ribcage.*
 
 “Yotleph!” Ersatzica interrupted.
 
@@ -1694,7 +1694,7 @@ Fisher relaxed. “What was that about?”
 
 “Ah, ok, Yotleph.”
 
-*Yotleph, as he was named, was a fierce wolf monster that terrorized the cats for years. Until one day, it vanished, like it had several times before. The cats waited a week, a month. No sign of the Phanto—Yotleph. It was months before a single cat was brave enough to step foot into the valley.*
+*The Yotleph, as it was named, was a fierce wolf monster that terrorized the cats for years. Until one day, it vanished, like it had several times before. The cats waited a week, a month. No sign of the Phanto—The Yotleph. It was months before a single cat was brave enough to step foot into the valley.*
 
 *When they finally did, they found the dead, headless bodies of their fallen cat comrades, littered around the forest. They tried to collect them all, but every single body was… trapped! I’m talking pit traps, hidden spikes, vine snares, all of it. A lot more cats were lost to the recovery project.*
 
@@ -1706,11 +1706,11 @@ Fisher flinched.
 
 Fisher brought his arms back down.
 
-*Yotleph, in fact, did not jump out and kill them all, because he was also dead. No one knows how or when he died, but when his bones were discovered, the cats that found him simply vanished.*
+*The Yotleph, in fact, did not jump out and kill them all, because it was also dead. No one knows how or when it died, but when its bones were discovered, the cats that found them simply vanished.*
 
 Ersatzica gasped, covering her mouth.
 
-*All that was found was his skull, eerily similar to the markings on his face. But some still say, that to this day, he haunts these very woods, waiting to behead the next cat that steps foot—*
+*All that was found was its skull, eerily similar to the markings on its face. But some still say, that to this day, it haunts these very woods, waiting to behead the next cat that steps foot—*
 
 “Yotleph is *dead*?”
 
@@ -1718,11 +1718,11 @@ Ersatzica gasped, covering her mouth.
 
 Ersatzica began to tear up.
 
-“Ah, don’t cry. It’s ok. I’m sure these are just tales they tell to scare the shit out of the recruits.” Fisher hugged Ersatzica.
+“Ah, don’t cry. It’s ok. I’m sure these are just tales they tell to scare the recruits.” Fisher hugged Ersatzica.
 
 “I’m… I’m not scared.” Ersatzica wiped a tear from her eye. “I’ve heard a different story about Yotleph.
 
-*Yotleph was my uncle—I mean, he had a family, a wolf pack, and he was an uncle to a litter of wolf cubs. He was big and strong, courageous, and loyal, like Alpha. He was the strongest and most experienced of his brothers, so he left the village to defend it the only way he knew how. He would be gone for weeks at a time, fighting off the bad cats. But he was also compassionate. Every month, he would return with shiny new gifts, heirlooms from the cats he had protected us—I mean the wolf village—from. My favorite was a screwdriver with multiple functions. It wasn’t an heirloom, per se, but it was my favorite tool.*
+*Yotleph was my uncle—I mean, he was an uncle. He had a family, a wolf pack, and he was an uncle to a litter of wolf cubs. He was big and strong, courageous, and loyal, like Alpha. He was the strongest and most experienced of his brothers, so he left the village to defend it the only way he knew how. He would be gone for weeks at a time, fighting off the bad cats. But he was also compassionate. Every month, he would return with shiny new gifts, heirlooms from the cats he had protected us—I mean the wolf village—from. My favorite was a screwdriver with multiple functions. It wasn’t an heirloom, per se, but it was my favorite tool—is my favorite tool.*
 
 “*Your* favorite tool?”
 
@@ -1732,7 +1732,7 @@ Ersatzica began to tear up.
 
 “Yes.”
 
-Fisher thought for a moment. Then his eyes went wide. He looked Ersatzica up and down. “You’re… you’re not…” He gasped and scurried back away from her. “You’re not Majestra!”
+Fisher thought for a moment. Then his eyes went wide. He looked Ersatzica up and down. “You’re… you’re not…” He gasped and backed away from her. “You’re not Majestra!”
 
 Ersatzica dashed to him and covered his mouth. “Shhh!” She looked around to make sure no one else was listening. “Ok, I’m not Majestra. I’m a wolf in a cat’s body.”
 
@@ -1742,7 +1742,7 @@ Fisher tore her hand off his face and jumped to his feet. “What—what are you
 
 “You’re not?”
 
-“Have I been mean to you at all since I got here?”
+“No! Look, have I been mean to you at all since I got here?”
 
 Fisher lowered his arms. “Well, you didn’t scratch me, you didn’t punch me, and you didn’t kick me in the groin.”
 
@@ -1784,13 +1784,15 @@ Ersatzica blushed. “Actually, I found them in an abandoned room on a poor old 
 
 “No no!” Ersatzica brushed him off. “I’m not taking them off.”
 
-Fisher flinched.
+“But if they turned you into a cat, then logically taking them off would turn you back into a wolf.”
 
-“I can tell you about them though.”
+“I tried that, it didn’t work.”
 
-Fisher pulled a book and pen out of his basket. “Sure, go ahead.”
+“Huh.” Fisher pondered. “Well there are other heirlooms that turn cats into wolves.” He pulled a book out of his basket. Its pages were filled with sketches of various items, their names, and what was known about them. Fisher flipped to a particular page. “The Wolf Skin of Monassus!” He proclaimed, presenting the book to Ersatzica. “This heirloom would turn you into a wolf. You’d have to wear it the whole time though. Sounds uncomfortable. Maybe even itchy.”
 
-“Well, when you latch—”
+“Do you know where to find it?”
+
+“It hasn’t been seen for over 15 years.” Fisher shook his head. “You’d have better luck asking the wolves.”
 
 *AWOOOOOOO!* (“Here!”)
 
@@ -1798,7 +1800,7 @@ Fisher pulled a book and pen out of his basket. “Sure, go ahead.”
 
 Ersatzica calmed down Fisher, and together they followed the sound of the howl. Peeking through a bush on the river bank, they spotted three wolves on the other side of the river. “Shhhh.”
 
-Ersatzica latched up both boots. The world came pouring into her ears. Thewind whistled, the trees groaned, and the river roared. But just beyond, she could hear voices.
+Ersatzica latched up both boots. The world came pouring into her ears. The wind whistled, the trees groaned, and the river roared. But just beyond, she could hear voices.
 
 “Ersatzica! ErSAAAATZica!”
 
@@ -1808,13 +1810,9 @@ It was her siblings!
 
 Mudrich mournfully held up a wolf skin in the air as she howled as loud as her heart would allow.
 
-“That looks like the Wolf Skin of Monassus.” Fisher said excitedly. “It’s known to turn cats into wolves!”
+“That looks like the Wolf Skin of Monassus.” Fisher said excitedly. “I guess you really would have better luck asking the wolves!”
 
-“So you think that’ll turn me back?”
-
-“I think so.”
-
-“Thank you Fisher!” Ersatzica hugged him. “I couldn’t have survived without you.”
+“Those are my siblings!” Then she turned to Fisher and hugged him. “Thank you Fisher! I couldn’t have survived without you.”
 
 “You’re welcome.”
 
@@ -1826,23 +1824,23 @@ But he grabbed her hand.
 
 “What? Let go of me!”
 
-“You’re the only one who’s nice to me. If you become a wolf again, you’ll be my enemy.”
+“You’re the only one who’s ever been nice to me. If you become a wolf again, you’ll be my enemy. I don’t want to lose my only friend.”
 
-“Don’t worry, Fisher. Remember, I made a promise.”
+“Don’t worry, Fisher. If we ever become enemies, remember, I made a promise. I won’t hurt you.”
 
-“Yeah.” He hung his head. As he let go, he added, “Can I at least know your name?”
+“Yeah.” He hung his head. “Ok.” As he let go, he added, “Can I at least know your name?”
 
 “Ersatzica.”
 
-“We should do this again, Ersatzica.”
+“It was nice knowing you, Ersatzica. We should spend time together again.”
 
 Ersatzica smiled. “Sure.”
 
-She waved down Wryonin, Mudrich, and Lemilay. Wryonin drew his slingshot, but Lemilay pushed it down. Mudrich cried howls of joy. Mudrich rowed a boat across to pick up Ersatzica, with Wryonin standing, slingshot drawn.
+She waved down Wryonin, Mudrich, and Lemilay. Wryonin drew his slingshot, but Lemilay pushed it down. Mudrich cried howls of joy. Mudrich rowed a boat across to pick up Ersatzica, with Wryonin standing by, slingshot drawn.
 
 When Mudrich rowed ashore, she stood and paused. “Ersatzica?”
 
-“Oh, Muddy! It’s you!” She hugged her wolf sister.
+“Oh, Muddy! It’s you!” She tried to hug her wolf sister, but Mudrich pushed her back.
 
 “Hold on, hold on. I have to first ask you a few questions.”
 
@@ -1860,11 +1858,11 @@ When Mudrich rowed ashore, she stood and paused. “Ersatzica?”
 
 “I was born with it.”
 
-“Oh, Ersie! It *is* you!” Muddy hugged her back. “Ah! Cat! Ew! Here, take this.”
+“Oh, Ersie! It *is* you!” Muddy hugged her back, but just for a moment. “Ah! Cat! Ew! Here, take this.”
 
-Ersatzica held the wolf skin up to the sun. A blue shimmer streaked across it, welcoming her back. “The Wolfskin of Monassus.” She put in on, snuggling her head into the “hood” first. It immediately took effect, changing her cat features into wolf from the head down. She slipped the boots off just in time before the changes got to her feet. She hugged herself. “Thank you, Monassus.”
+Ersatzica held the wolf skin up to the sun. A blue shimmer streaked across it, welcoming her back. “The Wolf Skin of Monassus.” She put in on, snuggling her head into the “hood” first. It immediately took effect, changing her cat features into wolf from the head down. She slipped the boots off just in time before the changes got to her feet. She hugged herself. “Thank you, Monassus.”
 
-Mudrich rowed her across the river.
+Mudrich rowed her across the river. She was once again reunited with all of her siblings.
 
 “Wryonin!” Ersatzica opened her arms wide.
 
@@ -1908,4 +1906,4 @@ As soon as Mudrich put her down, they both followed Wryonin and Lemilay.
 
 “Good. But hopefully there won’t be a next time.”
 
-“I hope so too.” Ersatzica said, as she turned her head back to steal a quick glance. Fisher was waiting on the shore, waving goodbye to her.
+“I hope so too.” Ersatzica said, as she turned her head back to steal a quick glance. Fisher was waiting on the shore, waving goodbye. She smiled back, wagging her tail.
