@@ -1340,7 +1340,7 @@ The moon shone warmly through the rain clouds, illuminating down on Ersatzica.
 
 She looked up to it. “Alpha, Wolf God of the Loyal Moon, please help me.”
 
-# Chapter 5
+# Chapter 5 – Yotleph’s Skull
 
 Ersatzica slept under the stars that night in the river.
 
