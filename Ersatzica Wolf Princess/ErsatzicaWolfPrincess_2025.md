@@ -1751,3 +1751,161 @@ Fisher lowered his arms. “Well, you didn’t scratch me, you didn’t punch me
 “So you’re not here to bury me like the Phantom Guard?”
 
 “No. And actually, I need your help.”
+
+“Ok, as long as you don’t promise to hurt me.”
+
+“I promise.”
+
+“Wait, I meant promise to not hurt me.”
+
+Ersatzica clasped her hands around his and looked him in the eye. “I promise I won’t hurt you.”
+
+Fisher breathed a sigh of relief. “So, what do you need?”
+
+“I’m trapped in this cat body.”
+
+“How?”
+
+Ersatzica tapped the boots she was wearing.
+
+“Ah.” He crouched down to examine them more closely. “They’re in pristine condition. The owner must have only recently passed.”
+
+Ersatzica blushed. “Actually, I found them in an abandoned room on a poor old soul who had been forgotten for ages. I polished them up myself.”
+
+“You did this? Wow!” Fisher looked at his reflection in the boots. “I don’t think I’ve heard of these boots before. What are they called?”
+
+“The boots.”
+
+“Yes, but *whose*?”
+
+“I’m… not sure.”
+
+“May I test them?” Fisher began to take them off her feet.
+
+“No no!” Ersatzica brushed him off. “I’m not taking them off.”
+
+Fisher flinched.
+
+“I can tell you about them though.”
+
+Fisher pulled a book and pen out of his basket. “Sure, go ahead.”
+
+“Well, when you latch—”
+
+*AWOOOOOOO!* (“Here!”)
+
+“Wolves!” Fisher jumped behind a bush.
+
+Ersatzica calmed down Fisher, and together they followed the sound of the howl. Peeking through a bush on the river bank, they spotted three wolves on the other side of the river. “Shhhh.”
+
+Ersatzica latched up both boots. The world came pouring into her ears. Thewind whistled, the trees groaned, and the river roared. But just beyond, she could hear voices.
+
+“Ersatzica! ErSAAAATZica!”
+
+*AWOOOOOO!* (“Here!”)
+
+It was her siblings!
+
+Mudrich mournfully held up a wolf skin in the air as she howled as loud as her heart would allow.
+
+“That looks like the Wolf Skin of Monassus.” Fisher said excitedly. “It’s known to turn cats into wolves!”
+
+“So you think that’ll turn me back?”
+
+“I think so.”
+
+“Thank you Fisher!” Ersatzica hugged him. “I couldn’t have survived without you.”
+
+“You’re welcome.”
+
+She stood up, preparing to leave.
+
+But he grabbed her hand.
+
+“Don’t go.”
+
+“What? Let go of me!”
+
+“You’re the only one who’s nice to me. If you become a wolf again, you’ll be my enemy.”
+
+“Don’t worry, Fisher. Remember, I made a promise.”
+
+“Yeah.” He hung his head. As he let go, he added, “Can I at least know your name?”
+
+“Ersatzica.”
+
+“We should do this again, Ersatzica.”
+
+Ersatzica smiled. “Sure.”
+
+She waved down Wryonin, Mudrich, and Lemilay. Wryonin drew his slingshot, but Lemilay pushed it down. Mudrich cried howls of joy. Mudrich rowed a boat across to pick up Ersatzica, with Wryonin standing, slingshot drawn.
+
+When Mudrich rowed ashore, she stood and paused. “Ersatzica?”
+
+“Oh, Muddy! It’s you!” She hugged her wolf sister.
+
+“Hold on, hold on. I have to first ask you a few questions.”
+
+“Huh?”
+
+“Where did you find the boots?”
+
+“In the wall behind our bedroom.”
+
+“Who won the hole digging contest when we were kids?”
+
+“You did, of course.”
+
+“And how did you get your scar?”
+
+“I was born with it.”
+
+“Oh, Ersie! It *is* you!” Muddy hugged her back. “Ah! Cat! Ew! Here, take this.”
+
+Ersatzica held the wolf skin up to the sun. A blue shimmer streaked across it, welcoming her back. “The Wolfskin of Monassus.” She put in on, snuggling her head into the “hood” first. It immediately took effect, changing her cat features into wolf from the head down. She slipped the boots off just in time before the changes got to her feet. She hugged herself. “Thank you, Monassus.”
+
+Mudrich rowed her across the river.
+
+“Wryonin!” Ersatzica opened her arms wide.
+
+“How could you do this?” Wryonin scowled.
+
+“What?”
+
+“Nevermind. Let’s get home before the cats spot us.” He walked into the woods, and they followed.
+
+“I never thought I’d be so happy to see you, Lemilay.” Ersatzica went in to hug her sister.
+
+Lemilay pushed her back. “Your little stunt cost me three weeks of extra work. I hope you’re happy.” She walked off.
+
+Ersatzica hung her head.
+
+She wasn’t able to contemplate long, as Mudrich lifted her up in a big squeeeeze hug. “I’m soooooo glad you’re back!”
+
+She gasped. “Good… to be… back…”
+
+As soon as Mudrich put her down, they both followed Wryonin and Lemilay.
+
+“I was wondering where you were, why I smelled cat, and why would you just jump into the river. I’m so glad you decided not to defect to the cat kingdom!”
+
+“Defect? What are you talking about?”
+
+“Lemilay saw you turn into a cat and walk off with a bunch of heirlooms. Sounded like you were giving our stuff away to the enemy.”
+
+“Oh, she saw that huh? I was hoping it was too dark.”
+
+“So why did you run off?”
+
+“I suddenly turned into a cat, and I didn’t know what to do.”
+
+“Well you should’ve at least told me.”
+
+“You’re right. I should’ve. I’ll do that next time.”
+
+“Promise?”
+
+“I promise.”
+
+“Good. But hopefully there won’t be a next time.”
+
+“I hope so too.” Ersatzica said, as she turned her head back to steal a quick glance. Fisher was waiting on the shore, waving goodbye to her.
