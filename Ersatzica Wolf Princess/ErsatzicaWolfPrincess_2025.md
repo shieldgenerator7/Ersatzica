@@ -800,6 +800,8 @@ POUND POUND POUND
 
 Muddie punched the last brick with extra fervor, sending it flying into the room. Ersie handed her the lantern as they both entered. Ersatzica taped her nose and Mudrich’s nose shut.
 
+[cloth or clothe pin instead of tape?]
+
 Inside, they found a few dead rat corpses, and the floor was littered in rat feces. Cob webs decorated every corner. A puddle or two reflected the lantern light.
 
 Ersie gasped.
@@ -894,6 +896,8 @@ Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it 
 
 The boots had been sitting in a cool, dry place for a very, very long time. They were covered in, and filled with, dust. Ersie gently tapped them in in various directions to get the dust out. She wiped down every surface she could, making sure to keep her nose strapped shut. Still, she sneezed a few times, necessitating opening the window.
 
+[straps vs tape, dusty boots have no color]
+
 Finally she was able to see what she was dealing with: Red metal imperial boots with gold plating. It had patches where the paint had been chewed down. It was very mechanical for a pair of boots: a spring from the heel to the sole, gears in the middle, and a sliding mechanism that separated the rest of the boot from the ground. It was very stubborn in moving, making it difficult to tell what the mechanism was for. But that wasn’t anything a little oil couldn’t fix.
 
 After a good oiling, scrubbing, and polishing, the boots sparkled like new. Even the missing paint splotches looked fantastic, gave it character.
@@ -912,6 +916,8 @@ The boots were very enticing. The best part of refurbishing an heirloom was alwa
 
 Ersatzica turned around. It was Tormael, the town chef. He stood just outside the workshop. His large frame almost matched the door opening. He held his hand out, dangling a pickled wolf foot from a string. It was covered in ice crystals. “Oh, no problem. I can fix that for you.”
 
+[how does pickling work? Taxidermied?]
+
 Tormael dropped the foot as she reached out for it. “See you tomorrow.”
 
 Ersatzica barely caught it. “Oh, I’ll have it fixed here in a few minutes.”
@@ -923,6 +929,8 @@ Ersatzica put the foot on a shelf. Then she turned back to the boots. No use in 
 The boots called to her. She embraced them in both her arms. The boots felt warm and welcoming, as if they were hugging her back. She had felt connections like this to other heirlooms, but none as strongly as this one.
 
 She placed the boots on the ground, and scooted her stool to be right next to them. She tried to slip a wolf foot in, but it wouldn’t fit, even with the latches swung all the way open.
+
+[mention Alpha before this]
 
 “I promise Alpha, I wish I could try you on. To see what you are, to learn more about you.”
 
@@ -937,6 +945,8 @@ She dipped her toes into the boots, which hugged her feet, welcoming them inside
 Without clasping the boots, she lifted them up, one by one, to see how heavy they were. Despite being made of metal, they felt light enough to move about easily. She walked around her workshop a little, stomping about, clanging the metal boots on the stone floor. Then she returned to her stool.
 
 Reaching down, she clasped the boots shut. The world around her demanded her attention. The door, it creaked? Even when shut and stationary? The wind blew through its cracks, around the workshop, and out the window, pushing the pane ever so slightly to make occasional scraping noises, and jittering the jars ever so slightly. The whipper-whirls outside were singing their nightly songs from their nests all the way down by the river. And the townsfolk! The walls usually muffled their voices into unintelligible murmurs, but now they were unmistakable whispers.
+
+[react to body changes more?]
 
 “Is this what it’s like to be Wryonin, all the time?” She wondered. She said it out loud, but this time, she didn’t hear her own voice. She got up and stomped around the workshop. No noise. She took her screwdriver and tapped it on the counter. No noise. She picked up the frozen wolf foot, and smashed it with a hammer. No noise. She picked up an ice shard and threw it at the door. It made a small *PIP* when it hit, and a small *PAT* when it fell to the floor.
 
@@ -973,6 +983,8 @@ But the transformation didn’t slow. In fact, it got more painful. The skin nea
 *AWOOO—* She turned her muzzle up to cry for help, but stopped herself. What if she was a cat when help came? How would the others respond? There’s no way to know. Best to wait it out, and figure it out from there.
 
 She put the boots on, and latched them up. Now she could let out all the howls of pain she wanted without attracting unwanted attention.
+
+[describe the transformation going across her belly scar]
 
 But it was *painful*. The skin peeling moved up her back, tormenting her sensitive nerves, and pulling at her new orange fur. It wasn’t even in a place she could lick easily. She howled silently.
 
