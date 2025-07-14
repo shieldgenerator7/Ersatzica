@@ -680,7 +680,7 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 “Muddie, do you believe in ghosts?”
 
-# Chapter 2 – The Boots of Pantrinome
+# Chapter 3 – The Boots of Pantrinome
 
 “So what do we tell her?” Wryonin asked Lemilay as hung his utility belt on his bed.
 
@@ -1014,7 +1014,7 @@ Well, they won’t find her. She’ll leave. But how? Her workshop is in the mid
 
 “Ersatzica!” Mudrich opened the workshop door.
 
-# Chapter 3 – Nosalen’s Foot
+# Chapter 4 – Nosalen’s Foot
 
 Ersatzica quickly hid in a corner and unlatched the boots. “Oh, hi Mudrich!”
 
