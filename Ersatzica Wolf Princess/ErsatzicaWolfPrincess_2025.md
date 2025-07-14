@@ -1919,3 +1919,355 @@ As soon as Mudrich put her down, they both followed Wryonin and Lemilay.
 “Good. But hopefully there won’t be a next time.”
 
 “I hope so too.” Ersatzica said, as she turned her head back to steal a quick glance. Fisher was waiting on the shore, waving goodbye. She smiled back, wagging her tail.
+
+# Chapter 6
+
+“Mudrich, don’t forget to take a bath when we get home.” Lemilay said.
+
+“Me?” Mudrich sniffed Ersatzica then plugged her nose. “Ersatzica is the one who stinks! You smell like a cat!”
+
+“I do?”
+
+Wryonin sniffed her. He shrugged.
+
+Lemilay took a little whiff from far away and instantly covered her nose. “Yeah, you do.”
+
+“Ok, I’ll take a bath when we get home.” Ersatzica sheepishly looked down.
+
+“Yay! No bath for me!” Mudrich did a cartwheel, landing face first into a mud puddle. She waved her arms and legs, wagging her tail, doing mud angels. “Maybe you should smell like cat more often, Ersie.”
+
+“If you track any of that into the barracks, you’re sleeping outside.” Lemilay snapped.
+
+“Fine.” Mudrich hugged a tree, rubbing the mud off onto it, and wiped her paws on grass as they walked.
+
+When they got back home, Ersatzica went to the bath house. Lots of other wolves were there for their weekly bath. If they were lucky, they got to take a shower in one of the few standing spots in the rain room. Being the daughter of the chief, the other wolves gladly let her take their place in line.
+
+A long, stone trough ran from a nearby waterfall into the roof of the rain room, which was halfway into the ground to ensure proper water flow. The water flowed from the trough onto the roof, which had small holes specifically designed to pour onto individuals below.
+
+Inside, Ersatzica ran into a familiar teenage deer.
+
+“Oh, hi Nephalie.”
+
+“Oh, it’s you again.” Nephalie turned her back and put her tail down. “Are you still a cat or do you just smell like one?”
+
+“Are you ok?”
+
+“Of course I am.” She stomped a hoof as she scrubbed her fur.
+
+“I mean, they didn’t hurt you, did they.”
+
+“What does it look like?” Nephalie showed her front enough to make a bruise on her side visible.
+
+“I’m sorry, Nephalie, I didn’t mean for—”
+
+“I don’t want to hear it. I’m not interested in fixing whatever it is you want me to fix.”
+
+“No, it’s not that, it’s—”
+
+“What? You’re genuinely concerned for my well being? Give me a break.”
+
+The other wolves were too busy making full use of their limited shower time to pay attention to the conversation.
+
+“Yes. Give me a chance to make it up to you. Anything.”
+
+“How about your shower slots for the month?”
+
+“*All* my shower slots?”
+
+“Well, yeah! At least until my bruise heals.”
+
+“Ok, done.”
+
+“Really? Hm. I’ll believe it when I see it.” Nephalie continued scrubbing. “But for now, that’ll do.” She finished up, and as she was walking away, she added, “And by the way, thanks for standing up for me.”
+
+Wagging her tail, Ersatzica smiled at Nephalie as she left.
+
+Now it was time to make good use of the last shower she’d have for a while. Ersatzica scrubbed the cat scent off her and finished up. She sniffed herself. She smelled weird, like wet dog. She left the shower room and did a big shake to dry off.
+
+“Ersie!” Muddy leapt at her, tackling her in a hug.
+
+“Oof!” Ersie hugged her back.
+
+Mudrich buried her nose in Ersie’s fluffy chest. “You smell like a wolf again!” She gave her another squeeze hug.
+
+“I smell weird.”
+
+“Well, you’re still wet, yes, but give it a few minutes, and it’ll smell like normal again.”
+
+Why does the scent of wolf smell weird to her? She’s been a wolf all her life. Was she expecting a cat scent?
+
+“I guess you’re right.” Ersatzica looked down at her chest. “Muddy! You got me all—”
+
+“Muddy!” She giggled. “No baths for a week!”
+
+“You can’t keep getting away with this.” Ersie brushed the dry mud dust off her fur.
+
+“Agreed.” Out of the shadows stepped a weary figure, the chief of the wolf village, their Mother.
+
+“Mother.” They both greeted.
+
+“My young pups.” She glared for a minute before speaking. “Mudrich, why haven’t you taken your bath yet?”
+
+“I gave my bath time to Ersie, because she needed it.”
+
+“And why did she need it?”
+
+“Because she smelled like a cat!”
+
+“And why is that?” Mother eyed Ersatzica.
+
+“Because she was a c—”
+
+Ersatzica grasped a paw hand around Mudrich’s muzzle. She held on as Mudrich growled and tried to break free. “I wasn’t a cat! She means, I was in cat territory… um, no, I mean, uh, by that I mean, I was in territorial boots, that smelled like cats.”
+
+Mother was not amused.
+
+“I mean, I found some heirloom that was made by cats, and I spent *all* day working with it, and that’s why I smell like cats. It’s a lot of work fixing them up, you know, and…”
+
+Mother gave her a look.
+
+Ersatzica hung her head and let Mudrich’s mouth go.
+
+“You did too!” Mudrich exclaimed, taking a deep breath. “Also, Mother already knows everything! I don’t know why she’s even asking. And it wasn’t nice of you to shut me up like that.”
+
+“I’m very disappointed in you, Ersatzica. A young chiefling should know better than to lie to their elders.”
+
+“Sorry,” she mumbled.
+
+“I forgive you.” Mudrich’s mood flipped on a dime. “So, do you want to go the bone pile before bed? I heard there’s some pretty big scraps left—”
+
+“Mudrich, give us some space, please.” Mother said.
+
+Mudrich’s ears drooped. “Ok.” She left.
+
+Mother led Ersatzica to the edge of the cliff where the bath house drained out. “What happened, Ersatzica?”
+
+Ersatzica broke down into tears. “I sinned against Alpha.”
+
+Mother hugged her. “Tell me.”
+
+“I became our greatest enemy, and ran away to join them forever.”
+
+Mother stroked the fur on the back of her head. “Go on.”
+
+“I didn’t mean to, I swear. I never *wanted* to leave. But I had *no choice*.”
+
+“And why did you have no choice?”
+
+“Because… because…” Ersatzica choked back tears. “Because I turned into a cat.”
+
+“And why did you?”
+
+“Because I wanted to fit into these damned boots.”
+
+“Yes.”
+
+“And then I didn’t know how to undo the transformation, and I was so scared. So I ran.”
+
+“Yes.”
+
+“And I was going to just stay over there forever, but then they found me, and brought me this heirloom—” She pinched her wolf skin. “—and now I’m me again.”
+
+“Yes. And?”
+
+“And I’m scared—scarred. I’m scarred. My belly scar is still here.”
+
+“Yes.”
+
+Ersatzica’s eyes dried as Mother stroked her fur.
+
+“Is that all?”
+
+She wiped some tears from her eyes. “Uh huh.”
+
+“Listen, Ersatzica. What I’m about to tell you is *very* important, understand?”
+
+She nodded.
+
+“You are a wolf. I am a wolf. You are my daughter. And that’s never going to change.”
+
+She nodded.
+
+“I swear to Alpha, the Wolf God of the Loyal Moon, you are my daughter, and I will never abandon you. Understand?”
+
+“Yes, Mother.”
+
+“And in return, I expect you to be loyal to me as well. Yes?”
+
+“Yes.”
+
+“That means staying as a wolf, keeping to the wolf side of the river, and fulfilling your duties and responsibilities as chiefling. Understand?”
+
+“Yes, Mother.”
+
+“Ersatzica, look at me.” Mother grabbed Ersatzica by the cheeks and steered her into her gaze. “I love you very much. Nothing will ever change that.”
+
+“I love you, too, Mother.”
+
+Mother brought her in close for a hug. “Your mother would be so proud of you.”
+
+Ersatzica embraced Mother, tears still drying in her eyes. How could she ever have let this happen? She was a disgrace for ever wishing to fit into the boots. She should hide away those boots the next time she sees them—or give them away. Maybe even put them back where she found them. Yes. She should do that tomorrow, or even tonight. But no, there’s no time. Besides, Nephalie wouldn’t be up to closing up the wall tonight. Either way, Ersatzica was going to get rid of the boots for good.
+
+“But they’re so dusty!” Ersatzica held the boots up to the morning light shining through the workshop window. “Maybe I can just clean them up a bit, so they look decent when going into long-term storage. Yeah, that’ll—"
+
+*BAM!* “Ersie!” Mudrich burst through the door, breaking the deadbolt clean off the wall.
+
+“Muddy! How many times did I tell you to knock first?”
+
+“That *was* the knock!”
+
+“Oh…” Ersatzica turned to look at her. “What?”
+
+“Yeah, with these cuffs, even my knocks are super powerful!”
+
+“Well don’t knock so hard.”
+
+“Sorry.” Mudrich scampered in, tracking mud flakes across the workshop. She licked Ersie on the cheek.
+
+“Muddy!”
+
+“Come on, Ersie! Let’s go test out some new heirlooms! There’s a whole wheelbarrow of them we haven’t tested yet.”
+
+“Sorry, Muddy, but after recent events, I’m trying to avoid potentially cursed items.”
+
+“Ah, come on!” Muddy insisted. “What’s the worst it could do? Give you diarrhea?”
+
+“It could turn you into a cat.”
+
+“Oh, right. The boots.” Mudrich flicked a gear on a boot. “What are you going to do with them?”
+
+“Well, I’m waiting to talk to Nephalie. I’m going to put them back in that hole we found them in.”
+
+“Pffft. We don’t have to wait for her to drag her deer butt over here. *I* got the hoof clipping.”
+
+“It hasn’t been fixed yet?”
+
+“No time, we were out looking for you.”
+
+“But if we break the hoof clipping to open the wall again, we’ll still need her.”
+
+“Well I discovered a way to un-break one.”
+
+“Really?”
+
+Mudrich led Ersatzica to a mud puddle with a circular mound built around it. “Yep! All you have to do…” She fished around in the puddle, and pulled out a soggy hoof clipping. “…is soak it in mud!” She snapped it in half, then put the pieces back together. “It’s that easy.”
+
+They verified that it worked in their bedroom, too. The hole opened when Mudrich pulled the pieces apart, and the hole closed when she put the pieces together.
+
+“Muddy, you’re a genius!”
+
+“Thank you. And now the hole is ready!” She opened the hole to the secret room.
+
+“Ok!” Ersatzica grabbed the boots and walked to the threshold. She hesitated.
+
+“What are you waiting for? Put them back.”
+
+“But what if we need them?”
+
+“What do you need cursed boots for? Put them back.”
+
+“I mean, even the belt of diarrhea has its uses, right? Like if you’re constipated.”
+
+“Well, yeah, but—”
+
+“So maybe these boots also have their uses.”
+
+“Yeah, if you’re cat, maybe.”
+
+“So that means—”
+
+“That *means* that you have to put them back!” Mudrich growled.
+
+“Ok, ok, I’m putting them back.” Ersatzica did so and returned to their bedroom.
+
+Mudrich put the hoof clipping back together and the wall sealed itself back up. “Phew! I’m glad that’s gone and done, and over with. And finished. And completed, and another word that means finished. Ah, finished! No wait, I said that already.”
+
+“Yeah…” Ersatzica climbed up into her bunk to think. To think about the boots.
+
+“So, do you want to play in the mud?”
+
+“Sure, Muddy, let’s go!”
+
+“Really?”
+
+“Yeah, I need a break from work for the day.”
+
+“Ok!”
+
+Ersatzica played with Mudrich in the mud for an hour or so. The whole time, Ersatzica kept track of where Mudrich stashed the hoof clipping. She found a moment to strike, and snatched it out of its muddy hiding spot. She hid it in the thick of her chest fluff, but Muddy smelled it.
+
+“Why do I smell deer hoof clipping on you?”
+
+“What do you mean?”
+
+Mudrich reached in to Ersie’s chest fluff and pulled it out. “Ersie!” She growled.
+
+“I just wanted to make sure it didn’t get lost, or broken, or stolen. A mud puddle isn’t a very good place to keep it.”
+
+“Good point. Well, seeing as how I won’t be needing a bath for a while…” Mudrich stuck the hoof clipping in her chest fluff. “That’ll do.”
+
+Ersatzica tried in vain to take it throughout the day, but Mudrich blocked all her attempts or very easily got it back.
+
+“I’m telling Mother.”
+
+“No, please, Muddie.” Ersie pleaded. “Ok, ok, I’ll stop trying to get it from you.”
+
+“Ok! Time to die!” Muddie tackled Ersie and went for her leg, biting it with a playful ferocity only a sibling could have.
+
+“Not if I get you first!” Ersie pawed at Muddie and bit her ear. The two of them wrestled in the mud pit for a few hours.
+
+*AWOOOOOOO!* (“Hour”)
+
+“Hey, that’s the lunch hour howl! Last one there is a smelly cat!”
+
+“I’m all muddy, Muddy.”
+
+“That doesn’t stop me.”
+
+“But I don’t want to eat with all this mud on my paws.”
+
+“I swear to Alpha, You’re turning into Lemilay!”
+
+“Why don’t you go on ahead, I’ll catch up.”
+
+“Ok, see you in a muddie!” Muddie left.
+
+Ersie rose from the mud puddle and brushed herself off. It didn’t help much. She wandered to the river, and looked longingly out to the other side. She waved at the spot she thought Fisher would be at.
+
+A rock came hurling through the air, landing right next to her. A fishing line pulled it back into the river and to the other side, where it disappeared.
+
+Ersie took this as her cue to row across the river. “Fisher!” she whispered.
+
+A black and white cat suddenly approached. “Ersatzica!” He smiled.
+
+“Quick! Get in the boat!”
+
+“Why don’t you come on shore?”
+
+“I made a promise not to go to the cat side of the river.”
+
+“Well you’ve already broken it.”
+
+“No, I haven’t gotten out of the boat yet.”
+
+“Ha! Well, I don’t want to be seen with a wolf. Can you transform?”
+
+“I also promised not to turn into a cat. Besides, the boots are in a secure location, I can’t get to them.”
+
+“And you have time to be here?”
+
+“Well, I’m *supposed* to be fulfilling my duties, but as long as I get it done, it doesn't matter if I take a break, right?”
+
+“Haha.” Fisher laughed. “I guess you’re right.” He climbed into the boat. “But we should make this quick, I don’t want Mystra to find me talking with you.”
+
+“Right.”
+
+“Would you like some fish?”
+
+Ersatzica salivated. She grabbed two whole fish and bit into them.
+
+“So about that wolf skin, I did some more research on it. It turns out it has a pretty interesting history.”
+
+“Mmm?’” Ersatzica eeked out, mouth full.
+
+*In the early days of the Cat Kingdom, there was a young cat prince known as Quivester.*
