@@ -269,3 +269,21 @@ Wolf?
 \-Ersatzica 2025
 
 A lock heirloom that is stuck shut. It negates the effects of heirlooms that it touches or that is in its field. You can expand its field by strapping it to the item in question.
+
+# Roseblood’s Spear
+
+Cat
+
+When the spear tip hits something and stops, it teleports its user to its location, or to some space available for them. This happens whether the spear was thrown or merely thrusted.
+
+Awoomoon’s wolf husband used this heirloom to kill Pantrinome.
+
+# Epaulette of The High One
+
+Cat
+
+Fancy shoulder pads connected together. When placed on the ashes of a person, it brings the ashes together to reform and resurrect that person. Any non-burn wounds they had are now healed.
+
+Only works on ashes, not on dead bodies.
+
+The High One used this heirloom on himself to become virtually immortal, allowing him to start and rule the Cat Kingdom for centuries.
