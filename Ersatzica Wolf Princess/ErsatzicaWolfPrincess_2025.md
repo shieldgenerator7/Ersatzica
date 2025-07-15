@@ -2270,4 +2270,98 @@ Ersatzica salivated. She grabbed two whole fish and bit into them.
 
 “Mmm?’” Ersatzica eeked out, mouth full.
 
-*In the early days of the Cat Kingdom, there was a young cat prince known as Quivester.*
+*In the early days of the Cat Kingdom, there was a young cat prince self-named Quivester. Although he was a royal orange-coat red-tip, he behaved like a scrappy black-coat white-foot. He did nothing but practice his favorite sport: archery. He was very good at it, but terrible in all other aspects: manners, social gatherings, keeping up appearances. This greatly bothered The High One.*
+
+“’The High One’? Is that the name of your god?”
+
+“No, he’s the king of the Cat Kingdom.”
+
+“Ok.”
+
+*One day, The High One’s daughter asked Quivester to mate with her. Quivester refused. Insulted, The High One exiled him for 1 month, or until he agreed to mate with his daughter. Quivester walked himself out of the city and they closed the gates behind him. “He wouldn’t last long outside the gates,” declared The High One.*
+
+*Quivester killed dozens of wild animals in that month, sustaining himself on his hunting skills. He conserved his gold this way, spending only what he needed to on equipment at trading posts. The traders all raised their prices on him, of course, as ordered by The High One.*
+
+*One visit to a trading post led to him meeting a wolf slave pulling a wagon. The cat owner was punishing it harshly, using illegal torture devices. Quivester pulled the cat owner over, and ordered him by official decree to transfer ownership of the wolf to him. He spent the last of his gold, but the wolf was now under his ownership. The wolf was forcible named Monassus at birth. It was despised by The High One.*
+
+“You keep wolves as slaves?”
+
+“No, not anymore. They were all freed a long time ago.”
+
+*Quivester and Monassus spent everyday and every night together, hunting and telling stories. Quivester hunted food for them, and Monassus managed the equipment. Quivester told Monassus about the privileged Cat Kingdom life, and Monassus told Quivester about the unloyal slave trade in the wolf village. When it came time for Quivester’s exile to end, he was summoned back to the Cat Kingdom by The High One.*
+
+*The High One demanded Quivester mate with his daughter, but he refused again. This time, The High One exiled him for good, and stripped him of all his possessions, including his wolf slave, which was given to his daughter. Lost was Quivester, punished was Quivester. Exalted and triumphant was The High One.*
+
+*Let this be a lesson to you, o people of the Cat Kingdom. The word of The High One is the holiest of words, and shall be followed unwaveringly before all other word. If you disobey him, you will face the wrath and punishment of The High One.*
+
+“Wait, that’s the end?” Ersatzica grabbed the book and glued her eyes to it. “I thought you said this was about the wolf skin?”
+
+“Huh, I thought it would be. Also I’m surprised to hear The High One was so strict back then. He’s really lightened up over the years.”
+
+“But how did it end? For Monassus?”
+
+“I don’t know. But I’ll see if I can find more stories about him.”
+
+*AWOOOOOO!* (“Here!”)
+
+“Oh! That’s my sister calling. I have to go.”
+
+Fisher hopped out of the boat. “Ok. Say hi to Magystra for me if you see her.”
+
+“Ok.”
+
+Ersatzica rowed back across the river and ran to catch up with her sister.
+
+“I’m… here!” Ersatzica panted. “Muddy.”
+
+“Ersatzica! Where’ve you been?” Muddy patted her on the back.
+
+“I just had to check something by the river.”
+
+Mudrich sniffed the air. “Hold on, what’s that smell?”
+
+“What smell?”
+
+“It’s cat! You smelled like cat!” Mudrich sneered.
+
+“I do?”
+
+“Yeah. Did you go across the river again?” She gasped. “Did you turn into a cat again?”
+
+“No, we sealed the boots, remember?”
+
+“Ok, but did you cross the river?”
+
+“No.”
+
+Mudrich eyed her.
+
+“Cats must’ve been in the area recently, and the scent must’ve clung to me.”
+
+Muddie eyed her.
+
+“Ok, ok. I was trying to sample some cat piss.”
+
+“What? Why?”
+
+“An experiment I’m working on. Want me to explain it to you?”
+
+“Ew! No!”
+
+“Now *you’re* starting to sound like Lemilay.”
+
+“Come on, Mother has called us for a meeting.” Mudrich grumbled.
+
+Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something.
+
+“Ersatzica, how good of you to join us.”
+
+“Where were you? I howled like three times for you.” Wryonin growled.
+
+“I was busy.”
+
+“With what?”
+
+“My pups,” Mother said. “It is time to start the meeting.”
+
+They all sat up straight and paid attention.
