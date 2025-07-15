@@ -38,33 +38,29 @@ Summary: Cat Ersatzica escapes to cat outpost
 -   Fisher helps Ersatzica across the river, then they go back to cat outpost
 -   Magystra is stuck overnight in wolf village
 
-# Chapter 4
+# Chapter 5
 
 Summary: Ersatzica spends a day as a cat
 
+-   Ersatzica meets Fisher, cat outpost
 -   Ersatzica hangs out with Fisher
+-   Fisher shows Ersatzica heirloom encyclopedia
 -   Fisher and Ersatzica talk about Yotleph
--   Cat Ersatzica is asked what she is, and she says she’s a wolf
--   Fisher teaches Ersatzica how to be a cat
-
-# Chapter 5
-
-Summary: siblings rescue Ersatzica
-
+-   Cat Ersatzica reveals to Fisher that she’s a wolf
 -   Lemilay uses hindsight to track down Ersatzica
--   Wryonin and mudrich cross river in boat
--   Ersatzica greets them
--   They take her back to wolf village, gives her back wolf skin
--   Magystra comes back to cat outpost
--   Magystra claws out Fisher’s eye
+-   Lemilay, Wryonin, Mudrich rescue Ersatzica, bring her the wolf skin
+-   Magystra comes back to cat outpost (offscreen)
+-   Magystra claws out Fisher’s eye (offscreen)
 
 # Chapter 6
 
 Summary: Ersatzica ponders being a cat while doing the first chief training task
 
--   Awoomoon tasks them to census the wolf village
+-   Ersatzica reconciles with Nephalie
+-   Ersatzica promises to be loyal to Awoomoon
 -   Ersatzica sneaks off to hang out with Fisher
--   Fisher shows Ersatzica heirloom encyclopedia
+-   Awoomoon tasks them to census the wolf village
+-   Fisher teaches Ersatzica how to be a cat
 
 # Chapter 7
 
