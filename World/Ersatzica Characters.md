@@ -6,21 +6,31 @@ This document is for keeping track of details of the characters in Ersatzica's s
 
 Main character
 
+Wolf, Chiefling of wolf village
+
 *A slender, black and white wolf pulls a strap tight around her waist.*
 
-Aka Ersie, ‘Nic
+Aka Ersie, Magystra\*
 
 Is actually a cat disguised as a wolf.
 
 *Her stomache fur was still white. She turned and examined her hips. Orange fur was creeping up her side, leaving darker stripes in their wake. This is an unusual fur pattern for a wolf. She grabbed a hold of her tail, now that she had a passable ability to balance. It was long, slender, and orange with dark orange stripes. A tuft of red fur tipped the end of it.*
 
+\*because of a confusion
+
 # Mudrich
 
+Wolf, Chiefling of wolf village
+
 Ersatzica's wolf sister
+
+aka Muddy
 
 *A shorter, stockier, white wolf punched the air in front of her, incidentally shaking off some of the caked mud that had accumulated on her fur.*
 
 # Lemilay
+
+Wolf, Chiefling of wolf village
 
 Ersatzica's "older" wolf sister
 
@@ -28,11 +38,15 @@ Ersatzica's "older" wolf sister
 
 # Wryonin
 
+Wolf, Chiefling of wolf village
+
 Ersatzica's wolf brother
 
 *A black and grey wolf stretched his muscles, flexing them with each drum beat.*
 
 # Awoomoon
+
+Wolf, Chief of wolf village
 
 Ersatzica's wolf mother
 
@@ -42,23 +56,33 @@ aka Huripka (as a young wolf)
 
 # Awsoodoo
 
+Peacock
+
 Awoomoon’s peacock best friend growing up.
 
 # Soofawkoo
+
+Peacock
 
 Awsoodoo’s father. Peacock.
 
 # Freyest
 
+Wolf
+
 Awoomoon’s father. Wolf.
 
 # Freyest
+
+Wolf, formerly Chief of wolf village
 
 Awoomoon’s husband. Wolf. Bio father of Lemilay, Wryonin, Mudrich. Wolf father of Ersatzica.
 
 # Medic Lersha
 
-Bear medic. She resided in the peacock village. After the events of Awoomoon’s story, she moved to the wolf village with Awoomoon.
+Bear, Main Medic of wolf village
+
+She resided in the peacock village for years. After the events of Awoomoon’s story, she moved to the wolf village with Awoomoon.
 
 *A bear a head taller than Dad walked into the room. She wiped her fire-burnt palm on her medic apron.*
 
@@ -66,22 +90,36 @@ Bear medic. She resided in the peacock village. After the events of Awoomoon’s
 
 # Fisher
 
+Cat
+
 Cat fisherman. Rescued Ersatzica from the river, and was her entry point into cat culture. Dates Ersatzica.
 
 Born a wolf, he was transformed into a cat, and chooses to stay in cat form.
 
+Fisher isn’t his chosen name, but is the name Ersatzica gave him.
+
 # Callustar
 
-(formerly Coach Ynndor)
+Wolf
 
 Wolf training coach. Awoomoon’s older brother. Ersatzica’s uncle. War veteran.
 
 *The wolf at the head of the formation led them in stretches. He was missing an arm. Nevertheless, his tall stature and muscular frame combined with his scowling face made him rather intimidating.*
 
+(formerly Coach Ynndor)
+
 # Orent
+
+Wolf
 
 Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts.
 
 # Magystra
 
+Cat, Invasion Mission Lead
+
 Cat spy. She’s Ersatzica’s cousin by blood, and looks almost exactly like her, to the point people often mistake one for the other. She uses a tooth from Yotleph’s Skull to make herself undetectable as she snoops around the wolf village. She wants to help conquer the lands beyond the mountains and become a ruler away from the Cat Kingdom.
+
+aka Ersatzica\*
+
+\*because of the Wolf Skin of Monassus
