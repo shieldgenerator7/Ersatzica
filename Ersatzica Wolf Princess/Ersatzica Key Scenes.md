@@ -2,6 +2,8 @@ Ersatzica Key Scenes
 
 This document is a list of key scenes in the story. Its purpose is to help me organize my thoughts. Some scenes might be connected together.
 
+# Overview
+
 # Chapter 1
 
 Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
@@ -58,6 +60,7 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 
 -   Ersatzica reconciles with Nephalie
 -   Ersatzica promises to be loyal to Awoomoon
+-   Mudrich helps Ersatzica put away the boots
 -   Ersatzica sneaks off to hang out with Fisher
 -   Awoomoon tasks them to census the wolf village
 -   Fisher teaches Ersatzica how to be a cat
@@ -115,3 +118,61 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 -   Wryonin is “promoted” to new town crier
 -   Mudrich is hospitalized
 -   Magystra continues marching east
+
+# Ersatzica transformation arc
+
+Every chapter, Ersatzica becomes more and more cat, either physically, mentally, or both.
+
+1.  Realizes not all cats are evil
+2.  Questions what they know about cats (?)
+3.  First transformation into cat
+4.  Learns how to move around as a cat
+5.  
+6.  
+7.  
+8.  Realizes she was born as a cat, and transformed into a wolf at birth
+9.  
+10. 
+11. 
+12. 
+13. 
+14. 
+15. Accepts she’s a cat, and parts with the wolf skin
+
+# Cat Invasion Plot
+
+The Cat Kingdom tries to take over the wolf village. This should advance ever chapter. These might not all be upfront and known to Ersatzica, but ramifications should be felt. In some chapters, the “advancement” may be as simple as Ersatzica learning more about their plans.
+
+1.  Claim the land up to the river
+2.  Magystra stealth mission
+3.  Magystra spends overnight in wolf village
+4.  
+5.  
+6.  
+7.  Wolves attack the cat outpost
+8.  Test invasion
+9.  Conquer beaver village
+10. Have beavers build damn
+11. 
+12. 
+13. 
+14. 
+15. Invade across the river with full force
+
+# Date/Time
+
+1.  1 day
+    1.  1 week (?)
+    2.  3/4 day
+    3.  1/4 day
+    4.  3/4 day
+    5.  1+ day (?)
+    6.  1 week (?)
+    7.  1 week (?)
+    8.  1 week (?)
+    9.  1 day (?)
+    10. 1 day (?)
+    11. 1/4 day (?)
+    12. 1/4 day (?)
+    13. 1/4 day (?)
+    14. 1/4 day (?)
