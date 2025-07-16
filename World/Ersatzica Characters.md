@@ -123,3 +123,19 @@ Cat spy. She’s Ersatzica’s cousin by blood, and looks almost exactly like he
 aka Ersatzica\*
 
 \*because of the Wolf Skin of Monassus
+
+# Yotleph
+
+Wolf
+
+Awoomoon’s uncle. War veteran. Defended a wide area of land from cats by himself, until he died of old age. His skull became an heirloom that hides people and their things from being seen.
+
+Ersatzica thought of him as her grandpa, as he brought her heirlooms from the cats he killed.
+
+# General Seamtrust
+
+Cat, General of Cat Outpost
+
+Magystra’s aunt.
+
+*An older cat emerged from a canvas tent. She wore various pieces of armor.*
