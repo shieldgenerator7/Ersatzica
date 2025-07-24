@@ -16,12 +16,18 @@ Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
 -   Mudrich fights some cats and gets injured
 -   Wryonin shoots a cat dead from across the map
 -   Ersatzica crosses the river, gets saved my Fisher
--   Ersatzica retrieves the cuffs
--   Mudrich gets the cuffs
--   Ersatzica assures Mudrich she’s not stupid
--   Mudrich punches hole in wall
+-   Ersatzica retrieves the heirlooms
 
 # Chapter 2
+
+Summary: Ersatzica reworks the belt into cuffs
+
+-   Mudrich goes to Medic Lersha
+-   Ersatzica reworks the belt into cuffs
+-   Ersatzica assures Mudrich she’s not stupid “youre a different kind of smart”
+-   Mudrich punches hole in wall
+
+# Chapter 3
 
 Summary: Ersatzica finds the boots, fixes the boots, becomes cat
 
@@ -29,30 +35,32 @@ Summary: Ersatzica finds the boots, fixes the boots, becomes cat
 -   Ersatzica fixes the boots
 -   Mudrich breaks Ersie’s workshop door
 -   Ersatzica wears the boots for the first time
+-   Ersatzica turns into a cat for the first time
 
-# Chapter 3
+# Chapter 4
 
 Summary: Cat Ersatzica escapes to cat outpost
 
--   Cat Ersatzica escapes to the cat outpost, possibly with the help of Fisher and Magystra
--   Awoomoon tasks Lemilay with finding Ersatzica
--   Lemilay mistakenly runs into Magystra, but nothing happens
--   Fisher helps Ersatzica across the river, then they go back to cat outpost
--   Magystra is stuck overnight in wolf village
+-   Cat Ersatzica escapes the wolf village
+-   (offscreen) Awoomoon tasks Lemilay with finding Ersatzica
+-   (offscreen) Lemilay mistakenly runs into Magystra, but nothing happens
+-   (offscreen) Magystra is stuck overnight in wolf village
 
 # Chapter 5
 
-Summary: Ersatzica spends a day as a cat
+Summary: Ersatzica spends a day as a cat •
+
+• Fisher helps Ersatzica across the river, then they go back to cat outpost
 
 -   Ersatzica meets Fisher, cat outpost
 -   Ersatzica hangs out with Fisher
 -   Fisher shows Ersatzica heirloom encyclopedia
 -   Fisher and Ersatzica talk about Yotleph
 -   Cat Ersatzica reveals to Fisher that she’s a wolf
--   Lemilay uses hindsight to track down Ersatzica
+-   (offscreen) Lemilay uses hindsight to track down Ersatzica
 -   Lemilay, Wryonin, Mudrich rescue Ersatzica, bring her the wolf skin
--   Magystra comes back to cat outpost (offscreen)
--   Magystra claws out Fisher’s eye (offscreen)
+-   (offscreen) Magystra comes back to cat outpost
+-   (offscreen) Magystra claws out Fisher’s eye
 
 # Chapter 6
 
