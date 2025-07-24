@@ -102,9 +102,9 @@ Cat?
 
 Metal cuff links that grant the wearer zero-point telekinesis, up to a weight limit. Scales with the wearer’s natural strength.
 
-# Scope of ?
+# Scope of Sureye
 
-Cat?
+Cat
 
 Telescope that lets you see through solid objects.
 
