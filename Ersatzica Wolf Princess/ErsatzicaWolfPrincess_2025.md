@@ -2365,3 +2365,81 @@ Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were ta
 “My pups,” Mother said. “It is time to start the meeting.”
 
 They all sat up straight and paid attention.
+
+“As you know, the cats have recently advanced to the river. Any day now, they may have the courage to cross and attempt to invade our village.” She sighed. “It has come to my attention that I may have been neglecting you, my pups.”
+
+Lemilay raised her chin in agreement.
+
+Mother gave a quick glare, but continued, “With your training as chieflings. One day, one of you will take my place as chief of the wolf village. When that day comes, you must have the skills and wisdom to do so.”
+
+“I already do.” Lemilay whispered.
+
+Mother growled. “To that end, I will assign you a series of tasks. Whoever completes them the best, I will appoint them as chief-lo and will train them to take my place.”
+
+Lemilay smiled smugly, looking down on her siblings.
+
+“The first task is to do a census. This must be completed by the end of the day.”
+
+“What’s a census?” Mudrich asked.
+
+Lemilay chuckled. “It’s a survey, muddling.”
+
+Mudrich grumbled.
+
+“Mudrich, my pup, just count everyone in the village, and then tell me what number you counted.”
+
+“That’s it? That’s easy!”
+
+“I would hope so.” Lemilay chuckled.
+
+Awoomoon growled at Lemilay.
+
+She stopped chuckling, but still held her chin high.
+
+“Lemilay, you have until the end of your shift today. Everyone else, you have until bedtime.”
+
+Lemilay scoffed. “You mean I have to survey the village *and* do my usual job?”
+
+“I would hope it’d be easy for you?”
+
+“Fine.” Lemilay grumbled. “This just means I’ll get it done first.”
+
+“Good. Any questions?”
+
+“Do you want us to count the traders currently at the bear farms and the—”
+
+“No, they’re not currently in the village.”
+
+“What about the hunters who are just gone for a few hours?”
+
+“No, they’re not currently in the village.”
+
+“Ok, so what if I count, then they come back. Should I count them then?”
+
+“Wryonin, just do your best. Ok, my pups, duty calls. I love you all. See you at bedtime.”
+
+*AWOOOOO!* They all howled in unison.
+
+Afterwards, Ersie approached Mudrich. “Muddie! Muddie!”
+
+Mudrich stopped in her tracks to pick up a rock. “What’s up?”
+
+“I need help. I am suuuper busy today with my other tasks.”
+
+“And you want me to help you do the counting?”
+
+“Yes… I was hoping you could…” Ersatzica got up close and whispered into her ear, “Tell me your count before bedtime.”
+
+“I don’t know Ersie, Mother wouldn’t approve.” She dropped the rock and kicked it with her foot. “But this counting sounds hard. I don’t think I can do it by myself. Can you count and give *me* the answer?”
+
+“Hmm, ok. How about this? You count one half the village, and I’ll count the other. Meet up at my workshop before bedtime?”
+
+“I can do that!”
+
+“Ok, great, see you then!”
+
+“Be back in an Ersie!”
+
+“Hey!”
+
+Mudrich giggled as she scampered off.
