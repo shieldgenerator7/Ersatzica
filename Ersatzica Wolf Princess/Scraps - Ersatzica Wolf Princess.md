@@ -115,3 +115,107 @@ She looked around and found a tree branch from another tree close enough to tran
 Once she hits the ground, and breaks her legs, it's all over. There's no way she can run away, fight them off, or persuade them otherwise. It's all hopeless now—
 
 Ersatzica's feet made contact with the ground, and the boots absorbed all the impact. The springs compressed and the bottom plate slid forward, sending Ersatzica tumbling onto her hands. She was completely fine. She landed behind the wolves. So far not one of them seemed to have noticed that she escaped. The shaking tree was an eerily effective distraction. She ran off without a sound.
+
+# Ersatzica confers with Mudrich about census (autorecovered)
+
+[Ersie sneaks off to see Fisher, which was the scene before this one]
+
+[Mudrich howls for Ersatzica]
+
+Ersie met up with Mudrich on the way to the barracks.
+
+“Ersie!” Mudrich jumped her for a hug.
+
+“Muddie!” Ersie hugged her back, tail wagging.
+
+“I got the count! I got the count!”
+
+“You did?”
+
+“Yeah! I thought it was going to be hard, but it was super easy.”
+
+“Good job Muddie!”
+
+“Thanks!”
+
+“What was it by the way?”
+
+“I just went around, counted all the buildings, and then…”
+
+“What was the count?”
+
+“…and then I counted how many people in a building, then I asked Wryonin to do math…”
+
+“What was the count?”
+
+“There’s five people in a building!”
+
+“No, I mean for your half?”
+
+“I counted 25 buildings! On my half. By the way, you’re standing on my half. This is my side of town now!”
+
+“So 125?”
+
+“That’s what Wryonin said.”
+
+“That seems… low.”
+
+Muddie looked down. “I tried my best.”
+
+“You did good Muddie.” Ersie patted her on the head. “I also counted 125 people.”
+
+“You did?”
+
+“Yeah, I guess our village is rather small, huh?”
+
+Muddie shrugged. “I guess so.”
+
+AWOOOOO! (“Hour”) The tone of this howl sounded very angry.
+
+Lemilay stormed by them, arms crossed, head high. “What are you looking at?”
+
+“Who pissed in your territory?” Mudrich growled back.
+
+“Hold your tongue, Lemilay, ignore your sister, Lemilay.” She walked past them to the barracks.
+
+Ersatzica looked at Mudrich. “What’s up with her?”
+
+“Mother caught her using the scope to spy on people, again.”
+
+“How do you know?”
+
+Mudrich pointed at Mother, who was walking towards them, with Lemilay’s scope in her mouth.
+
+Mouth shot Mudrich an angry glance.
+
+“Quick! Act natural!” Mudrich whispered to Ersatzica.
+
+“Yeah that cat sure was something.” Ersatzica casually commented to Mudrich.
+
+“It sure was. It was being a cat alright.”
+
+“Totally catty.”
+
+“Only a cat could do that.”
+
+“What cat?” Mother interjected. “Was there a cat sighting recently?”
+
+“No, no,” Mudrich waved her off. “We’re just talking about the other day.”
+
+Mother grumbled. “Have you pups finished the census yet?”
+
+“Yep!” Mudrich beamed.
+
+“Working on it.” Ersatzica looked down.
+
+“You have until bedtime, Ersatzica.” Mother walked off to her chamber.
+
+When she was out of earshot, Muddie asked, “So, what’s double 125?”
+
+“250.”
+
+“Thanks.”
+
+“Yep.”
+
+“Well, I’m sure glad I’m not Lemilay right now.”
