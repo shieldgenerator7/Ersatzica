@@ -1920,7 +1920,7 @@ As soon as Mudrich put her down, they both followed Wryonin and Lemilay.
 
 “I hope so too.” Ersatzica said, as she turned her head back to steal a quick glance. Fisher was waiting on the shore, waving goodbye. She smiled back, wagging her tail.
 
-# Chapter 6
+# Chapter 6 – The Spyglass of Sureye
 
 “Mudrich, don’t forget to take a bath when we get home.” Lemilay said.
 
@@ -2443,3 +2443,97 @@ Mudrich stopped in her tracks to pick up a rock. “What’s up?”
 “Hey!”
 
 Mudrich giggled as she scampered off.
+
+Ersie finds Mudrich. “Hi Muddie!”
+
+“Ersie!” Muddie hugged her, tail wagging. “Guess what Ersie!”
+
+“What?”
+
+“I did it! I did it!”
+
+“Did what?”
+
+“I did the counting! I thought it would be hard, but I did it!”
+
+“Good job Muddie!” Ersie patted her on the head. “What’s the count?”
+
+“I went to door-to-door, and counted all the buildings. I did a thing! It’s called ‘estimation’, and it was actually easier than counting!”
+
+“What was your count?”
+
+“Then I went into a building, counted how many people—it’s 5 by the way, 5 people per building—and then I asked Wryonin.”
+
+“What did he say?”
+
+“Well because I counted 25 buildings, Wryonin said the answer was 125.”
+
+“125? That seems… low.”
+
+Muddie hung her head. “I tried my best, Ersie.”
+
+“And you did great Muddie.” She patted her on the head again. “Guess what number I counted?”
+
+“125?”
+
+“125.”
+
+“We both got the same number! Did you use estimation too?”
+
+“Sure did!”
+
+*AWOOOOOO!* (“Hour”) The tone was very angry.
+
+Lemilay walked by them, arms crossed, head held high. Without stopping, she snapped at Mudrich, “What are *you* looking at?”
+
+“Who pissed in your territory?” Mudrich growled back.
+
+“Walk away, Lemilay, ignore your sister, Lemilay…” She stormed off towards the barracks.
+
+Ersatzica looked at Mudrich. “What’s the matter with her?”
+
+“Uh oh, looks like Mother caught Lemilay spying on people with her spyglass… again.”
+
+“How do you know?”
+
+Mudrich pointed.
+
+Mother was walking toward them, with Lemilay’s spyglass in her mouth. She looked like she was in a bad mood.
+
+“Quick! Act natural!” Mudrich elbowed Ersatzica.
+
+“Why Mudrich, did you see that… cat?”
+
+“Yeah, that was something… cat-like.”
+
+“It sure was.”
+
+“The cattest thing to cat.”
+
+“Cat? What cat?” Mother stopped in her tracks. “Was there a cat sighting today?”
+
+“Oh nothing.”
+
+“Oh there’s no cat. Me and Ersie were talking about the cat from the other day.”
+
+Mother grumbled. “Ok… have you pups finished your cens—counting?”
+
+“Yep!” Mudrich beamed.
+
+“Still working on it.” Ersatzica fidgeted with her fingers.
+
+“Well you have until bedtime, Ersatzica.” Mother continued to her chambers.
+
+Mudrich waited before speaking. “I’m sure glad I’m not Lemilay right now.”
+
+“Yeah.”
+
+“Hey Ersie?”
+
+“Yeah?”
+
+“What’s 125 plus 125?”
+
+“250.”
+
+“Thanks.”
