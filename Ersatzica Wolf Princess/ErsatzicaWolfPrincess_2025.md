@@ -2252,6 +2252,8 @@ A black and white cat suddenly approached. “Ersatzica!” He smiled.
 
 “Ha! Well, I don’t want to be seen with a wolf. Can you transform?”
 
+[make fisher refuse to see her in wolf form for fear of getting caught with her]
+
 “I also promised not to turn into a cat. Besides, the boots are in a secure location, I can’t get to them.”
 
 “And you have time to be here?”
@@ -2443,6 +2445,10 @@ Mudrich stopped in her tracks to pick up a rock. “What’s up?”
 “Hey!”
 
 Mudrich giggled as she scampered off.
+
+[my computer crashed and lost the scene I just wrote about Ersatzica and mudrich getting a complete count :[ ]
+
+[ersatzcia goes to see fisher as seen earlier in the chapter]
 
 Ersie finds Mudrich. “Hi Muddie!”
 
