@@ -2543,3 +2543,65 @@ Mudrich waited before speaking. “I’m sure glad I’m not Lemilay right now.�
 “250.”
 
 “Thanks.”
+
+[ersie goes to see fisher again?]
+
+Bedtime approached, and Ersatzica entered the barracks to find her siblings already there.
+
+“Ersie!”
+
+“Muddie!”
+
+“but you can’t count them, they’re not people—“ Wryonin argued with Lemilay. “oh hi, Ersatzica—they can’t lift anything, and they can’t be separated from their mother—”
+
+“But they will increase the population!” Lemilay protested.
+
+“What are they arguing about this time?” Ersatzica sat next to Muddie in her bed, picking a spot with less dirt.
+
+“The census.”
+
+“So… about that.” Ersie pulled out a piece of paper. “I did a… recount, and these are the new numbers I got.”
+
+“Having fun estimating, huh?”
+
+“You could say that.”
+
+Mudrich glanced at the sheet. “Looks good, Ersie.”
+
+“How many people did I count?”
+
+“250!”
+
+“No, that’s not what it says.”
+
+Mudrich squinted. “One… three…”
+
+“No, that one’s a two.”
+
+“Ugh!” Mudrich flopped back onto the bed. “Just tell me what it says, Ersie!”
+
+“You got the first one right, that’s a one. Then a two, then a seven, then a five. See?”
+
+“Yeah, I guess so.”
+
+“It’s important that you—”
+
+“I don’t care, Ersie.”
+
+Ersie fell silent, letting the other argument fill up the space.
+
+“But if I have to rescue a pregnant wolf, I only have to use one shoulder, not two!”
+
+“But then she’ll weigh more than a normal wolf, reducing how many others you can carry!”
+
+“Look, if *you* were pregnant, I’d only see one wolf, not two.”
+
+“Well, I sure would feel like there’s a second wolf there.”
+
+Wryonin’s ears pricked. “She’s here!”
+
+Wryonin and Lemilay hushed up and sat straight up in their respective beds. Ersie and Muddie sat up in Muddie’s bed. All watched the door.
+
+The handle turned, and the door creaked open. Outside was Mother.
+
+“Hello, my pups.”
