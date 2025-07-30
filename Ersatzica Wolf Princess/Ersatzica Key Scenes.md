@@ -69,8 +69,11 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 -   Ersatzica reconciles with Nephalie
 -   Ersatzica promises to be loyal to Awoomoon
 -   Mudrich helps Ersatzica put away the boots
+-   Awoomoon tasks them to census the wolf village, due that night
+-   Ersatzica partners with Mudrich for the census
 -   Ersatzica sneaks off to hang out with Fisher
--   Awoomoon tasks them to census the wolf village
+-   Fisher tells Ersatzica about Quivester
+-   
 -   Fisher teaches Ersatzica how to be a cat
 
 # Chapter 7
