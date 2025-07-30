@@ -480,6 +480,8 @@ She shifted so the drums fell a bit behind her, and she beat the drums with her 
 
 The cat grabbing her left hand launched forward, letting go of her, and splatting against a nearby tree.
 
+[make it clearer that mudrich is doing this, not the drums]
+
 “What in the name of Teal—” That cat also got launched into a tree before he could finish what he was saying.
 
 Ersie just kept beating the drum.
@@ -778,7 +780,7 @@ The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ers
 
 “What if we, instead…” Mudrich said.
 
-“Muddie, no.”
+“Muddie, no.” Ersie refuted.
 
 “But what if we find something good in there?”
 
@@ -802,6 +804,8 @@ Muddie punched the last brick with extra fervor, sending it flying into the room
 
 [cloth or clothe pin instead of tape?]
 
+[chatgpt: describe the atmosphere before you talk about the room’s contents]
+
 Inside, they found a few dead rat corpses, and the floor was littered in rat feces. Cob webs decorated every corner. A puddle or two reflected the lantern light.
 
 Ersie gasped.
@@ -811,6 +815,8 @@ In one corner, a cot was rusting away. On top of it laid a blood-stained skeleto
 “Ersie look!”
 
 “I see it.” She approached the cot.
+
+[chatgpt: describe the skeleton in a way to help the reader form an emotional connection to it, the way ersie would have an emotional connection to it, despite her not knowing the person]
 
 What sort of poor soul had lost their life here? Had been sealed up? And why? How awful it must have been to lay here and be forgotten about.
 
@@ -833,6 +839,8 @@ Ersatzica turned back to the skeleton, and the boots.
 The boots had two latches each. She held the boots in place as she unlatched them, one by one. The mouth of the boots opened up, and she gently slid the boots off.
 
 They were covered in soot, dust, and cobwebs. She brought them into the bedroom, dusting them off by hand, then fetched Lemilay’s brush from the wall to get in the crevices. Despite that, they were still dirty, and quite a bit rusty.
+
+[chatgpt: make it more clear that ersie and muddy share a bunk bed]
 
 “Don’t worry, I got you.” She hid them under Muddy’s bed.
 
@@ -2264,13 +2272,15 @@ A black and white cat suddenly approached. “Ersatzica!” He smiled.
 
 “Right.”
 
-“Would you like some fish?”
+“Would you like some fish?” Fisher offered.
 
 Ersatzica salivated. She grabbed two whole fish and bit into them.
 
 “So about that wolf skin, I did some more research on it. It turns out it has a pretty interesting history.”
 
 “Mmm?’” Ersatzica eeked out, mouth full.
+
+Fisher pulled out a book from his basket, and opened to a particular page.
 
 *In the early days of the Cat Kingdom, there was a young cat prince self-named Quivester. Although he was a royal orange-coat red-tip, he behaved like a scrappy black-coat white-foot. He did nothing but practice his favorite sport: archery. He was very good at it, but terrible in all other aspects: manners, social gatherings, keeping up appearances. This greatly bothered The High One.*
 
@@ -2408,7 +2418,7 @@ Lemilay scoffed. “You mean I have to survey the village *and* do my usual job?
 
 “Good. Any questions?”
 
-“Do you want us to count the traders currently at the bear farms and the—”
+Wryonin raised his hand. “Do you want us to count the traders currently at the bear farms and the—”
 
 “No, they’re not currently in the village.”
 
