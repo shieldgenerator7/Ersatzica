@@ -84,6 +84,8 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 
 # Chapter 8
 
+-   Mudrich leads a charge to raid the cat outpost to “save Ersie”
+-   Ersie helps defend the cat outpost
 -   Reflection chapter: Ersatzica switches from identifying as a wolf to identifying as a cat, and it changes her perspective on everything.
 
 # Chapter 9
@@ -93,9 +95,6 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 -   Ersatzica’s shop burns down
 
 # Chapter 10
-
--   Mudrich leads a charge to raid the cat outpost to “save Ersie”
--   Ersie helps defend the cat outpost
 
 # Chapter 11
 
