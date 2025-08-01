@@ -2615,3 +2615,137 @@ Wryonin and Lemilay hushed up and sat straight up in their respective beds. Ersi
 The handle turned, and the door creaked open. Outside was Mother.
 
 “Hello, my pups.”
+
+“Hello, Mother.” Lemilay responded.
+
+“Lemilay, did you redo your count?” Mother sat in the middle of the room, facing them all.
+
+“Yes, I redid my *census*.” She grumbled. “I’m not a *baby*, Mother.”
+
+Mother sighed. “Mudrich, did you do your count?”
+
+“250!”
+
+“Thank you, Mudrich.”
+
+Lemilay laughed out loud. To herself, she whispered, “Ha! The moon beams down on me.”
+
+“It’s not over yet, Lemilay.” Wryonin slapped her with his tail.
+
+“So, Lemilay, what was the result of your census?” Mother asked.
+
+Lemilay held her chin high. “There are 849 residents. 163 battle-ready wolves. 50 wolves that will be battle ready within a year. Our population will increase by 34 within the year, from births alone.”
+
+Mother’s eyebrows lit up. “Hmm. Is that the info you collected with the spyglass?”
+
+Lemilay looked to the side. “Yes.”
+
+“Then it doesn’t count. We don’t spy on our own people, Lemilay.”
+
+“Yes, Mother.”
+
+“Wryonin?” Mother turned to Wryonin.
+
+But he turned to Lemilay. “How did you get that many? I only counted 781! And there’s only 53 that are battle ready.”
+
+“Did you count pregnant wolves? And those wolves who would be willing to fight if they had to?” Lemilay smiled smugly.
+
+“I go to training every day. If they were willing to fight, why aren’t they at training?”
+
+“Shh!” Mother hushed them. “Well done, Wryonin. Mudrich, what is your count?”
+
+“250?”
+
+“How did you get that number?”
+
+“Estimation!”
+
+Mother smiled. “Good job, Mudrich. Ersatzica?”
+
+Ersatzica grinned sheepishly. “I got 815.”
+
+Mudrich looked shock. “815! But I thought—”
+
+Ersatzica covered her mouth. “I got 815.”
+
+“And how did you get that number?” Mother asked.
+
+“Estimation.”
+
+“Good job, Ersatzica.”
+
+“But Mother, she’s lying.” Lemilay protested. “That’s not how she got that number.”
+
+“You’re missing the point, Lemilay.” Mother stood up. “Why do you think I asked you to do the census?”
+
+“To see who should be the next chief.” Lemilay puffed out her chest.
+
+Mudrich raised a hand. “To test us.”
+
+“Obviously,” Wryonin said. “It’s so we can plan an evacuation procedure for when the cats invade.”
+
+Mother turned to Ersatzica. “Why do *you* think?”
+
+“To… plan an evacuation procedure?”
+
+“Hmm.” Mother opened the door. “It’s a chance to get to know your wards. Everyone of these lives will be *your* responsibility, if you become chief. It’s important for you to know each and every one of them. Let’s bow our heads.”
+
+“Wait!” Lemilay interrupted. “Who won this challenge?”
+
+“You’re missing the point, Lemilay. Let’s bow our heads.”
+
+“Fine.”
+
+They all bowed their heads and closed their eyes.
+
+“Alpha, Wolf God of the Loyal Moon,” Mother began, solemnly. “Watch over and guide us, help us unite our people, so that they may be strong and endure the challenges ahead of us. Please give us humility,”—she licked Lemilay on the forehead—“compassion,”—she licked Wryonin—“wisdom,”—Mudrich—"and strength”—Ersatzica. “May we walk in the light of your guiding moon to the destiny you have for each of us. Awoo.”
+
+*AWOOOOOOOO!* (“Acknowledged”) They all howled in unison up to the sky.
+
+“Good night, my pups.” Mother closed the door behind her.
+
+“Compassion.” Scoffed Wryonin, holding the candle while his sisters got comfy in their beds. “Cats didn’t show compassion to Yotleph. Not to Nosalen, and not to Monassus.”
+
+“Monassus?” Ersatzica’s ears perked.
+
+“Yeah, you know, the legend of Monassus.”
+
+“The legend?”
+
+“Yeah, Ersie, don’t you remember?” Muddie said.
+
+“Everyone knows the story of Monassus.”
+
+“I don’t.” Ersie said.
+
+“Didn’t you hear it while camping with Great Uncle Yotleph?”
+
+“No, I never went camping with him.”
+
+“That’s a shame.”
+
+“Anyway,” Wryonin began. “The cats were cruel to him. They captured him and 3 other wolves, and they made them fight to the death. They forced Monassus to kill his own kind. Then they punished him for it, and made him wear this extremely tight collar so he couldn’t howl. Eventually he escaped and returned to the wolf village.”
+
+“What happened after that?”
+
+“Great Uncle Yotleph never really said. All I know is that after Monassus died, some cat snuck in and stole his wolf skin.”
+
+“Huh.”
+
+“Like, after all that, the enslaving, the forced murders, and everything, they can’t even let his family keep his heirloom.”
+
+“Yeah, that sucks.” Ersatzica stroked her arm. “It’s ok. You’re with us, now.”
+
+“They don’t deserve compassion.” Wryonin growled. “Alright, everyone ready?”
+
+*SNOOOOORE!* replied Mudrich.
+
+Lemilay was already fast asleep too.
+
+“I’m good.”
+
+“Good night, Erse’.”
+
+“Good night Wry’.”
+
+Wryonin blew out the candle and got into bed.
