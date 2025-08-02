@@ -2749,3 +2749,5 @@ Lemilay was already fast asleep too.
 “Good night Wry’.”
 
 Wryonin blew out the candle and got into bed.
+
+“Don’t worry, Monassus.” Ersatzica nuzzled up against her arm. “I’ll make sure you’re safe from the cats, even after I find out how to turn back into a wolf permanently.”
