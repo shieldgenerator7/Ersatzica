@@ -2751,3 +2751,521 @@ Lemilay was already fast asleep too.
 Wryonin blew out the candle and got into bed.
 
 “Don’t worry, Monassus.” Ersatzica nuzzled up against her arm. “I’ll make sure you’re safe from the cats, even after I find out how to turn back into a wolf permanently.”
+
+# Chapter 7
+
+The next day, after breakfast, Ersatzica snuck into Mudrich’s mudhole and took the hoof clipping. She snuck back into their bedroom and took the boots back out, then put the hoof clipping back together and buried it in the mud again.
+
+She took the boots to the river, where she placed them next to a boulder. Sitting on the boulder, she whispered, “I wish to be a cat.” She slipped her now cat-shaped feet into the boots, which hugged her legs, welcoming them in. The transformation into a cat went smoother this time, and she hugged the wolf skin of Monassus after. A blue streak flashed across the hairs. “Don’t worry, Monassus, I’ll hide you so they don’t find you.” She stuffed it into a pile of leaves, then rowed across the river.
+
+There was no sign of Fisher, but then again, there never was before, either. Once she got onto the cat shore, she searched for Fisher. She found him doing something odd.
+
+Fisher held a stick in one hand and thrust it forward, leaping with the motion. “Ha!” He swiped the stick. “En guarde!” He slashed again. “Stay back!”
+
+“Fisher?” Ersatzica interrupted. “What are you doing?"
+
+“Ah!” Fisher dropped the sword and stood at attention. “I was just practicing my combat skills, Your Majesty.”
+
+“Fisher, it’s me.”
+
+“Erzca?”
+
+“You can relax.”
+
+Fisher sighed in relief.
+
+Ersatzica approached. “Fisher?”
+
+“Erzca!” He opened his arms.
+
+Ersie ran into him for a big hug.
+
+“It’s good to see you, Erzca.”
+
+“Erzca” giggled. “It’s Er*satz*ica.”
+
+“Ersica. Ersitzica…”
+
+“Er, satz, ica.”
+
+“Er, satz, ica. Ersatzica.” Fisher took a deep breath. “Whoa that’s a mouth full. Maybe it’d be better if I just called you ‘Your Majesty’.”
+
+Ersatzica giggled. “’Ersie’ is fine.”
+
+“Ersie? Ok. How are you today, Ersie? You’re a cat!”
+
+“No, *I’m* a wolf, but yes, I transformed again.”
+
+“But I thought you didn’t want to be stuck as a cat?”
+
+“Well, I’m not stuck. At least not permanently. I have easy access to the wolfskin of Monassus.”
+
+“That’s great, Ersie. But that means you’re still a cat underneath the wolfskin, no?”
+
+“Yes, and that’s why I need to find a way to undo the effects of the boots. Did you find anything else out about Monassus?”
+
+“Actually, I did.”
+
+“Let me hear! Let me hear!”
+
+“I found a wanted poster.” He flipped to a loose leaflet inside a book. “It says he escaped slavery, and is wanted alive by Princess Retriyoan. With a pretty hefty reward, even by today’s standards.”
+
+Ersatzica looked at the poster. It had a picture of Monassus’ face. It had the same black and white pattern as her face, with the same swirly stripes and black nose. Even the eyes were the same. Ersatzica looked at her reflection in the water, and it was the same face that she had always known.
+
+“Fisher…”
+
+“What is it?”
+
+“Do I look like Monassus?”
+
+“Of course you do! That’s what the heirloom does. It doesn't just turn you into a wolf, it turns you into *the* wolf, Monassus. It’s a known quality of the heirloom.”
+
+“I… I don’t know. It doesn't make sense.”
+
+“What doesn’t.”
+
+Ersatzica paused, staring at her reflection and the wanted poster. “Could I be related to Monassus?”
+
+“It’s possible. I don’t know if he had any children or not, but I don’t think there would be records of it in the Cat Kingdom.”
+
+“Yeah.”
+
+“Hey, do you want to see my cool moves?”
+
+“Ok.”
+
+Fisher flipped to another section of the book. It had lots of diagrams of sword fighting techniques.
+
+“Wait, this isn’t an heirloom encyclopedia?”
+
+“No, it’s a sword fighting primer. Lucky finding that wanted poster in there, huh?”
+
+“Yeah, that is lucky.”
+
+“So, I don’t have a sword—yet—but I can still learn the moves.”
+
+“That looks great so far, Fisher.”
+
+“You like it?” He smiled.
+
+“How long have you been practicing?”
+
+“I took a few lessons when I was a pup, but other than that, I only just started today.”
+
+“Scoundrel! Scoundrel!” A voice called from afar.
+
+“Oh fish!” Fisher’s hair stood on end. “That’s Majestra. Quick! Scram!”
+
+“But I have more questions—”
+
+Fisher picked her up and plopped her into the boat. “Go quick before she sees you!”
+
+“But I’m slow at crossing the river!”
+
+“Hold on.” Fisher jumped on Yotleph’s skull and wrestled a tooth loose. “Here, take this.”
+
+Ersie took it.
+
+“Ok, now be quiet, and hope she doesn’t see you.”
+
+“Ok.” Ersie latched the boots as she waited in the boat, still beached on the shore.
+
+“Scoundrel!” An orange tabby cat with flowing red hair and a red-tipped tail strutted out of the woods, aggressively approaching Fisher. Her hair was pulled up in a bun, with some intricately woven golden fabric woven in. She wore a golden necklace with a ruby embedded in the center. A gold-plated belt held a few pouches.
+
+“Your Majesty.” Fisher addressed her.
+
+“What have you done today?”
+
+“I’m actually learning sword fighting.” He threw up his arm.
+
+Majestra clawed his arm. “You forgot.”
+
+“Oh, I’m sorry! Your Majesty.”
+
+“That’s better.” Majestra looked down at the book. “Is *this* how you’re learning to ‘sword fight’?”
+
+“Yes, Your Majesty.”
+
+“That’s stupid.” Majestra picked up the book and clawed up the page Fisher was on. “You should ask the general for proper training. Books will get you nowhere.”
+
+“Yes, Your Majesty. I was stupid, your majesty.”
+
+“You fool!” Majestra clawed him again, which he blocked. “You didn’t capitalize it!”
+
+“Yes, Your Majesty. Sorry, Your Majesty.”
+
+“Better.” Majestra approached the boat. “But for your insolence, you will have to catch me 5 fish today. At least you can be of some use.”
+
+“Yes, Your Majesty.” Fisher grabbed her hand. “Wait, Your Majesty.”
+
+“How dare you touch me!”
+
+“You can’t use that boat.” Fisher gulped. “Your Majesty.”
+
+“Let go of me!” She slashed him across the face with her bare claws.
+
+“GAAAHHHH!” Fisher knelt down in pain.
+
+“When I return, I’ll have you reported. Foolish hound.”
+
+“Go, go! Ersie, go!” Fisher yelled. Then he added, “Your Majesty.”
+
+Ersie froze.
+
+Majestra snatched a fish from the basket and plopped it into the boat, almost hitting Ersatzica in the foot.
+
+“I’m sorry, Ersie…” Fisher knelt over in pain.
+
+Majestra pushed the boat into the water, then hopped in. She looked directly at Ersie, or rather, directly through her.
+
+Ersie gasped. Her heart beat heavily. If Wryonin were here, he would hear her heavy breathing, or at least he would, if she hadn’t latched the boots.
+
+“Why is the boat so bow heavy?” Majestra looked around. She patted down every surface.
+
+Ersie dodged her hands, intentionally moving around so she wasn’t discovered.
+
+Then, Majestra reaches, and accidentally hits her boots. “What in the name of Ajig?”
+
+Ersie jumped into the river. The sudden change in weight and the splash threw Majestra off guard. She looked around, but didn’t see any wolves. Instead, she took a tooth out of her pouch, and she and the whole boat disappeared.
+
+Ersie swam to shore. Luckily it wasn’t that far. She unlatched the boots. “Fisher?”
+
+“Ersie?” He eeked out.
+
+“Stand up, let’s get you to the medic bear.” She dropped the tooth back near the skull, then ripped a piece of cloth from the blanket and wrapped it around his scars. Helping him to his feet, she asked, “Can you stand?”
+
+“Yes. I just can’t see right now. It’s so painful.”
+
+“She hit you pretty hard, huh?”
+
+“Hard? Ha!” He laughed. “I’m tougher than that. Ow! GAAHHHH!!” He coughed. “I mean, she got a lucky strike.”
+
+Ersatzica led him to the medic bay.
+
+“And *how*, Your Majesty, did this happen?” The medic cat asked.
+
+“Um, it was a bear.” Ersie said.
+
+“Are there bears in this part of the country?” The medic cat whispered to his aid.
+
+“I haven’t seen any.” He answered.
+
+“So, can you heal him?”
+
+“Yes, Your Majesty. But Scoundrel here will have to wear this bandage for at least a week.”
+
+“His name is Fisher.”
+
+“Fisher, Your Majesty?”
+
+Fisher shook his head. “No, bad idea. I’m Scoundrel.”
+
+The medic cat and his aid backed up away from Ersatzica. Then they looked puzzled.
+
+Ersatzica’s eyes lit up, then she got angry. “That’s *Your Majesty* to you, Scoundrel.” She hit him with a clawless hand, which he easily blocked with a clawed-up arm.
+
+The medic cat and his aid returned to their normal behaviour.
+
+Ersatzica breathed a sigh of relief. “So, is *Scoundrel* cleared for duty?”
+
+“Yes, Your Majesty. Now Scoundrel, go easy on that eye. Don’t go poking any bears.”
+
+“Haha, you guys are so funny.”
+
+Ersatzica led Fisher out of the cat outpost. “So, how are you feeling?”
+
+“Much better, those pain killers really helped.” He covered his eye with his hand.
+
+Ersie reached a hand out to take his, but he blocked it instinctively. She lowered her hand and hung her head. “You shouldn’t do that. It’ll slow the healing process.”
+
+“I know, but it feels better this way.”
+
+They walked a bit, and got to the edge of the woods, with the river now in view.
+
+“I know of another way across the river.” Fisher said.
+
+“Huh?”
+
+“You need to get home, to get the wolfskin back before Majestra finds it.”
+
+“Yeah, but it can wait. Right now, I want to make sure you’re alright.”
+
+“I’ll be fine, Your Majesty.”
+
+Ersatzica stopped walking. “I’m… I’m sorry.”
+
+“Sorry?”
+
+“I didn’t mean to hurt you back there.”
+
+“I understand, you were just keeping up appearances.”
+
+“No, I hurt you. At least, maybe emotionally. I’m sorry.”
+
+Fisher looked at her.
+
+She looked up at him, meeting his gaze. “Forgive me, Scoundrel?”
+
+He hung his head. He started trembling, and then broke down, kneeling on the ground, head in his hands.
+
+“Fisher? Fisher!” Ersatzica rushed to his side. Tears streamed down his furry cheeks.
+
+“That’s not my name! That’s not my name!”
+
+“Fisher? What is it then?”
+
+“I don’t have one! I’m… not worthy.”
+
+“No, no, no.” Ersie argued. “You *are* worthy! You’re the worthiest cat I know. You saved me from the river, twice! I *owe you* my life! I would do anything for you, Fisher. If it’s ok to still call you that.”
+
+“I don’t even deserve that name.” He sobbed. “I use a net. The fishing line is just for Majestra in case she can’t the boat.”
+
+“You’re still a Fisher to me. You deserve that name, it’s a good name. And it fits you well.”
+
+He sucked in his tears, and pounded the ground. “I’m sorry, Ersitzaca, for breaking down in front of you like this. From now on, I’ll be strong! I’ll be stoic, and I won’t let anyone or anything bother me!”
+
+“What?”
+
+“It’s fine. Don’t worry about. It’s just a minor injury, it’ll heal.” Fisher stood up. “Let’s get you back home.”
+
+“No, tell me what’s wrong.”
+
+“I… I just want to be strong. Like you. Like Majestra.”
+
+“But Fisher, you *are* strong.”
+
+“I don’t feel strong.”
+
+“Well, it’s ok. Fisher. I’m here for you.”
+
+“How about we go look for some more books about Monassus?”
+
+A look of realization crossed Ersatzica’s face. “Actually, I’m also interested in sword fighting. Teach me?”
+
+“Ha,” Fisher laughed, wiping away a tear. “I’m not a master, but I can show you what I know.”
+
+They found another suitable stick, and Fisher showed him the moves he had learned so far. After a while of practicing, Ersie broke his sword accidentally. They both laughed.
+
+“Well, it’s high time we get you a real sword.” Ersie said.
+
+“I don’t have permissions.”
+
+“Well I bet I know who does.”
+
+“No! Bad idea, Majestra would just confiscate it when she finds out.”
+
+“Well then, just make it so she *doesn’t* find out.” Ersie grabbed him by the hand. “Come on!”
+
+Ersie led him randomly around the outpost until they found the armory.
+
+“Your Majesty.” The guard working the armory said.
+
+“Fisher—Scoundrel here was attacked by a bear today. He needs someway to defend himself in case it happens again.”
+
+“I’m sorry, Your Majesty, but there has been no weapons allocated to this… thing.”
+
+“You… insolant… little… hound!” Ersatzica raised an arm.
+
+The guard flinched. “I’m sorry, your majesty.”
+
+“Get him a sword.”
+
+“But General Seam—”
+
+“I spoke with the general already. He said—”
+
+Fisher elbowed her.
+
+“She said to give Scoundrel a sword.”
+
+“Which one, your majesty?”
+
+“Pick out your sword.” She elbowed Fisher.
+
+“Yes, Your Majesty.” Fisher instinctively flinched, then perused the swords. “This one looks the most like the one in the book.”
+
+“Then we’ll take it.”
+
+“But doesn’t that sword belong to…”
+
+“We’ll take it!” Ersatzica held up a clawless hand.
+
+“Of course, your majesty.” The guard held out a paper and a quill. “Please sign here to sign it out.”
+
+Ersatzica took the sheet, and held it up to her face, so the guard couldn’t see her lips.
+
+“Sign it.” Fisher whispered.
+
+“I don’t know her signature.”
+
+“It’s a claw strike. Just swipe it once with your claws.”
+
+Ersie flexed her fingers. “How get claws?”
+
+“Like this.” Fisher raised a paw, then flexed his fingers all the way. Claws came out and he gestured with them.
+
+“Ok.” Ersie did the same, and clawed the paper, almost to shreds. “There.”
+
+The guard took the paper. “Um…”
+
+“Is there a problem?”
+
+“No, your majesty. It’s just that… usually you only rip up the bottom part of the paper.”
+
+“Well today I felt like ripping the whole thing.”
+
+“Yes, your majesty.”
+
+Outside the armory, Ersatzica squealed and spun in a circle, chasing her tail. “I can’t believe that worked!”
+
+“Well, you are Majestra, after all.” Fisher admired his new sword.
+
+“Ew.” Ersatzica’s bubble was burst. “I don’t like being called that.”
+
+“Yes, Your Majesty.”
+
+“Shut up.” Ersatzica punched him playfully in the arm, but he dodged it. “Oh, sorry.”
+
+“No, it’s ok.”
+
+“So, let’s go test out your new sword, huh?”
+
+“Sure, but what am I going to test my new moves on?”
+
+“I’ve got an idea!” She went around the outpost, and found a deer. “You there, do you lie on wood?”
+
+“Excuse me, Your Majesty?” This male deer spoke in a grovelly voice. He looked like he could drop dead from exhaustion at any moment.
+
+“Wood. Can you manipulate it?”
+
+“Yes, Your Majesty.”
+
+“Good. Come with us.”
+
+“But, Your Majesty, I’m behind on my tasks.”
+
+“Ersie,” Fisher whispered. “Maybe we should leave him alone and find another way.”
+
+“No, I got this.” Ersie replied. Then to the deer, she said, “Well forget about those tasks. You’re coming with us now.”
+
+“But, Your Majesty—”
+
+“Now.” She raised a clawed hand.
+
+The deer flinched. “Yes, Your Majesty.”
+
+“Come on, Scoundrel.”
+
+“Yes, Majestra.” Fisher said plainly.
+
+“It’s Your Majesty.”
+
+“Yes, Your Majesty.” He rolled his eyes.
+
+Ersie led them to the river, where she stood next to a tree. “Cut off this branch here.” She ordered Fisher.
+
+“Yes, Your Majesty.” He swung with his sword, but it only went in partway and got stuck.
+
+“Oh, that branch is too thick. How about this one?”
+
+“Yes. Your Majesty.” The sword got stuck again.
+
+“Ok, try this one.”
+
+“Yes, Your Majesty.”
+
+Finally they found a branch that was thin enough to chop off with the sword.
+
+“Excellent!” Ersatzica beamed. “Now, Mr. Deer, turn this branch into a target dummy.”
+
+The deer curled up in a ball in the grass, antlers sticking up, fast asleep.
+
+“Oh, he fell asleep.”
+
+“Well, let’s wake him up.”
+
+“No, Ersie, let him sleep. I don’t think he gets much rest otherwise.”
+
+“But we need a target dummy for sword practice.”
+
+“Well, it can wait. I don’t need the practice *that* badly. And to be honest, you’re beginning to scare me.”
+
+“Huh? What do you mean?”
+
+“I know it was all a bit at first, but you’re really starting to turn into Majestra. And it scares me.”
+
+“Oh.” Ersie sat on the ground, and latched the boots. She put her head down and mumbled to herself. “Why am I so stupid? How could I be so cruel? These cats didn’t deserve the abuse I gave them. I should’ve been kinder. Wait, am I saying I should’ve been nicer to cats? Yes, yes I am. And this deer especially, he didn’t deserve what I was about to do to him. It’s a good thing Fisher was here to stop me.”
+
+“Ersie, are you ok?”
+
+She looked up at him, then spoke. “Yeah I’m ok.”
+
+“I didn’t hear you. Are you whispering?”
+
+She unlatched the boots. “I’m ok. Thanks for stopping me. I… I don’t want to be Majestra.”
+
+“Well, you’re not. You’re Erzazica. You’re my friend.” He hugged her.
+
+“Thanks.”
+
+“But, speaking of Majestra, it’s about time for her to come back. And I don’t think you want to meet her.”
+
+“No, not really.”
+
+Fisher picked up the tooth again, vanishing immediately. “Next time you want to be visible again, just do this.” He appeared again, with his hands enclosed around the tooth. He opened up his hands, and he vanished again.
+
+“Oh! Or I can put it a bag?”
+
+“Yes.” He handed it to her.
+
+“Thanks, Fisher.”
+
+“You’re welcome.”
+
+Ersatzica hid herself while Fisher hid the sword. When Majestra came back, she appeared out of nowhere in the boat when she put the tooth back in the bag.
+
+“I see you went to the medic, you coward.”
+
+“Yes, I survived the bear attack. Your Majesty.”
+
+“Bear attack? Is that what you told them?”
+
+“Yes, Your Majesty.”
+
+“Clever boy. I’ll let this one slide. My mission went well today, so I’m in a good mood. Now, my meal.”
+
+“Yes, Your Majesty.” Fisher presented some fish.
+
+Majestra rolled her eyes. “Not even this measly offering is enough to sour my mood. Come, I must speak with Auntie Seamtrust.”
+
+“Yes, Your Majesty.” Fisher waved goodbye to Ersatzica as they walked away.
+
+Ersatzica waited for them to enter the forest before getting in the boat and rowing across. She retrieved the wolf skin, greeting it with a warm hug. She carried the boots and the tooth to her workshop, where she hid the boots among some other junk. She dropped the tooth into the boots.
+
+At bedtime, Lemilay seemed unusually smug.
+
+“Someone had an extra helping of moon beam today.” Wryonin noted.
+
+“Let’s just say, I have a new plan.” Lemilay beamed.
+
+“Does this ‘new plan’ guarantee you become chief or something?”
+
+“Not only. It also ensures that the wolf village survives the invasion.”
+
+“That’s a bold claim. I’d love to hear this new plan.”
+
+“Well, I can’t tell you.”
+
+“Why not?”
+
+“Because you… well, you’ll see.” Lemilay grinned.
+
+“Is Mother coming tonight?” Mudrich watched the door from her bunk.
+
+Wryonin tuned his ears. “Doesn’t sound like it.”
+
+“Awwww…”
+
+“Alright, everyone, time to get ready for sleep.” Wryonin picked up the candle and enforced the nightly routine.
+
+When the lights were all out, Mudrich asked, “Is it just me, or does something smell like cat?”
