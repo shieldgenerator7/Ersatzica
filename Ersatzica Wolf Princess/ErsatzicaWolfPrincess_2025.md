@@ -2810,7 +2810,7 @@ Ersatzica giggled. “’Ersie’ is fine.”
 
 “I found a wanted poster.” He flipped to a loose leaflet inside a book. “It says he escaped slavery, and is wanted alive by Princess Retriyoan. With a pretty hefty reward, even by today’s standards.”
 
-Ersatzica looked at the poster. It had a picture of Monassus’ face. It had the same black and white pattern as her face, with the same swirly stripes and black nose. Even the eyes were the same. Ersatzica looked at her reflection in the water, and it was the same face that she had always known.
+Ersatzica looked at the poster. It had a picture of Monassus’ face. It had the same black and white pattern as her face, with the same swirly stripes and black nose. Even the eyes were the same. It was the same wolf face that she had always known.
 
 “Fisher…”
 
