@@ -2812,6 +2812,8 @@ Ersatzica giggled. “’Ersie’ is fine.”
 
 Ersatzica looked at the poster. It had a picture of Monassus’ face. It had the same black and white pattern as her face, with the same swirly stripes and black nose. Even the eyes were the same. It was the same wolf face that she had always known.
 
+She looked in the river at her reflection. It was a cat face, less familiar, but somehow, it felt more like something that belonged to her.
+
 “Fisher…”
 
 “What is it?”
