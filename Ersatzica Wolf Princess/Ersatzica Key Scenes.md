@@ -73,12 +73,18 @@ Summary: Ersatzica ponders being a cat while doing the first chief training task
 -   Ersatzica partners with Mudrich for the census
 -   Ersatzica sneaks off to hang out with Fisher
 -   Fisher tells Ersatzica about Quivester
+-   Wryonin tells Ersatzica a story about Monassus
 -   
 -   Fisher teaches Ersatzica how to be a cat
 
 # Chapter 7
 
--   Lemilay catches Magystra, makes a deal with her
+-   (offscreen) Lemilay catches Magystra, makes a deal with her
+-   Majestra strikes Fisher, blinds him in one eye
+-   Fisher shows Ersatzica he started learning to sword fight
+-   Fisher shows Ersatzica Monassus’ wanted poster
+-   Ersatzica learns to use the political power Majestra wields
+-   
 -   Cats convince Ersatzica that they want to take over the wolf village to provide them better utilities
 -   Ersatzica helps cats identify ways to get in
 
