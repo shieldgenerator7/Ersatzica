@@ -88,17 +88,23 @@ A wolf skull that renders evidence of humanoid presence invisible to those outsi
 
 It can be ship of theseus’d, but the smaller pieces produce a smaller radius.
 
-# Quivester’s Feather
+Aura field rules apply, if a tooth is worn by a person, and that tooth has a radius smaller than the person’s height, the whole person is still concealed, along with everything they are wearing and holding.
+
+# Quivester’s Feather Hat
 
 Cat
 
-An orange feather that grants powers to all hats it gets pierced through. The wearer of these hats becomes a cat if they are not already a cat.
+An orange feather hat that turns its wearer into a cat, using their own fur pattern.
 
-The effect activates when they put the hat on. The effect does not automatically end when they take the hat off. The effect ends when they are not wearing the hat and desire to return to their original form.
+The effect activates when they put the hat on. The effect automatically ends when the hat is taken off. The hat static-clings to its wearer, and is not taken off by gravity or other accidentally means of losing a hat. In order for the hat to be removed, it must be intentionally removed. It can be intentionally removed by its wearer or another person. It can be worn on any part of the body, as long as the mouth of the hat is reasonably contacting the wearer’s body. There is a delay between taking the hat off and ending the effect, meaning that taking it off your head and placing it on your chest, and vice versa, doesn’t end the effect.
 
-# Cuffs of ?
+It can be theseus’d. Both strands of the feather and of the hat are enough to provide the full effect. However, it only works if woven into a hat. The hat does not have to resemble the original hat.
 
-Cat?
+Quivester had a band of outlaws with him, who all had similar hats. It’s quite possible that all of their hats also have the same effect.
+
+# Cuffs of Tigrin
+
+Cat
 
 Metal cuff links that grant the wearer zero-point telekinesis, up to a weight limit. Scales with the wearer’s natural strength.
 
