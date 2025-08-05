@@ -3338,6 +3338,10 @@ Ersatzica gulped. “Yes, Mother.”
 
 Awoomoon led Ersatzica to the kitchen, where Tormael was chopping meat. Awoomoon asked him to leave, and he did.
 
+===
+
+[rewrite the context here]
+
 “Ersatzica, how good of you to join me.” Awoomoon was bent over doing stretches.
 
 “You asked to see me, Mother?” Ersatzica stepped off the stairs and onto the forest ground below.
@@ -3369,6 +3373,8 @@ Awoomoon shifted to a new stretch. “It’s the same thing, this time with legs
 “I see.” Mother sighed. She stopped stretching and sat down cross-legged on the ground. “Come here, my pup.”
 
 Ersatzica sat down on her lap.
+
+[add more lines that describe awoomoon’s feelings about this]
 
 “You know that you’re my daughter, yes?” Awoomoon licked the back of Ersatzica’s head. “And that I love you very much, right?” She licked behind her ears. “That’s what’s important.”
 
@@ -3402,6 +3408,12 @@ Ersatzica sat still for a moment. This was a lot to take in. Growing up as a wol
 
 Ersatzica reached for the wolfskin. Putting it on, she said, “I’m a wolf.”
 
+[echo saying from earlier in story?]
+
+[clarify that this line is an external interruption]
+
 *AWOOOOOOO!* (“Chief!”)
+
+[have Awoomoon respond with another howl]
 
 “That is all, Ersatzica. I love you, my pup.” She licked her on the forehead. Then she dashed up the stairs to attend to an urgent matter.
