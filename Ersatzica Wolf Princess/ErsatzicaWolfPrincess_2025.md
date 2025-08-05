@@ -3431,3 +3431,13 @@ Ersatzica sucked in her tears as she returned the embrace.
 When Ersatzica entered the mess hall, she howled, *AWOOOO!* (angry sounding gibberish).
 
 The wolves all howled back in unison.
+
+===
+
+Ersatzica rushed to her workshop. “Ok, I only have 15 minutes to prepare.”
+
+She dug through the junk pile and pulled out the boots. “If I’m fast enough, I might get there in time to warn them—” She hesitated. The wolfskin flashed a blue streak down her legs. “But I’m a wolf.”
+
+She hid the boots.
+
+Reaching up into a cabinet, she pulled out the drums. “This time, I’ll be there to support Mudrich.”
