@@ -3340,49 +3340,47 @@ Awoomoon led Ersatzica to the kitchen, where Tormael was chopping meat. Awoomoon
 
 ===
 
-[rewrite the context here]
+Music: <https://youtu.be/5rV9RDS1AzM>
 
-“Ersatzica, how good of you to join me.” Awoomoon was bent over doing stretches.
+“How are you feeling, my pup?”
 
-“You asked to see me, Mother?” Ersatzica stepped off the stairs and onto the forest ground below.
+“I’m fine, still just waking up.”
 
-“Yes, come here. Want to practice pea-fo with me?”
+“You seem to be hesitant, like you don’t want to destroy the cat outpost.”
 
-“I’m not that flexible.”
+“It’s not that, it’s…” Ersatzica looked away. “Last time me and my siblings fought the cats, Mudrich got injured. What if this time, she…”
 
-“Well, try it. Like this.” She showed her how to do the stretch.
+“Last time she foolishly charged in alone. This time, she’ll have a whole pack with her. As she says, ‘Those cats won’t stand a chance!’” She chuckled.
 
-Ersatzica tried but it was hard.
+Ersatzica cringed, hairs standing on the back of her neck.
 
-“Good job, my pup.”
+“Or is there something else bothering you?”
 
-“So what did you want to see me about?”
+“What if, instead, we don’t attack them from the east, and instead we drive them out of the valley, *without* killing them?”
 
-Awoomoon shifted to a new stretch. “It’s the same thing, this time with legs spread apart. Left side first.”
+“Ersatzica, this is *war*. If we don’t kill them, they will wait for a moment to strike, and *wipe us out*.”
 
-“Is this about Great Uncle Yotleph?” Ersatzica copied her.
+“Can we at least take prisoners?”
 
-“No, this is about you. Have you been a wolf this whole time?”
+“Do you want to be the one to request Mudrich to take prisoners?”
 
-“I’ve meaning to ask you the same question.”
+“Can we at least spare one or two specific cats?”
 
-“I don’t know. I don’t have Hindsight.”
+Awoomoon eyed her suspiciously. “My pup, are you hiding something from me?”
 
-“I mean, Mother. Am I a cat?”
+“Mother, I—” Ersatzica cried. “I’m still a cat!” As the tears dripped down her face, her skin peeled off, and she took the wolfskin in her hands. “I’m trying to become a wolf again, Mother. And Monassus here, he’s helping me the best he can. But it’s not enough. And in the cat outpost, there’s this lovely cat, who’s… who’s… He’s helping me find out how to transform back for real!” She put the wolfskin back on.
 
-“I see.” Mother sighed. She stopped stretching and sat down cross-legged on the ground. “Come here, my pup.”
+“My pup, my pup.” Mother hugged her. “Come here.” She sat cross-legged on the floor and invited Ersatzica to sit in her lap.
 
-Ersatzica sat down on her lap.
+Ersatzica accepted the embrace once the wolfskin finished transforming her back into a wolf.
 
-[add more lines that describe awoomoon’s feelings about this]
-
-“You know that you’re my daughter, yes?” Awoomoon licked the back of Ersatzica’s head. “And that I love you very much, right?” She licked behind her ears. “That’s what’s important.”
+Awoomoon licked the back of Ersatzica’s head. “You know that you’re my daughter, yes? And that I love you very much, yes?” She licked behind her ears. “That’s what’s important.”
 
 “But, I’m… I’m not a wolf, not right now. I’m only a wolf because of Monassus and his wolf skin.”
 
 “I didn’t say you were my *wolf* daughter, I simply said you were my daughter.”
 
-“So, I’m a cat?” A feeling welled up inside her. She could feel her identity shift, her very essence rejecting the wolf skin.
+“What are you saying?” A feeling welled up inside her. She could feel her identity shift, her very essence rejecting the wolf skin. “Am I a cat?”
 
 Awoomoon licked the back of the wolfskin, then, realizing what happened, pulled it off. Then she licked Ersatzica’s long red hair.
 
@@ -3392,7 +3390,7 @@ Awoomoon licked the back of the wolfskin, then, realizing what happened, pulled 
 
 “So I’ve been a cat this whole time? I’m a cat?”
 
-“Hm. I can only tell you what you were, but what you are? That’s for you to decide. Monassus has given you that choice.”
+“Hm. I can only tell you what you were, but what you are now? That’s for you to decide. Monassus has given you that choice.”
 
 So it was true. She’d been a cat all along. Her body, her wolf body, this whole time, was just the wolfskin. She’d been wearing it all these years, none the wiser. Had her whole life been a lie?
 
@@ -3402,18 +3400,32 @@ So it was true. She’d been a cat all along. Her body, her wolf body, this whol
 
 “But why now? Why wasn’t I given this choice then?”
 
-“You were too young, so I made that decision for you. But now, you are old enough, so now you get to decide for yourself. But be aware, not everyone will be accepting as me. You are *my* daughter, Ersatzica. I will love you no matter what you decide to be.” Awoomoon wrapped Ersatzica in a hug and rested her head on hers.
+“You were too young, so I made that decision for you. But now, you are old enough, so now you get to decide for yourself. But be aware, not everyone will be accepting as me. The decision you face now will be a difficult one. But remember this, you *are* my daughter, Ersatzica. And I will love you no matter which you decide to be: cat, or wolf.” Awoomoon wrapped Ersatzica in a hug and rested her head on hers, slowing stroking her hair.
 
-Ersatzica sat still for a moment. This was a lot to take in. Growing up as a wolf, and suddenly realizing she was a cat. That there *was* no permanent fix for her transforming into a cat, and the wolfskin was the best there was. Well, she would take what she can get.
+Ersatzica sat still for a moment. This was a lot to take in. Growing up as a wolf, and suddenly realizing she was a cat. That there *was* no permanent fix for her transforming into a cat, and the wolfskin was the best there was. Should she choose to stay in her “true” form? Or should she stay loyal to her wolf form, the one Mother chose for her? She no longer felt at home in her wolf skin, now that she knows it’s not her own. But she’s afraid of what will happen if she chooses cat. Will the village forsake her? Will her siblings? She couldn’t stand the thought of letting down Wryonin, or Lemilay, and especially Mudrich. Or even herself. How in Alpha’s name can she look at herself in a mirror and not see a loathsome cat who betrayed her own family for her own comfort? But how could she live with herself, living the life of a lie? Ersatzica sobbed.
 
-Ersatzica reached for the wolfskin. Putting it on, she said, “I’m a wolf.”
+Mother soothed her, singing her a lullaby.
 
-[echo saying from earlier in story?]
+Finally, Ersatzica reached for the wolfskin. She grabbed it, and pulled it close. The blue streak in the wolfskin hugged her. Hugging it back, she whispered, “Thank you, Monassus. For giving me this choice. For giving me this life.”
 
-[clarify that this line is an external interruption]
+Mother hummed the melody of the lullaby.
 
-*AWOOOOOOO!* (“Chief!”)
+“Mother, I’ve made my choice.” Ersatzica pushed out of her Mother’s embrace and stood up. She performatively held out the wolfskin.
 
-[have Awoomoon respond with another howl]
+Mother held her breath, looking up at her.
 
-“That is all, Ersatzica. I love you, my pup.” She licked her on the forehead. Then she dashed up the stairs to attend to an urgent matter.
+After dusting it off, Ersatzica flipped the wolfskin around her shoulders and slipped the scalp over her head like a hood. Monassus reached out across her body, lending her his wolf face, his wolf fur pattern, and his wolf claws. “I’m a wolf.”
+
+Mother got up, licked her on the forehead, and hugged her. “I love you, my pup.” Her tail wagged as a tear fell from her eye.
+
+Ersatzica sucked in her tears as she returned the embrace.
+
+“Now, my pup, let’s prepare for battle.” *AWOOOOO!* (“Here!”)
+
+*AWOOOOO!* (“Here!”) Ersatzica echoed.
+
+*AWOOOO!* (“Here!”) Replied Mudrich and the other wolves in the mess hall.
+
+When Ersatzica entered the mess hall, she howled, *AWOOOO!* (angry sounding gibberish).
+
+The wolves all howled back in unison.
