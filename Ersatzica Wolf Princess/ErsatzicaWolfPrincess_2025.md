@@ -3272,7 +3272,7 @@ Wryonin tuned his ears. “Doesn’t sound like it.”
 
 When the lights were all out, Mudrich asked, “Is it just me, or does something smell like cat?”
 
-# Chapter 8
+# Chapter 8 – The Wolfskin of Monassus
 
 *AWOOOO!* (“Alarm!”) The howl rang out through the wolf village.
 
@@ -3368,7 +3368,7 @@ Ersatzica cringed, hairs standing on the back of her neck.
 
 Awoomoon eyed her suspiciously. “My pup, are you hiding something from me?”
 
-“Mother, I—” Ersatzica cried. “I’m still a cat!” As the tears dripped down her face, her skin peeled off, and she took the wolfskin in her hands. “I’m trying to become a wolf again, Mother. And Monassus here, he’s helping me the best he can. But it’s not enough. And in the cat outpost, there’s this lovely cat, who’s… who’s… He’s helping me find out how to transform back for real!” She put the wolfskin back on.
+“Mother, I—” Ersatzica cried. “I’m still a cat!” As the tears dripped down her wolf face, her skin peeled off, and she held the wolfskin in her hands. “I’m trying to become a wolf again, Mother. And Monassus here, he’s helping me the best he can. But it’s not enough. And in the cat outpost, there’s this lovely cat, who’s… who’s… He’s helping me find out how to transform back for real!” She put the wolfskin back on.
 
 “My pup, my pup.” Mother hugged her. “Come here.” She sat cross-legged on the floor and invited Ersatzica to sit in her lap.
 
@@ -3414,7 +3414,9 @@ Mother hummed the melody of the lullaby.
 
 Mother held her breath, looking up at her.
 
-After dusting it off, Ersatzica flipped the wolfskin around her shoulders and slipped the scalp over her head like a hood. Monassus reached out across her body, lending her his wolf face, his wolf fur pattern, and his wolf claws. “I’m a wolf.”
+After dusting it off, Ersatzica flipped the wolfskin around her shoulders and slipped the scalp over her head like a hood. *For Mudrich, for Mother, for Wryonin, for… Lemilay, and for my wolf pack.* Monassus reached out across her body, lending her his wolf face, his wolf fur, and his wolf claws.
+
+“I’m a wolf.”
 
 Mother got up, licked her on the forehead, and hugged her. “I love you, my pup.” Her tail wagged as a tear fell from her eye.
 
