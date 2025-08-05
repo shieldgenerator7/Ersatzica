@@ -3274,6 +3274,70 @@ When the lights were all out, Mudrich asked, “Is it just me, or does something
 
 # Chapter 8
 
+*AWOOOO!* (“Alarm!”) The howl rang out through the wolf village.
+
+Awoomoon burst through the door to the siblings’ room. “Wake up pups! Emergency meeting, now!” *AWOOOOO!* (“Alarm!”)
+
+Wryonin was the first to wake up. *AWOOOOO!*
+
+*AWOOOOO!* The other three joined in when they woke up.
+
+They all met in the mess hall with the other warriors of the village.
+
+“We’re all here today because I have recently been informed of the exact location of the cat outpost inhabiting our valley across the river. We must act fast before they know we know and move or enact defenses.”
+
+Ersatzica’s ears pinned back.
+
+“Our plan is to attack from the east, west, and south all at once. We *expect* that we will have a 97% chance of success. Therefore, this is a great and unique training opportunity. Stand, my pups.”
+
+Wryonin, Lemilay, Mudrich, and Ersatzica stood up and faced the wolf warriors.
+
+“Each one of you will have your own pack to lead. Wryonin: the west, Lemilay: the east, Ersatzica and Mudrich: the south. Now, everyone, stand in a line in front of your pack alpha.”
+
+*AWOOOOO!* (“Here!”) Wryonin authoritatively howled to the wolves. “I want good climbers and good shots. We’re going to pick off the stragglers as they try to escape.”
+
+Awoomoon, though initially shocked by the interruption, smiled proudly.
+
+Wolves with bows and arrows rallied onto Wryonin’s side.
+
+Lemilay, not one to be outdone, howled, *AWOOOOO!* (“Here!”). “Loyal wolf warriors of Alpha, follow me into battle!”
+
+Awoomoon frowned, but nodded anyways.
+
+Wolf warriors of all kinds packed in to follow Lemilay—more than half the room, even taking some who had already formed up for Wryonin.
+
+Lemilay gave Wryonin a smug glance, who responded with a scoff.
+
+*AWOOOOO! AWOOOOO! AWOOOOO!* (angry sounding gibberish) Mudrich beat her chest, picked up her hammer, and slammed into the ground, cracking some floor boards.
+
+*AWOOOOOO!* (angry sounding gibberish) Howled the riley wolves that packed in under Mudrich.
+
+Mudrich raised her arms in excitement as she rallied her wolves. “This morning, we taste the thrill of the hunt!”
+
+*AWOOOOO!*
+
+Awoomoon beamed with pride. *AWOOOOO!* (angry sounding gibberish)
+
+*AWOOOOO!* (angry sounding gibberish) Howled all the wolves in the room, no matter who they rallied with.
+
+Ersatzica stood there, tail tucked between her legs, ears pinned back, fidgeting with her fingers as she stared at the floor.
+
+Mudrich, seeing her sister feeling left out, jumped over to her, put an arm around her, and howled. *AWOOOOO!* (angry sounding gibberish)
+
+Ersatzica sheepishly grinned, joining Mudrich. *AWOOO!* (angry-ish sounding gibberish)
+
+*AWOOOOO!* (“Attention!”) Awoomoon howled to quiet everyone. “We will wait for the east and west packs to get into position. East and west: head out. South: we’ll wait here for 15 minutes before heading out.”
+
+*AWOOOO!* “Here!” Wryonin led his pack of archers out.
+
+*AWOOOO!* “Here!” Lemilay led hers out too, attempting to beat Wryonin’s pack to the stairs.
+
+While Mudrich riled up her pack, Awoomoon approached Ersatzica. “May I have a word with you?”
+
+Ersatzica gulped. “Yes, Mother.”
+
+Awoomoon led Ersatzica to the kitchen, where Tormael was chopping meat. Awoomoon asked him to leave, and he did.
+
 “Ersatzica, how good of you to join me.” Awoomoon was bent over doing stretches.
 
 “You asked to see me, Mother?” Ersatzica stepped off the stairs and onto the forest ground below.
