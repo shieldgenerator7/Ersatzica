@@ -3540,7 +3540,7 @@ She searched the entire outpost. A lot of the cat bodies looked familiar, but no
 
 Then she found a body, hidden in the shadows, with its head smashed to pieces. It was a black and white cat, and it had scratches all over its arms. *Isn’t this near where I found the hat?* She looked closer, trying to find the face, anything at all. An eye, the nose, a tooth, an ear? But its skull was smashed so thoroughly that it was all paste on the wall. Ersatzica knelt down, and took its hand in hers. “I’m so sorry, Fisher. I should’ve warned you. But I failed you. And now you’re… gone.”
 
-She sat in silence. *We had a lot of good times. You saved me from the river, twice. You taught me how to be a cat. Well, Fisher, guess what? I’m a cat. I was always a cat. Wish I could’ve told you. I appreciate all you’ve done for me, helping me get back to being a wolf, despite the fact that you’re fighting the wolves. I wish I could’ve known you better. You told me a lot of stories, which I enjoyed, but none about yourself. Who were you really, Fisher? ‘Scoundrel’ was an unfitting name. I’m glad I got to at least give you a proper name, before you died. I wish… I wish you survived.*
+She sat in silence. *We had a lot of good times. You saved me from the river, twice. You taught me how to be a cat. Well, Fisher, guess what? I’m a cat. I was always a cat. Wish I could’ve told you. I appreciate all you’ve done for me, helping me get back to being a wolf, despite the fact that you’re fighting the wolves. I wish I could’ve known you better. You told me a lot of stories, which I enjoyed, but none about yourself. Who were you really, Fisher? ‘Scoundrel’ was an unfitting name. I’m glad I got to at least give you a proper name, before you died. I wish… I wish you survived. I wish… I could’ve saved you.*
 
 She sobbed into his hand.
 
@@ -3564,8 +3564,14 @@ Ersie got up and walked away.
 
 “No, Ersie, tell me what’s going on.” Mudrich grabbed her by the shoulder.
 
-“I said!” Ersie slapped her in the muzzle, drawing blood. “I need some space!”
+Ersie stopped.
 
-“Ok, ok.” Mudrich backed off. “Don’t have to be so mean.” Mudrich pinned back her ears and tucked her tails, and ran off, dragging her hammer.
+“Is this something about you turning into a cat—"
 
-Ersatzica watched her walk away. She sighed.
+“I said!” Ersie slapped her in the muzzle, drawing blood. “I need some *space*!” The force of the slap stung her paws as the look of shock and betrayal on Mudrich’s face stung her heart. Nevertheless, her fury held her soured countenance.
+
+“Ok, ok.” Mudrich backed off. “Don’t have to be so mean.” Ears pinned and tail tucked, Mudrich ran off, dragging her hammer.
+
+Ersatzica watched her walk away. She fought every urge in her bones, in her fur, in her claws to rip the wolf skin off—and up—and avenge her fallen friends. But her rational side kept her safe, kept her in wolf form. Even as patches of cat flickered about around her body.
+
+Her legs gave out from under her. Kneeling, she cried a river of tears into the heart of the cat outpost.
