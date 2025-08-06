@@ -3577,9 +3577,3 @@ Ersie stopped.
 Ersatzica watched her walk away. She fought every urge in her bones, in her fur, in her claws to rip the wolf skin off—and up—and avenge her fallen friends. But her rational side kept her safe, kept her in wolf form. Even as patches of cat flickered about around her body.
 
 Her legs gave out from under her. Kneeling, she cried a river of tears into the heart of the cat outpost.
-
-[rewrite so she doesn’t turn into a cat here, first she would bury “fisher’s” body]
-
-*Mudrich is right. We won, so why am I so sad? If I’m a wolf, why am I mourning the cats?* The wolfskin receded up her hand. She frantically pulled it back down. *They’re the enemy, right? But no—there were good people—innocent people—here. They didn’t deserve this.* The wolfskin slipped from her grasp, and her right arm grew orange, striped fur. *I should’ve warned them. I could’ve prevented this needless destruction.* Both arms were now cat. *Or at least, not contributed. I’m just as guilty as Mudrich and the other wolves.* The change swept across her belly, across her scar, and to her hips. *I want to be a wolf of loyalty, to honor Alpha and my pack.* Her legs were no longer wolf-shaped. *And I will be. I will prove that I am a wolf of loyalty.* The wolfskin popped off her head. She clung to it to put it back on, but it wouldn’t work. So she took it in her hands. *But today, I have something I must do.*
-
-“I’m sorry, Monassus.” Shivering, she left him in the dirt. She opened the locket and vanished.
