@@ -3441,3 +3441,131 @@ She dug through the junk pile and pulled out the boots. “If I’m fast enough,
 She hid the boots.
 
 Reaching up into a cabinet, she pulled out the drums. “This time, I’ll be there to support Mudrich.”
+
+The blue streak in the drums replied with an energetic fervor that gave Ersatzica the boost she needed.
+
+===
+
+*AWOOOO!* Mudrich greeted Ersatzica when she joined them at the base of the stairs. The wolf warriors greeted her the same way, as they prepared to run through the forest.
+
+*AWOOOO!* Ersatzica replied. She wore the drums, Nosalen’s foot, and a locket with Yotleph’s tooth inside it. *AWOOOO!* (“Attention!”)
+
+“Everyone! Listen to Ersie!” Mudrich shouted, pointing at her sister.
+
+“Stomp your feet to the beat!” Ersatzica beat the drums in rhythm.
+
+Mudrich and the wolves matched the rhythm of the drums. When Ersatzica sped up the drums, they stomped faster.
+
+“I will lead us across the river. From there, Mudrich will lead you into battle.”
+
+*Aow-Aow-Aowooooo!* Mudrich howled, holding her hammer high. The cuffs jingled on her wrists.
+
+“March!” Ersatzica ran forward at a pace comfortable for her. *They’re not getting out of my range this time.*
+
+They got to the river, and Ersatzica took a test step on the water. Nosalen’s foot froze the water beneath her feet. This time, its radius expanded, and she let it sit there for a moment, to freeze the water to the shore. She marched across the ice, allowing it form an ice bridge suitable for 4 wolves to across side-by-side. She could feel the foot heat up as the ice froze. She made it across, and stepped aside, letting the wolves cross to the beat of the drum.
+
+Once everyone was across, Mudrich howled, *AWOOOOO!* (“Attack!”) She raised her hammer forward and all the wolves ran ahead. Ersatzica beat the drum faster as she ran after them.
+
+Mudrich took the hammer in her mouth and got down on all fours, running like a wild wolf to the drums.
+
+Ersatzica ran, beating the drums fast enough to speed them up, but slow enough so she could keep up.
+
+Mudrich was the first to dive in. With a crazed howl she ran to the first cat she could find, leapt into the air, and while mid-air, she dropped the hammer from her mouth, caught it with both her hands, and swung it at the cat. The cat flew to the right and splat against a wall, lifeless.
+
+A great cry rang out from the outpost and the cats panicked as they fled. The wolves overwhelmed them, catching them in vulnerable moments and eliminating them quickly.
+
+Some fled, but they didn’t get far.
+
+Ersatzica beat the drum, speeding them up. *We. Are. Wolves. We. Are. Wolves. We. Will. Win. We. Will. Win.* She followed Mudrich around the village, watching her go on an unstoppable rampage.
+
+Then she stepped on something soft. Looking down, she saw a green hat with a red feather in it. A red strand flashed blue.
+
+“Fisher!” She whispered to herself.
+
+She dropped drumming, ending the beat. The wolves barely noticed, continuing to ransack the cat outpost.
+
+Ersatzica picked up the hat. It had stains where blood had splattered onto it from the inside. Her wide eyes were only matched by her wide open mouth. She searched for a body. There were dead cats everywhere, but none with Fisher’s exact pattern. “Fisher! Fisher!”
+
+She forgot about the raid and ran around the cat outpost, looking for him. “I hope he escaped.”
+
+*AWOOO!* (indiscernible) A faint howl came from somewhere in the outpost. It didn’t sound like any normal wolf howl she’d heard before.
+
+Ersatzica followed the howl to a jail cell. Inside, she found a black and white wolf.
+
+“Ersie?” The wolf asked.
+
+“That’s Chiefling Ersatzica to you.” She said. “But don’t worry, I’ll get you out.”
+
+“Thank you, Your Majesty.”
+
+Ersatzica looked up at him. He had a bandage over one eye, and his arms had cut marks on it. His forehead had a long cut that went up his scalp. “Did Majestra do this to you?”
+
+“Yes.”
+
+“You poor thing. Don’t worry, I’ll get you out.” Ersatzica tried to pick the lock with her wolf claw, but it didn’t work. “Don’t tell anyone about this.”
+
+“About what?”
+
+“Shhh.” Ersatzica reached a wolf hand forward, and pulled back on the wrist of the other one, like she was rolling up her sleeves. That hand turned into a cat hand. With a cat claw, she nudged around in the lock until came open. “Aha! Just a little trick I learned from Fisher.” Then she “rolled up her sleeve” again, turning back into a wolf.
+
+“Thank you.” The wolf said, exasperated. “Now, what are you doing with that hat?”
+
+Chiefling Ersatzica growled. “Don’t you touch that! I have my own reasons for keeping that.”
+
+“May I see it?”
+
+“No.”
+
+“I think I know who it belongs to.”
+
+“How could you possibly know that?”
+
+“And in fact, I know where he is.”
+
+“Is he alive?”
+
+“I believe so. Just give it to me and I can help you find him.”
+
+“You smell like a cat.”
+
+“Well, I’ve been here in the cat outpost for all this time.”
+
+Ersatzica hesitantly handed the hat to the strange wolf, who couldn’t even howl an actual word.
+
+“Sorry, Ersie.” The wolf took off.
+
+Ersie tried grabbing him, but he slipped away. By the time she left the jail building, he was gone. Now the last remnant of her cat friend was gone.
+
+She searched the entire outpost. A lot of the cat bodies looked familiar, but none were Fisher. That wolf was suspicious, but he claimed to know that Fisher was alive, and where to find him. She could only hope that somehow, Fisher really was out there. He was still alive, and survived the raid. She just had to have hope.
+
+Then she found a body, hidden in the shadows, with its head smashed to pieces. It was a black and white cat, and it had scratches all over its arms. *Isn’t this near where I found the hat?* She looked closer, trying to find the face, anything at all. An eye, the nose, a tooth, an ear? But its skull was smashed so thoroughly that it was all paste on the wall. Ersatzica knelt down, and took its hand in hers. “I’m so sorry, Fisher. I should’ve warned you. But I failed you. And now you’re… gone.”
+
+She sat in silence. *We had a lot of good times. You saved me from the river, twice. You taught me how to be a cat. Well, Fisher, guess what? I’m a cat. I was always a cat. Wish I could’ve told you. I appreciate all you’ve done for me, helping me get back to being a wolf, despite the fact that you’re fighting the wolves. I wish I could’ve known you better. You told me a lot of stories, which I enjoyed, but none about yourself. Who were you really, Fisher? ‘Scoundrel’ was an unfitting name. I’m glad I got to at least give you a proper name, before you died. I wish… I wish you survived.*
+
+She sobbed into his hand.
+
+She didn’t respond to the howls to group up. She didn’t even respond the Mudrich’s secret sibling howl. Finally, Mudrich found her.
+
+“Ersie? What are you doing? We won.”
+
+“Did you do this?” Ersatzica asked, not looking up.
+
+“*That*?” She pointed at the cat splattered against the wall. “I don’t remember that one specifically, but sure, I’ll take credit for it.” She put lifted her hammer into position over the splatter. “Sure does look like my hammer’s print, what do you think?”
+
+“I wish I had never made that hammer for you.”
+
+“Ersie? Ersie what’s wrong?”
+
+Ersie got up and walked away.
+
+“Ersie, we won! We were victorious! Why are you so sad?”
+
+“Mudrich, I need some space.” She said, not even looking back.
+
+“No, Ersie, tell me what’s going on.” Mudrich grabbed her by the shoulder.
+
+“I said!” Ersie slapped her in the muzzle, drawing blood. “I need some space!”
+
+“Ok, ok.” Mudrich backed off. “Don’t have to be so mean.” Mudrich pinned back her ears and tucked her tails, and ran off, dragging her hammer.
+
+Ersatzica watched her walk away. She sighed.
