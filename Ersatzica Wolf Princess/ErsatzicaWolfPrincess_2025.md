@@ -3574,7 +3574,9 @@ Ersie stopped.
 
 “Ok, ok.” Mudrich backed off. “Don’t have to be so mean.” Ears pinned and tail tucked, Mudrich ran off, dragging her hammer.
 
-Ersatzica watched her walk away. She fought every urge in her bones, in her fur, in her claws to rip the wolf skin off—and up—and avenge her fallen friends. But her rational side kept her safe, kept her in wolf form. Even as patches of cat flickered about around her body.
+[show ersie’s internal dialogue here, where she keeps it together]
+
+Ersatzica watched her walk away. Rage built up inside her. She fought every urge in her bones, in her fur, in her claws to rip the wolf skin off—and up—and avenge her fallen friends. But her rational side kept her safe, kept her in wolf form. Even as patches of cat flickered about around her body. She held steady.
 
 Her legs gave out from under her. Kneeling, she cried a river of tears into the heart of the cat outpost.
 
@@ -3686,7 +3688,11 @@ She lunged at it again, grabbing and thrashing it around. She pulled it and he f
 
 “I don’t care.”
 
-Mother’s ears pinned back for a split section. “Very well. I have other matters to attend to. Good night, my pups!”
+Mother’s ears pinned back for a split section. “Very well. Ersatzica, are you ok?”
+
+“I’m fine.”
+
+“I see. I have other matters to attend to. Good night, my pups.”
 
 “Good night!” Wryonin and Lemilay paused just long enough to cheerfully reply.
 
@@ -3694,4 +3700,4 @@ Mother’s ears pinned back for a split section. “Very well. I have other matt
 
 “Good night, Mother,” said Ersatzica.
 
-When Wryonin turned off the light, Ersatzica tossed and turned. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little ball, hugging her red-tipped tail.
+When Wryonin turned off the light, Ersatzica tossed and turned. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail.
