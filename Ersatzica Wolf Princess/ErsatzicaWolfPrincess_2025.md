@@ -3577,3 +3577,121 @@ Ersie stopped.
 Ersatzica watched her walk away. She fought every urge in her bones, in her fur, in her claws to rip the wolf skin off—and up—and avenge her fallen friends. But her rational side kept her safe, kept her in wolf form. Even as patches of cat flickered about around her body.
 
 Her legs gave out from under her. Kneeling, she cried a river of tears into the heart of the cat outpost.
+
+===
+
+Over the course of that day, Ersatzica was busy identifying items that were heirlooms. There were about as many as there were dead cats. She found trinkets and gadgets, necklaces and wristbands, a keg of beer, and a quite a few articles of clothing. She noted how none of them seemed to be body parts.
+
+For each one she found, she howled to the moon as she held it.
+
+“Why are you howling for the cats?” A wolf in Mudrich’s pack asked her.
+
+“I’m putting a good word in to Alpha, so that Alpha he might accept them into his moon paradise.”
+
+“Of course I know about that, but why for the *cats*?”
+
+“Wouldn’t you want someone to howl for you when you die in combat?”
+
+“Yes, but—”
+
+Ersatzica stood up, staring him straight in the eyes.
+
+He stared back.
+
+“Are you good with heirlooms?”
+
+“Yes?”
+
+“Good. I need someone to help me catalogue them.”
+
+“But I’m already on burial duty.”
+
+“Perfect. This is part of burial.”
+
+“But Mudrich said—”
+
+“Mudrich, do you mind if I recruit some of your pack?” Ersatzica said as she passed by.
+
+“Go ahead.” Mudrich said, muzzle down.
+
+“What’s your name?”
+
+“Yosummit.”
+
+“Your first task, Yosummit, is to help me gather the heirlooms I find.”
+
+“Yes, chiefling.”
+
+Ersatzica pointed out heirlooms to him and he carried them to a central point in the middle of the cat outpost. It was right next to Fisher’s body. Ersatzica kept a close eye on it to ensure it was handled properly when the burial team came for it.
+
+“This is going to take a lot of time to sort through.” Ersatzica ordered Yosummit to try each item, doing what he thought the item would do. She found some paper and noted things down. She found mostly useless or minor effects, but she did find a few that showed promise.
+
+“Thank you for your help, Yosummit.” Ersatzica dismissed him.
+
+“Yes, chiefling.”
+
+===
+
+When they got back to the wolf village, the four siblings met Mother in their barracks.
+
+“Mission report.”
+
+“We won.” Mudrich said, sprawled out on her bed.
+
+“My team shot down 5 stragglers.” Wryonin nodded.
+
+“We took no prisoners.” Lemilay agreed.
+
+“Very good, my pups.” Mother smiled. “And you, Ersatzica?”
+
+Ersatzica buried her head in her knees as she sat in her top bunk. “We found 65 heirlooms. 3 with potential combat uses.”
+
+“Very good. Casualties?”
+
+“My pack didn’t have any.” Wryonin declared.
+
+“There were no wolf deaths.” Lemilay beamed.
+
+“Excellent. I am very proud of all of you. You showed great leadership and competence.”
+
+“So may I ask….?” Lemilay asked.
+
+“I’m meeting with the veteran warriors tomorrow to discuss leadership performance tomorrow. I’ll know then.”
+
+“Where and when?”
+
+“You’re not invited, Lemilay.”
+
+Wryonin laughed.
+
+“It’s not funny.” Lemilay giggled, biting his tail.
+
+“Hey! Mother! Lemilay bit me!” He swiped her with his tail.
+
+She lunged at it again, grabbing and thrashing it around. She pulled it and he fell out of his bunk onto the floor. He landed on all fours.
+
+“I’ll get you for that!” Wryonin jumped and pounced on Lemilay, sending her onto her back. “Tickle tickle tickle!”
+
+“No! Stop!” Lemilay giggled uncontrollably.
+
+“Mudrich, did you have fun?” Mother asked.
+
+“I *did*.” Mudrich replied.
+
+“Did something happen?”
+
+“Nothing happened.”
+
+“You need a bath, my pup. It’s not good to let your fur be soaked with so much blood.”
+
+“I don’t care.”
+
+Mother’s ears pinned back for a split section. “Very well. I have other matters to attend to. Good night, my pups!”
+
+“Good night!” Wryonin and Lemilay paused just long enough to cheerfully reply.
+
+“’Night,” said Mudrich.
+
+“Good night, Mother,” said Ersatzica.
+
+When Wryonin turned off the light, Ersatzica tossed and turned. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little ball, hugging her red-tipped tail.
