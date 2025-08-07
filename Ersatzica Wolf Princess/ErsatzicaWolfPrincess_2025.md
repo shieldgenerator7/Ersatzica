@@ -3700,13 +3700,17 @@ Mother’s ears pinned back for a split section. “Very well. Ersatzica, are yo
 
 “Good night, Mother,” said Ersatzica.
 
-When Wryonin turned off the light, Ersatzica tossed and turned. Leaning over the side of the top bunk, she whispered, “Mudrich, you awake?”
+The girls all got ready for bed, and then Wryonin turned blew out the candle and got into bed himself.
+
+That night, in the dark, Ersatzica tossed and turned. Her thoughts wouldn’t let her sleep. Leaning over the side of the top bunk, she whispered, “Mudrich, you awake?”
 
 “Yeah.”
 
 “Is it ok if I come down?”
 
 “Yeah.”
+
+Music: <https://www.youtube.com/watch?v=LySf7d0u8r8>
 
 Ersie snook down the ladder and gently laid next to her sister in the bottom bunk. “Hi Muddy.”
 
@@ -3764,7 +3768,7 @@ Ersie sighed. “Muddy, you know how I turned into a cat?”
 
 “I swear to Alpha that I will not tell anyone.”
 
-“Ok.” Ersie held up her hand. “See my hand?” She let the wolfskin slip, turning her hand and forearm into a cat’s.
+“Ok.” Ersie held up her hand. “See my hand?” She let the wolfskin slip, revealing her orange cat fur and claws underneath.
 
 “Ersie, wha—”
 
@@ -3778,11 +3782,11 @@ Ersie grabbed Muddy’s muzzle. Then she turned her hand back into a wolf’s. �
 
 “Without me meaning to.”
 
-“Oh! You’re *cursed*, Ersie! It’s those damn boots! You should’ve never put them on, Ersie.”
+“Oh! Oh no! You’re *cursed*, Ersie! It’s those damn boots! You should’ve never put them on, Ersie.”
 
 Ersie sighed again. “You’re missing the point, Mudrich.”
 
-“You’re right. We need to break your curse, Ersie. I’ll destroy the boots tomorrow.”
+“You’re right. We need to break your curse, Ersie. Don’t worry, I’ll destroy the boots tomorrow.”
 
 “No, Muddy. That won’t work.”
 
@@ -3792,7 +3796,7 @@ Ersie sighed again. “You’re missing the point, Mudrich.”
 
 “Because?”
 
-“I knew you wouldn’t understand.”
+She shook her head. “I knew you wouldn’t understand.”
 
 “What? Ersie, no! Tell me!”
 
@@ -3806,4 +3810,4 @@ Wryonin grumbled. “Mudrich! Go back to sleep!”
 
 Mudrich quieted down. “Goodnight,” she eeked out.
 
-Ersatzica lay in bed, still unable to sleep. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail. *My siblings won’t accept me for what I am inside, not even Mudrich. I guess it’s ok. I’m a wolf anyways.* She petted the red tip of her tail as she fell asleep.
+Ersatzica lay in bed, still unable to sleep. Her wolf fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail. *My siblings won’t accept me for what I am inside, not even Mudrich. I guess it’s ok. I’m a wolf anyways.* She petted the red tip of her tail as she fell asleep.
