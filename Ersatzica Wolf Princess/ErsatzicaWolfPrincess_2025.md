@@ -4000,27 +4000,35 @@ Ersatzica raced through the forest, eagerly waiting to get to the meeting spot. 
 
 The creatures of the forest responded with regular forest critter noises.
 
-Ersatzica sat down under a tree. She beat on the drums and hummed a little tune.
+*Is he really going to be here? Maybe I’m too early. I shouldn’t get my hopes up. Fisher is likely dead, and this strange wolf is leading me into a trap.*
+
+Nevertheless, Ersatzica sat down under a tree. She beat on the drums and hummed a little tune.
 
 Music: <https://www.youtube.com/watch?v=o8pQLtHTPaI>
 
 “Ersie?” a voice called out.
 
-Ersie stood up. “Fisher?”
+Ersie stood up. “Fisher?” *Could it really be…?*
 
 A figure arose from a bush. It was too dark to see anything other than their silhouette, but it was definitely a cat. “Ersie?” He walked forward into the small clearing under the trees. He wore a hat with a feather sticking out of it.
 
-“Fisher?” She approached. As she got closer, the cat definitely was black and white, and had a bandage over an eye. “Fisher!” She jumped out of her wolfskin, pouncing on him with a passionate kiss. They lingered for a tender moment, then Ersie backed off. Sheepishly smiling, she said, “Sorry, I was just so excited to see—”
+“Fisher?” She approached. As she got closer, the cat definitely was black and white, and had a bandage over an eye. “Fisher!” *It really is! It really is!* She jumped out of her wolfskin, pouncing on him with a passionate kiss. *I can’t believe he’s alive!* They lingered for a tender moment. *I may be a wolf, and he may be a cat, and this may be wrong, but I don’t care. As long as he’s ok—*then Ersie backed off. Sheepishly smiling, she said, “Sorry, I’m just so excited to see you—”
 
-Fisher put a finger to her mouth, sitting up. “I love you, Ersie.” He kissed her back.
+Fisher put a finger to her mouth, wiping a tear from her eye. “I love you, too, Ersie.” He kissed her back.
 
 He grabbed her in a hug and pulled her close. She pulled his head close in turn. He rubbed her back, stroking behind her orange cat ears and around her shoulders. She took a free hand to beat on the drums. *BUM BUM BUM* She synced it to his movements, then slowed the beat down, as she felt pleasure from his strokes. She also rubbed behind his neck.
 
-Things got heated up, and suddenly they found themselves on fire. Literally. Ersie swatted at Fisher’s chest to put out the fire on his fur, and Fisher blew on the flames on Ersie’s chest to put them out. After a final pat down, they both were no longer on fire. They sat down against a tree, holding hands and leaning on each other.
+Things got heated up, and suddenly they found themselves on fire. Literally.
 
-Fisher sighed. “Ersie.”
+“Fire!” Ersie screamed, frantically pawing at Fisher’s chest. “You’re on fire!”
 
-“Fisher! I’m so glad you’re alive!” She sat next to him, leaning against a tree. “I saw that cat, and I thought it was you and—”
+“So are you!” Fisher patted down her chest, putting out the fire.
+
+After a final pat down, they both were no longer on fire. They sat down against a tree, holding hands and leaning on each other.
+
+Fisher sighed. “Well, that was something, huh, Ersie?”
+
+“Fisher! I’m so glad you’re alive!” She cried. “I saw that cat, and I thought it was you and—”
 
 “I’m fine.” He rubbed a paw hand along her thigh. “But you’re still a cat! A beautiful, gorgeous orange cat, with soft fur, and *sharp* claws, and… I can’t get enough of seeing you like this.”
 
@@ -4120,7 +4128,7 @@ Inside, there was a campfire running low on wood, with a few dozen figures sitti
 
 “Yes.” He hung his head in shame.
 
-“Just in time. Go get us some more wood.”
+“Finally. Where’ve you been? Nevermind. Go get us some more wood.”
 
 Fisher whispered to Ersie, “Go sit by the campfire, I’ll be right back.”
 
@@ -4170,7 +4178,7 @@ Auntie Seamstress giggled shortly. “You are such a clever girl. You remind me 
 
 “It’s pretty obvious, I don’t know how to answer that question.”
 
-“Observe.” She took an earing from her ear, and showed it to a cat sitting near. “What do you think this heirloom does?”
+“Observe.” She took an earring from her ear, and showed it to a cat sitting near. “What do you think this heirloom does?”
 
 The cat shrugged. “Increase your hearing range?”
 
@@ -4194,9 +4202,9 @@ Ersatzica’s stomach answered for her.
 
 Auntie giggled. “Here, have some stew.”
 
-Ersatzica gulped it all down. “So, is this all there is?”
+Ersatzica gulped it all down. She looked around the cave, at the few cats sitting around the campfire. “So, is this all there is?”
 
-“We have more we can make in the back.”
+“We have more we can make in the back.” Auntie took the bowl and handed it to another cat.
 
 “No, I mean you—*us* cats. Is this all there is left? After the raid?”
 
