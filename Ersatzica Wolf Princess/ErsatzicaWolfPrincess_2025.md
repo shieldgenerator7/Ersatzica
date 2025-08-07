@@ -3700,4 +3700,110 @@ Mother’s ears pinned back for a split section. “Very well. Ersatzica, are yo
 
 “Good night, Mother,” said Ersatzica.
 
-When Wryonin turned off the light, Ersatzica tossed and turned. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail.
+When Wryonin turned off the light, Ersatzica tossed and turned. Leaning over the side of the top bunk, she whispered, “Mudrich, you awake?”
+
+“Yeah.”
+
+“Is it ok if I come down?”
+
+“Yeah.”
+
+Ersie snook down the ladder and gently laid next to her sister in the bottom bunk. “Hi Muddy.”
+
+“Hi.”
+
+“Hey, I wanted to apologize to you. For slapping you earlier today.”
+
+“Mm hmm.”
+
+“I was really upset at that moment, and I let my emotions get the best of me. I’m sorry, Muddy.”
+
+“Are you still mad at me?”
+
+“What? No.”
+
+Muddy grabbed her sister in a tight embrace. “I’m so sorry Ersie. I don’t know what I did to make you mad at me, but I’m so sorry and I promise I’ll never do it again and—”
+
+“No no no, Muddy,” Ersie hugged her back. “I wasn’t mad at you. I was… going through something, and I took it out on you. I’m sorry that I made you feel like that.”
+
+“Really?” Mudrich sucked in a tear.
+
+“Yes, and you will always be my sister, no matter what…”
+
+“…but?”
+
+Ersie sighed. “Muddy, you know how I turned into a cat?”
+
+“And then we gave you your wolf skin, and now you’re a wolf again!”
+
+“Well, what if… what if you *didn’t*?”
+
+“What?”
+
+“What if it got lost, or it didn’t work, or—”
+
+“But it *did*. And you’re my sister again.”
+
+“Muddy, uh…” Ersie sighed. *Why is she being so difficult? Would she really not accept me if I was a cat?* “Nevermind. You told me all I needed to hear.” She turned to get out of the bed.
+
+“Ersie wait!”
+
+“You wouldn’t understand.”
+
+“I’ll try. I’ll try my hardest. Please tell me.”
+
+“Ok. I’ll show you something. But you have to promise not to tell anyone, ok?”
+
+“Ok.”
+
+“Promise.”
+
+“I promise not to tell.”
+
+“Swear on Alpha’s name.”
+
+“I swear to Alpha that I will not tell anyone.”
+
+“Ok.” Ersie held up her hand. “See my hand?” She let the wolfskin slip, turning her hand and forearm into a cat’s.
+
+“Ersie, wha—”
+
+Ersie grabbed Muddy’s muzzle. Then she turned her hand back into a wolf’s. “Shhh!” She released her muzzle.
+
+“Ersie, you turn into a cat?”
+
+“Sometimes, even involuntarily.”
+
+“Involun—”
+
+“Without me meaning to.”
+
+“Oh! You’re *cursed*, Ersie! It’s those damn boots! You should’ve never put them on, Ersie.”
+
+Ersie sighed again. “You’re missing the point, Mudrich.”
+
+“You’re right. We need to break your curse, Ersie. I’ll destroy the boots tomorrow.”
+
+“No, Muddy. That won’t work.”
+
+“Well, have you tried?”
+
+“No, it won’t work because…”
+
+“Because?”
+
+“I knew you wouldn’t understand.”
+
+“What? Ersie, no! Tell me!”
+
+“No. Goodnight, Mudrich.” Ersie climbed back up into her bunk bed.
+
+“Tell me! Tell me!” Mudrich shook the bed.
+
+“No.”
+
+Wryonin grumbled. “Mudrich! Go back to sleep!”
+
+Mudrich quieted down. “Goodnight,” she eeked out.
+
+Ersatzica lay in bed, still unable to sleep. Her fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail. *My siblings won’t accept me for what I am inside, not even Mudrich. I guess it’s ok. I’m a wolf anyways.* She petted the red tip of her tail as she fell asleep.
