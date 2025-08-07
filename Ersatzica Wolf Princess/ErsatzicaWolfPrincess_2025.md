@@ -3811,3 +3811,75 @@ Wryonin grumbled. “Mudrich! Go back to sleep!”
 Mudrich quieted down. “Goodnight,” she eeked out.
 
 Ersatzica lay in bed, still unable to sleep. Her wolf fur felt dirty, uneasy. She buried herself in her blanket, and let the wolfskin slip off. She curled up into a little cat ball, hugging her red-tipped tail. *My siblings won’t accept me for what I am inside, not even Mudrich. I guess it’s ok. I’m a wolf anyways.* She petted the red tip of her tail as she fell asleep.
+
+# Chapter 9
+
+*AWOOOO!* (“Hour”) The Hour Wolf howled at the crack of dawn.
+
+Ersie opened her eyes to the new day, greeted by her red-tipped cat tail, still under her covers.
+
+The bed shook as Mudrich woke up. The bed creaked as she landed on the floor. Her hammer went *skrik* against the wall as she picked it up. *Pad pad pad* as she went to the door. She *creaked* it open, but didn’t close it. The cool morning air blew in.
+
+Ersie realized her back left paw was outside the blanket, and quickly retreated it back in. *It wasn’t like Mudrich to sneak out like that. She must really be going out to destroy the boots.* Ersie stroked her tail. *What will she say when she finds out they’re no longer where we put them? She’d probably look in my workshop next. I can’t let her destroy them.* Ersatzica put on the wolfskin, and once it completely covered her, she uncovered herself and jumped down to the floor.
+
+Wryonin and Lemilay were already gone, beds both neatly made.
+
+Ersatzica raced to her workshop, found the boots, and wrapped them in cloth. She hugged the drums as she put them on, kissed Nosalen’s foot as she wrapped it around her ankle, and held the locket close as she placed it around her neck. She packed her screwdriver into her utility belt, put it on, and scrambled out the door with the boots.
+
+She spotted Mudrich in the streets of town, opened the locket, and turned invisible. She stepped off to the side, but still, Mudrich bumped into her, clumsily falling onto the ground. “Sorry, Muddy.” She said, as she ran off.
+
+“Ersie?” Muddy looked around, confused.
+
+Ersie took off down the stairs, taking care to close the locket in the shadows so as to not startle anyone. Wolves nodded to her as she ran, some even addressing her as “chiefling”. She ran as hard as she could, pushing her body to their limits. She ran across the river, freezing it only as much as she needed to. She ran up the bank on the other side and into the cat outpost.
+
+Finally, she could take a breath.
+
+There were lots of other wolves in the outpost, still working on disposing of the bodies from the previous day’s raid.
+
+*AWOOO!* (“Here”) Ersatzica howled. The wolves in her vicinity all turned to look at her. She recognized one of them. “Yosummit.”
+
+Yosummit dropped what he was doing. “Yes, chiefling?”
+
+“Come with me.”
+
+“Yes, chiefling.”
+
+She led him to the outskirts of the outpost, in the thick of the forest. “I need you to dig me a hole, right here.”
+
+“Here?” He examined the spot. “There’s not enough room for a body here.”
+
+“For this one, there is. Hurry.”
+
+“Ok, ok.” He dug fast.
+
+As soon as the hole was big enough, Ersatzica stopped him. “That’s enough.”
+
+“What do you need this hole for?”
+
+“I need you to promise me that you won’t tell anyone. Swear on alpha.”
+
+“I swear to Alpha I won’t tell anyone.”
+
+“Thank you.” Ersatzica placed the covered boots in the hole. “Now bury it.”
+
+“Ok.” Yosummit buried the boots.
+
+“Thank you.”
+
+“Is that it?”
+
+“Yes, you may go back to your duties.”
+
+“Ok.”
+
+“And if you find a strange wolf that can’t speak Howl, send him to me.”
+
+“Certainly.” Yosummit returned to the cat outpost.
+
+“Ersie?” A voice called out.
+
+“Huh?” Ersatzica looked around.
+
+“Is that you?”
+
+“Yes, I’m Ersie.” She didn’t see anyone. “Who are you?”
