@@ -3876,10 +3876,98 @@ As soon as the hole was big enough, Ersatzica stopped him. “That’s enough.�
 
 “Certainly.” Yosummit returned to the cat outpost.
 
-“Ersie?” A voice called out.
+Ersatzica went to the pile of heirlooms in the center of the outpost. The black and white headless cat body was still plastered against the wall. She found a book in the pile, and wiped the blood off it to let the blue streak shine. She cuddled up to the body and put the book in its hands.
 
-“Huh?” Ersatzica looked around.
+“How about a story?”
 
-“Is that you?”
+She flipped through the book, looking for something fitting. Her eyes fell upon a picture of something very familiar to her: the drums. “These are a known heirloom?”
 
-“Yes, I’m Ersie.” She didn’t see anyone. “Who are you?”
+Music: <https://www.youtube.com/watch?v=OykiLWjpOzY>
+
+*The Boots of Princess Retriyoan*
+
+*Known as the Battle Drummer Princess, Princess Retriyoan would join the heart of the battle, beating her drums to drive her soldiers onward. They say a battle was never lost while Retriyoan was in the mix. She kept hopes alive, and was greatly loved by all, and missed by all when she passed. We will remember her by her deeds, which were many and glorious.*
+
+*She is succeeded by her red-tipped daughters, Princesses Seamtrust, Marvelosa, and Pantrinome, who continue to uphold her legacy.*
+
+Ersatzica brushed her wolf paw against the golden-plated picture of Retriyoan. She was a beautiful orange-striped cat, with magnificent red hair and a red-tipped tail. She wore a golden collar with a ruby engraved into it. Under the collar, black tendrils peeked out that looked like scorch marks. She wore the drums that—Ersatzica briefly glanced at the drums she wore on her hips—that Ersatzica now wore. But instead of on the hips, Retriyoan wore them on her thighs, wrapped around each individual leg.
+
+*The Drums of Princess Retriyoan are a legendary heirloom intended to be worn and used by her daughters, and their daughters, in times of great need. The wearer can make a beat with the drums, and all cats who follow the beat will be able to follow it, no matter how fast it becomes. Slowing the beat also has beneficial effects. If the wearer syncs the drum beats to a person, slowing the beat will effect them, even unwillingly. This effect can even stop them from moving, even freezing them midair. The drum beat can also be synced to non-living objects and phenomena.*
+
+*The drums were bestowed upon Princess Pantrinome.*
+
+Ersatzica placed the book in her lap, letting it rest on the drums. *If this is true, these drums are even more powerful than I realized. Wait, Princess Retriyoan? Isn’t that the cat who…* She pulled out a book from her sack, and flipped to the part with the wanted poster. *It is! She’s the one who put out a wanted poster for Monassus. I wonder what she wanted him for? Well, it looks like she caught him.* She chuckled.
+
+*Granddaughter? Hello?* The words suddenly appeared in the margins in the book.
+
+Ersatzica blinked. She stood up, picking up the book and putting it in the sunlight. She looked again. The words weren’t there. *I must be seeing things.*
+
+“Ersie?” A wolf approached her.
+
+“You!” She pointed. “You’re the one who took off with Fisher’s hat!”
+
+“Uh, yes, that’s me. About that—”
+
+“You lied to me! You said Fisher was ok, and—”
+
+“Whoa whoa whoa!” He looked around. Other wolves had stopped what they were doing to watch what was happening. “Hold on a second, let me explain.”
+
+*AWOOOO!* (“Here”) Ersatzica pointed at the strange black-and-white wolf. “Grab him!”
+
+The other wolves ran at him.
+
+But before they could get him, he revealed a tooth and turned invisible. The other wolves were perplexed.
+
+“I know where he is.” Ersatzica opened the locket and also turned invisible. “Great Uncle Yotleph, please help me catch this wolf.”
+
+She opened her eyes, and she saw the strange wolf running away, but his body was transparent.
+
+She ran after him. She wasn’t fast enough, but it didn’t matter. When he felt safe enough, he stopped to take a breath, and she caught up to him. She grabbed him by the hand and then closed the locket. “Got you!”
+
+“Ersie, please, I have something to tell you.”
+
+“Why do you keep calling me that? I told you, call me Chiefling Ersatzica.”
+
+“You’ll understand why after I tell you what I need to.”
+
+“And what is that?”
+
+“I know where Fisher is, and he’s alive.”
+
+“How can you be sure? Didn’t you see the body in the cent—”
+
+“Yes, and that is not Fisher. Trust me.”
+
+Ersatzica let go.
+
+“Wouldn’t you rather believe he is alive? Just trust me, please.”
+
+“Do you have any proof?”
+
+“Not right this moment—but hey! Hey! I have a message! From Fisher. He wants you to meet him tonight, around midnight, at the place where Yotleph died. Do you remember how to get there?”
+
+“Will you be there?”
+
+“Yes, I mean no. But Fisher will be.”
+
+“Ok. I believe you. Tell Fisher I’m coming, and that I’m looking forward to seeing him.”
+
+“I’m looking forward to seeing you too, Ersie. I mean he is.”
+
+Ersatzica smiled, then frowned and tilted her head. “Who are you?”
+
+“Um… not important.”
+
+“Why aren’t you over here helping bury bodies like the rest of the wolves?”
+
+“I was… assigned to another task. Yeah, that.”
+
+Ersatzica squinted at him. “Ok. But if Fisher isn’t there when I go there, I’ll have my wolves track you down and gut you for treason.”
+
+“Ouch, Ersie. But ok, point taken. Also, come alone. Fisher is… let’s say, afraid of wolves.”
+
+“Understandable.” Ersatzica nodded. “See you then.”
+
+“See you then.”
+
+===
