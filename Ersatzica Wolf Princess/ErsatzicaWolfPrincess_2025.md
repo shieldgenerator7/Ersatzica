@@ -3924,7 +3924,7 @@ She opened her eyes, and she saw the strange wolf running away, but his body was
 
 She ran after him. She wasn’t fast enough, but it didn’t matter. When he felt safe enough, he stopped to take a breath, and she caught up to him. She grabbed him by the hand and then closed the locket. “Got you!”
 
-“Ersie, please, I have something to tell you.”
+“Ersie, please, I have something to tell you.” The strange wolf hid the tooth around his neck into his chest floof and reappeared.
 
 “Why do you keep calling me that? I told you, call me Chiefling Ersatzica.”
 
@@ -3966,8 +3966,10 @@ Ersatzica squinted at him. “Ok. But if Fisher isn’t there when I go there, I
 
 “Ouch, Ersie. But ok, point taken. Also, come alone. Fisher is… let’s say, afraid of wolves.”
 
-“Understandable.” Ersatzica nodded. “See you then.”
+“Understandable.” Ersatzica nodded. “See you then.” She walked away.
 
 “See you then.”
+
+Ersatzica turned around, but the wolf was gone. She put her hand on the locket, but decided not to open it. *Fisher. Can he really still be alive?*
 
 ===
