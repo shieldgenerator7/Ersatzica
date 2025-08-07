@@ -3973,3 +3973,277 @@ Ersatzica squinted at him. “Ok. But if Fisher isn’t there when I go there, I
 Ersatzica turned around, but the wolf was gone. She put her hand on the locket, but decided not to open it. *Fisher. Can he really still be alive?*
 
 ===
+
+Ersatzica went back to organizing the heirlooms. She requested someone bury the black and white headless cat. She tested a few more heirlooms, experimenting to see what they did. She didn’t discover very many effects.
+
+The day wore on, and soon it was getting late. She left the pile and headed off in the opposite direction everyone else was.
+
+“Are you not heading home, Chiefling Ersatzica?” Yosummit asked.
+
+“I have something I need to do. I’ll catch up.”
+
+“I can’t let you go by yourself. There might be cats still lurking in these woods.”
+
+“I’ll be fine. Don’t follow me.”
+
+“But Chiefl—”
+
+Ersatzica growled, baring her teeth.
+
+Yosummit backed off.
+
+“See you tomorrow, Yosummit.”
+
+“Bye?” He backed away slowly.
+
+Ersatzica raced through the forest, eagerly waiting to get to the meeting spot. When she arrived, there was no one there. “Fisher! Fisher!”
+
+The creatures of the forest responded with regular forest critter noises.
+
+Ersatzica sat down under a tree. She beat on the drums and hummed a little tune.
+
+Music: <https://www.youtube.com/watch?v=o8pQLtHTPaI>
+
+“Ersie?” a voice called out.
+
+Ersie stood up. “Fisher?”
+
+A figure arose from a bush. It was too dark to see anything other than their silhouette, but it was definitely a cat. “Ersie?” He walked forward into the small clearing under the trees. He wore a hat with a feather sticking out of it.
+
+“Fisher?” She approached. As she got closer, the cat definitely was black and white, and had a bandage over an eye. “Fisher!” She jumped out of her wolfskin, pouncing on him with a passionate kiss. They lingered for a tender moment, then Ersie backed off. Sheepishly smiling, she said, “Sorry, I was just so excited to see—”
+
+Fisher put a finger to her mouth, sitting up. “I love you, Ersie.” He kissed her back.
+
+He grabbed her in a hug and pulled her close. She pulled his head close in turn. He rubbed her back, stroking behind her orange cat ears and around her shoulders. She took a free hand to beat on the drums. *BUM BUM BUM* She synced it to his movements, then slowed the beat down, as she felt pleasure from his strokes. She also rubbed behind his neck.
+
+Things got heated up, and suddenly they found themselves on fire. Literally. Ersie swatted at Fisher’s chest to put out the fire on his fur, and Fisher blew on the flames on Ersie’s chest to put them out. After a final pat down, they both were no longer on fire. They sat down against a tree, holding hands and leaning on each other.
+
+Fisher sighed. “Ersie.”
+
+“Fisher! I’m so glad you’re alive!” She sat next to him, leaning against a tree. “I saw that cat, and I thought it was you and—”
+
+“I’m fine.” He rubbed a paw hand along her thigh. “But you’re still a cat! A beautiful, gorgeous orange cat, with soft fur, and *sharp* claws, and… I can’t get enough of seeing you like this.”
+
+“But?”
+
+“But you want to go back to being a wolf, right? I’ve found something that shows promise—”
+
+“Fisher, I need to tell you something.”
+
+“What is it?”
+
+‘I’m a wolf, I hold to that. But I wasn’t born that way. I was born a cat, and I’ve been wearing this wolfskin all my life.”
+
+“And you only just recently discovered this?”
+
+Ersatzica nodded.
+
+“Wow, that must’ve been hard on you.”
+
+“It was. It *is*.”
+
+“I understand.”
+
+“I know you do.” Ersatzica licked his head, specifically the part where the cut was.
+
+“Ouch.”
+
+“Hold still.”
+
+“It’s just a cut, Ersie, I’ll be fine.”
+
+She kissed it one more time. “Ok.”
+
+They sat in silence for a moment, enjoying each other’s company. Then they shut their eyes, and fell asleep.
+
+===
+
+*AWOOOO!* (“Here!”)
+
+Ersatzica woke up. It was dark, and the moon wasn’t even half full.
+
+AWOOOO! (“Here!”)
+
+“Awooo!” She choked. “Oh, that’s right. I have to put the wolfskin back on.”
+
+“Ersie?” Fisher squeezed her hand.
+
+“I’m sorry, Fisher. I have to get back to my pack. I’ll be back tomorrow.” She got up and searched for the wolfskin.
+
+“Oh.” He shivered in disappointment.
+
+“Wait, where will you sleep tonight?”
+
+“Well, they didn’t destroy the beds in the raid, so there’s that.”
+
+“But we’re watching the outpost all day and all night. You won’t be safe.”
+
+“I’ll figure something out.”
+
+“No, hold on. Help me find the wolfskin. You can take it, and sleep in the barracks tonight.”
+
+“No, Ersie, don’t sacrifice yourself for me like this.”
+
+“I’m not. My siblings know what my cat form looks like. They’ll know it’s me. Worst case, I spend the night in the jail.” *It’s a long shot, and they won’t like it. But they wouldn’t kill me, right?*
+
+“No, Ersie. I can’t let you risk yourself like that. Besides, there’s no reason to do that. I’ll be fine. I survived last night out here, didn’t I?”
+
+“But it’s not safe for you out here. Wait, where’s my wolfskin?” Ersie stumbled around, kicking things in the dirt, hoping to trip over it. “Fisher, have you seen it?”
+
+“No, I haven’t.”
+
+“Can you help me look?”
+
+After looking around in the dark for a while, neither Ersie nor Fisher could find it.
+
+“Aw shoot, I guess that means you’re stuck as a cat then?”
+
+“No! I’m a wolf! I have to have it!”
+
+“Ersie, it’s dark out, and you’re searching for a black object. It’s near impossible, even with our night vision.”
+
+“But my siblings are going to be worried when I don’t come home tonight. And they’ll start a search party for me, and someone knows that I stayed on this side of the river, and they’ll find me, find *us*, and they’ll kill us!”
+
+“Ersie, Ersie.” He grabbed her by the shoulders. “Calm down. Everything will be alright. We’ll survive the night, then come back to look for your wolfskin in the morning, ok?”
+
+Ersatzica swallowed, and tried to control her rapid breathing. “Ok. Alright. We find it tomorrow?”
+
+“Yes.”
+
+“But where will we go tonight?”
+
+“Follow me.” He took her by the hand and led her through the woods. She caught occasional glimpses of the moon between the tree tops, but otherwise she had no idea where she was. They arrived at a cliff face. Fisher ran his fingers along the wall. “It’s here somewhere.” Eventually, he found a spot where his hand seemed to pass right through the rock. “In here.”
+
+Inside, there was a campfire running low on wood, with a few dozen figures sitting around it.
+
+“Scoundrel, is that you?”
+
+“Yes.” He hung his head in shame.
+
+“Just in time. Go get us some more wood.”
+
+Fisher whispered to Ersie, “Go sit by the campfire, I’ll be right back.”
+
+Ersie stood in the entrance. Outside, the woods were almost pitch black. With her hand on the outer wall, she walked outside to look in. The opening was a mere crack in the cliff, and it looked nothing like a cave until you entered it. She shivered. The whole cave smelled like cat, but strangely, the scent didn’t carry outside. “Hello?”
+
+“Majestra, dear, is that you?” A familiar voice called to her. “Come, sit by the fire. You must be cold.”
+
+She sat next to the cat who called to her. “Auntie Seamtrust, is that you?”
+
+“Yes it is dear. How was your mission?”
+
+“Good.”
+
+“It must have been amazing if you’re back so soon.”
+
+“I guess I got lucky.”
+
+“So what did you find out?”
+
+“The wolves are all over. They have complete control over the valley. Just like when Great Uncle Yotleph was alive.”
+
+“Who?”
+
+“Oh, I mean, ‘The Phantom Guard’, that one wolf who—”
+
+“I’m familiar with the legend, I just didn’t know he had a name.”
+
+“Yeah, all wolves have a name.”
+
+“And how did you come across its name?”
+
+“Just one of those things I picked up on my mission.”
+
+Auntie Seamstress giggled shortly. “You are such a clever girl. You remind me so much of my sister, Pantrinome.”
+
+“Maybe I can meet her someday.”
+
+“If only, child, if only. But mayhaps, you have already, in a way.”
+
+“Auntie?”
+
+“What do you think of heirlooms, child?”
+
+“They’re a gift from our ancestors, a piece of themselves they leave behind for us to hold on to.”
+
+“Interesting. And how do you know if something is an heirloom?”
+
+“It’s pretty obvious, I don’t know how to answer that question.”
+
+“Observe.” She took an earing from her ear, and showed it to a cat sitting near. “What do you think this heirloom does?”
+
+The cat shrugged. “Increase your hearing range?”
+
+“Now,” Auntie Seamtrust turned to Ersatzica. “Can *you* tell me what this heirloom does?”
+
+Ersatzica gave her a puzzled glance. “Huh? Wait, can I see that?” She took it and looked over it, rotating it in the light of the campfire.
+
+Auntie Seamtrust smiled. “Do you get it now?”
+
+“No, this isn’t an heirloom. I’m not sure what you’re getting at.”
+
+The cat next to Auntie Seamtrust hacked up a furball. “It’s not?”
+
+Auntie Seamtrust took back her earring. “See?”
+
+Ersatzica shook her head.
+
+“You will in time, child. You are very special, just like Majestra. You will grow to be a powerful leader, one day. Now, are you hungry?”
+
+Ersatzica’s stomach answered for her.
+
+Auntie giggled. “Here, have some stew.”
+
+Ersatzica gulped it all down. “So, is this all there is?”
+
+“We have more we can make in the back.”
+
+“No, I mean you—*us* cats. Is this all there is left? After the raid?”
+
+“Yes, unfortunately. But it doesn’t matter, child. The plan is still in motion. Right?” She winked.
+
+“Right, the plan. Yes, you’re right.” Ersatzica sipped some more stew. “I have it all under control.”
+
+“Splendid!”
+
+“Alright!” Fisher grunted. “I’ve got the firewood!” A wall of wood approached the firepit.
+
+“By Alpha, Fisher!” Ersatzica giggled. “How can you see with that load?”
+
+Fisher dumped the wood next to the fire. “Oh? You like that?” He flexed his muscles in front of the fire.
+
+Ersatzica giggled. “I saved you a seat.” She patted the log next to her, as she scooched over, forcing Auntie Seamtrust to move, who gave an exasperated grunt.
+
+“What are we doing, putting ale in a teacup?” Auntie seemed annoyed.
+
+“Auntie, we have to make room for Fisher.”
+
+“Fisher?” She laughed. “Please, he’s hardly a fisher. Besides, his name is already Scoundrel.”
+
+“Auntie, please.”
+
+“Mmph. Very well, as you please. Next time don’t be so rude about it!”
+
+“I’m sorry, Auntie. I’ll remember.”
+
+“So…” Fisher began. “It’s ok for me to sit next to you?”
+
+“Your Majesty.” Reminded Auntie.
+
+“No no, Auntie. He’s fine, he’s with me.” Ersatzica turned to Fisher. “Come, sit.”
+
+Fisher plopped on down next to her, almost falling over backward. “Whoa, this log isn’t flat.”
+
+Ersatzica steadied him. “No, but I got your back.”
+
+“And I got yours.”
+
+Auntie hissed. “Don’t go touching my niece, filthy hound.”
+
+Fisher put his arms up and lowered them into his lap.
+
+Auntie returned to normal.
+
+Ersatzica was quiet. Her ears pinned, tail swooshing. *Ok, so I can’t be friendly towards Fisher around Auntie Seamtrust. Got it.*
+
+The rest of the night was uneventful. By Auntie’s orders, Fisher and Ersatzica slept on opposite sides of the cave. It was miserable and cold, but it was at least safe. Ersatzica sat up and looked across the cave at the mound that was Fisher. It rose and fell in the middle at regular intervals. Ersie smiled. *He’s alive.* She imagined her red-tipped tail was Fisher’s as she hugged it.
