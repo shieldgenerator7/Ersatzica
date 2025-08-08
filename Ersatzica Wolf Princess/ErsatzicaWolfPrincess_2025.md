@@ -684,31 +684,33 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 # Chapter 3 – The Boots of Pantrinome
 
-“So what do we tell her?” Wryonin asked Lemilay as hung his utility belt on his bed.
+The four wolf siblings entered their bedroom.
 
-“She’s not coming today, don’t worry.” Lemilay brushed herself off outside the doorway.
+“So what do we tell Mother?” Wryonin asked Lemilay as he hung his utility belt on a hook on his bed.
+
+“She’s not coming today, don’t worry.” Lemilay took her brush and dusted herself off outside the doorway.
 
 “But what about next time we see her?”
 
-“Fine. We’ll just tell her Ersatzica got kidnapped, and that we saved her.”
+“Fine. We’ll just tell her Ersatzica got kidnapped by evil cats, and that we saved her.”
 
-“But I *didn’t* get kidnapped.”
+“But I *didn’t* get kidnapped.” Ersatzica climbed into her top bunk, above Mudrich’s.
 
-“They surrounded you. Cats and wolves are both mammals.”
+“They surrounded you. Cats and wolves are both mammals.” Lemilay said.
 
-“Well I hope the eye piece was worth it.”
+“Well I hope the eye piece was worth it.” Wryonin remarked.
 
-“It will be, don’t worry. Just wait and see.” Lemilay smugly rubbed the telescope. Lemilay hung the brush up on the wall and stepped into the room, tiptoeing to her bed, bunked under Wryonin’s.
+“It will be, don’t worry. Just wait and see.” Lemilay smugly rubbed the spyglass. She hung the brush up on the wall and stepped into the room, tiptoeing to her bed, bunked under Wryonin’s.
 
 “How are you feeling, Ersie?” Mudrich reached up and poked the bottom of Ersie’s top bunk.
 
 “Ow.” Ersie shifted, peeking over the edge at Mudrich. “I’m fine. A little tired, a little wet. But otherwise fine.”
 
-“That’s good. Hey do you wanna see something?”
+“That’s good. Hey, do you wanna see something?”
 
-“Sure. Hold on.” Ersie climbed down and sat on Mudrich’s lower bunk. “What?”
+“Sure.” Ersie climbed down and sat on Mudrich’s lower bunk. “What?”
 
-Mudrich sat up cross-legged on her bed. “These.” She grinned from ear to ear, her jaw wide open.
+Mudrich sat up cross-legged on her bed. “These.” She grinned from ear to ear, her jaw wide open. “I got them off the cat we killed when we rescued you today.”
 
 Two silver circular bands gleamed in the dim torch light. A blue streak flashed over them.
 
@@ -762,7 +764,7 @@ Mudrich coughed. “It’s just a little.”
 
 “No, she’s right.” Wryonin’s ears twitched. “I think they’re still awake, playing cards.” Wryonin grabbed the lantern and swung it towards the hole.
 
-Not much could be seen. Just some cobwebs and puddles. A critter scattering about.
+Not much could be seen. Just some cobwebs and puddles. A critter skittering about.
 
 “It’s some kind of room.” Wryonin stated.
 
@@ -776,6 +778,26 @@ Not much could be seen. Just some cobwebs and puddles. A critter scattering abou
 
 “Sure, sure.”
 
+“It’s time for bed.” Lemilay said. “Can we just do prayer and go to sleep?”
+
+“Alright, time for prayer, then lights out. Let’s bow our heads.” Wryonin led them in prayer. “Alpha, Wolf God of the Loyal Moon, thank you for keeping Ersatzica safe today. Please help guide us in our tasks tomorrow, and help Mudrich and Ersatzica not get distracted when fixing the wall—”
+
+“Hey!” Mudrich protested.
+
+“Shh! Prayer!” Lemilay shushed her.
+
+“And please help us respect prayer time. May we always be—”
+
+Everyone joined in for, “In your guiding moonlight.”
+
+“Alright, everyone ready?” Wryonin held the lantern up, checking to make sure each of his sisters was in bed. “Goodnight.”
+
+“Goodnight.”
+
+He blew out the candle and climbed into bed himself.
+
+===
+
 The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ersatzica to fetch Nephalie.
 
 “What if we, instead…” Mudrich said.
@@ -784,7 +806,7 @@ The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ers
 
 “But what if we find something good in there?”
 
-“What if we find something horrible in there? It smells like something *died* in there.”
+“But what if we find something horrible in there? It smells like something *died* in there.”
 
 “Let’s find out!”
 
@@ -796,17 +818,17 @@ The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ers
 
 Muddie punched the wall, and again. In rhythm with the drums.
 
-BUM BUM BUM
+*BUM BUM BUM*
 
-POUND POUND POUND
+*POUND POUND POUND*
 
 Muddie punched the last brick with extra fervor, sending it flying into the room. Ersie handed her the lantern as they both entered. Ersatzica taped her nose and Mudrich’s nose shut.
 
 [cloth or clothe pin instead of tape?]
 
-[chatgpt: describe the atmosphere before you talk about the room’s contents]
+Dust and dirt rolled out of the chamber into their bedroom, depositing mostly onto Mudrich’s bed. Ersatzica and Mudrich coughed as they breathed it in. It was as if they had discovered a long-lost tomb.
 
-Inside, they found a few dead rat corpses, and the floor was littered in rat feces. Cob webs decorated every corner. A puddle or two reflected the lantern light.
+Inside, the floor was littered in rat feces and dotted with rat corpses. Cobwebs decorated every corner. A puddle or two reflected the lantern light.
 
 Ersie gasped.
 
@@ -816,11 +838,9 @@ In one corner, a cot was rusting away. On top of it laid a blood-stained skeleto
 
 “I see it.” She approached the cot.
 
-[chatgpt: describe the skeleton in a way to help the reader form an emotional connection to it, the way ersie would have an emotional connection to it, despite her not knowing the person]
+*What sort of poor soul had lost their life here? Had been sealed up? And why? How awful it must have been to lay here and be forgotten about.*
 
-What sort of poor soul had lost their life here? Had been sealed up? And why? How awful it must have been to lay here and be forgotten about.
-
-The skull had a muzzle that was too short to be a wolf’s. This must’ve been a cat. The skeleton was devoid of any clothing, except for the feet. Over the feet were a pair of boots.
+The skull had a muzzle that was too short to be a wolf’s. *This must’ve been a cat.* The skeleton was devoid of any clothing, except for the feet. Over the feet were a pair of boots.
 
 They were hard to see in the dim light, but they were red and gold-plated. Intricate mechanics filled up the internals near the heels. They were in dire need of repair.
 
@@ -840,11 +860,9 @@ The boots had two latches each. She held the boots in place as she unlatched the
 
 They were covered in soot, dust, and cobwebs. She brought them into the bedroom, dusting them off by hand, then fetched Lemilay’s brush from the wall to get in the crevices. Despite that, they were still dirty, and quite a bit rusty.
 
-[chatgpt: make it more clear that ersie and muddy share a bunk bed]
+“Don’t worry, I got you.” She hid them under Muddy’s bunk.
 
-“Don’t worry, I got you.” She hid them under Muddy’s bed.
-
-When Nephalie arrived with Mudrich, she was quite disgusted. “You pups really out did yourself this time, huh?” The deer girl walked in, rubbing her hoof hands together. “Might as well punch down the whole building while you’re at it.”
+When Nephalie arrived with Mudrich, she was quite disgusted. “You pups really outdid yourself this time, huh?” The deer girl walked in, rubbing her hoof hands together. “Might as well punch down the whole building while you’re at it.”
 
 “Can you fix it?”
 
@@ -854,7 +872,7 @@ When Nephalie arrived with Mudrich, she was quite disgusted. “You pups really 
 
 “Mudrich. You did this, you help.” Nephalie pointed to all the bricks. “Move them.”
 
-“Ok, I’m doing it. Don’t have to be so mean.”
+“Ok, ok, I’m doing it. Don’t have to be so mean.”
 
 “And you don’t have to be so careless.”
 
@@ -864,7 +882,7 @@ Nephalie rolled her eyes. “That’s not neat enough, but…” She flexed her 
 
 Mudrich bounced up and down. “This is my favorite part.”
 
-Nephalie placed her hoof hands over the bricks, middle finger separated. The hoof on the end of her middle finger grew rapidly. The bricks morphed and stretched, growing up from the floor to fill in the hole in the wall. The result looked like a someone stretched out a white blob of goo and let it dry. Ugly, but functional.
+Nephalie placed her hoof hands over the bricks, middle finger separated. The hoof on the end of her middle finger grew rapidly. The bricks morphed and stretched, growing up from the floor to fill in the hole in the wall. The result looked like someone stretched out a white blob of goo and let it dry. Ugly, but functional.
 
 Nephalie tapped the wall with her middle hoof fingers, breaking off the excess hoof. She handed both hoof clippings to Mudrich. “Keep these safe. Remember to get it fixed properly.”
 
@@ -888,9 +906,9 @@ Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it 
 
 “Well, you can change that, can’t you? Make the cat boots into wolf boots?”
 
-“Well, no, I can’t… unless I adjust the distance between the… and I also change the size of the sole… Yeah, actually! I can.”
+“Well, no, I can’t… unless I adjust the distance between the… and I also change the size of the sole… Yeah, actually! I might be able to.”
 
-“Then do it! I want to test them out!”
+“Then do it! I want to test them out!” Mudrich drooled.
 
 “Hold on Muddie! It’s going to take a while. They probably won’t be ready today.”
 
@@ -922,9 +940,7 @@ The boots were very enticing. The best part of refurbishing an heirloom was alwa
 
 “Erse’, it break again.”
 
-Ersatzica turned around. It was Tormael, the town chef. He stood just outside the workshop. His large frame almost matched the door opening. He held his hand out, dangling a pickled wolf foot from a string. It was covered in ice crystals. “Oh, no problem. I can fix that for you.”
-
-[how does pickling work? Taxidermied?]
+Ersatzica turned around. It was Tormael, the town chef. He stood just outside the workshop. His large frame almost matched the door opening. He held his hand out, dangling a taxidermied wolf foot from a string. It was covered in ice crystals. “Oh, no problem. I can fix that for you.”
 
 Tormael dropped the foot as she reached out for it. “See you tomorrow.”
 
@@ -938,13 +954,11 @@ The boots called to her. She embraced them in both her arms. The boots felt warm
 
 She placed the boots on the ground, and scooted her stool to be right next to them. She tried to slip a wolf foot in, but it wouldn’t fit, even with the latches swung all the way open.
 
-[mention Alpha before this]
+“By Alpha, I wish I could try you on. To see what you are, to learn more about you.”
 
-“I promise Alpha, I wish I could try you on. To see what you are, to learn more about you.”
+Just then, something happened. It was as if Alpha himself had granted her a wish, from a top his perch on the moon.
 
-It was as if Alpha himself had granted her a wish, from a top his perch on the moon.
-
-A feeling started in her toes. It was tingling, a slight numbness, like her fur was being pulled. Then the tips of her toes cracked and flipped upwards, disappearing into her foot. The white fur of her wolf socks ceded way to an orange, stripy fur. But more importantly, they were now smaller.
+The feeling started in her toes. It was tingling, a slight numbness, like her fur was being pulled. Then the tips of her toes cracked and flipped upwards, disappearing into her foot. The white fur of her wolf socks ceded way to an orange, stripy fur. But more importantly, they were now smaller.
 
 Ersatzica clapped in excitement, giddy about a wish coming true. How did it happen, and why? That wasn’t important.
 
@@ -954,7 +968,7 @@ Without clasping the boots, she lifted them up, one by one, to see how heavy the
 
 Reaching down, she clasped the boots shut. The world around her demanded her attention. The door, it creaked? Even when shut and stationary? The wind blew through its cracks, around the workshop, and out the window, pushing the pane ever so slightly to make occasional scraping noises, and jittering the jars ever so slightly. The whipper-whirls outside were singing their nightly songs from their nests all the way down by the river. And the townsfolk! The walls usually muffled their voices into unintelligible murmurs, but now they were unmistakable whispers.
 
-[react to body changes more?]
+Sure, she was turning into a cat, bit by bit, but only her feet had turned so far. Nothing to be alarmed about.
 
 “Is this what it’s like to be Wryonin, all the time?” She wondered. She said it out loud, but this time, she didn’t hear her own voice. She got up and stomped around the workshop. No noise. She took her screwdriver and tapped it on the counter. No noise. She picked up the frozen wolf foot, and smashed it with a hammer. No noise. She picked up an ice shard and threw it at the door. It made a small *PIP* when it hit, and a small *PAT* when it fell to the floor.
 
@@ -966,7 +980,7 @@ The orange fur crept up her thighs. It was almost to her waist.
 
 “Oh, and you also turn wolves into cats?” She brushed the transition line with her paw, as if she was pulling a skirt down. “You have more effects than most. You really are quite special.” She whimpered. The orange fur didn’t stop advancing. “But you can stop now. I took you off, that means you have to stop effecting me.”
 
-Ersatzica jumped off her stool and walked away from the boots. The orange fur kept advancing. “This isn’t right.” She demanded.
+Ersatzica jumped off her stool and walked away from the boots. The orange fur kept advancing. “This isn’t right.” She insisted.
 
 The boots gave off warm, positive vibes. They offered her a consoling, welcoming hug.
 
@@ -974,13 +988,13 @@ The boots gave off warm, positive vibes. They offered her a consoling, welcoming
 
 A blue shimmer crossed the lock. It seemed to bolt shut tighter than it already was. The strap around Ersatzica’s waist tightened like thorny vines.
 
-Still, the orange fur advanced from her legs to her waist, crossing the strap into her belly. In fact, it sped up, reaching her tail and quickly turning it from black to orange, and topping it off with a red tuft.
+Still, the orange fur advanced from her legs to her waist, crossing under the strap into her belly and over her scar. In fact, it sped up, reaching her tail and quickly turning it from black to orange, and topping it off with a red tuft.
 
 She grabbed her tail in shock. It was a cat’s tail. “I didn’t need *this*! I just wanted to fit into the boots!”
 
 Her eyes widened. Of course! You don’t put Ordaent’s Lock on the victim of the heirloom, you put it on the heirloom itself! That’ll stop its effects!
 
-She unstrapped herself and strapped the boots together. The boots protested as she strapped them to the lock, and it broke her heart to do so, but she couldn’t live as a cat. Usually transformation heirlooms reversed their transformation when taken off or removed, but if this one wasn’t going to, she had to take every measure she could to protect herself. Even if that meant making an heirloom unhappy.
+She unstrapped herself and strapped the boots together. The boots protested as she strapped them to the lock, and it broke her heart to do so, but she couldn’t be a cat. Usually transformation heirlooms reversed their transformation when taken off or removed, but if this one wasn’t going to, she had to take every measure she could to protect herself. Even if that meant making an heirloom unhappy.
 
 Remorsefully, the boots accepted the lock’s effects. The blue shimmer on the boots dimmed.
 
@@ -988,23 +1002,19 @@ But the transformation didn’t slow. In fact, it got more painful. The skin nea
 
 “I’m sorry! I’m sorry!” Ersatzica cried. She unstrapped the lock from the boots, letting the lock slip off her desk and clang onto the floor. The blue shimmer returned to the boots. “Please stop! Please just stop!”
 
-*AWOOO—* She turned her muzzle up to cry for help, but stopped herself. What if she was a cat when help came? How would the others respond? There’s no way to know. Best to wait it out, and figure it out from there.
-
-She put the boots on, and latched them up. Now she could let out all the howls of pain she wanted without attracting unwanted attention.
-
-[describe the transformation going across her belly scar]
+*AWOOO—* She turned her muzzle up to cry for help, but stopped herself. What if she was a cat when help came? How would the others respond? There’s no way to know. If they thought she was a cat, they might kill her on the spot. Best to wait it out, and figure it out from there. She put the boots on, and latched them up. Now she could let out all the howls of pain she wanted without attracting unwanted attention.
 
 But it was *painful*. The skin peeling moved up her back, tormenting her sensitive nerves, and pulling at her new orange fur. It wasn’t even in a place she could lick easily. She howled silently.
 
-The orange fur advanced down her arms, slightly changing their proportions, and flinging her finger tips back into her fluffy hand paws. She drove her fists into her legs to try and quell the pain in her neck, but instead found a new pain: several sharp knives stabbing her thighs. She pulled her hands back, whimpering.
+The orange fur advanced down her arms, slightly changing their proportions, and flinging her fingertips back into her fluffy hand paws. She drove her fists into her legs to try and quell the pain in her neck, but instead found a new pain: several sharp knives stabbing her thighs. They were attached to her fingertips. She pulled her hands back, whimpering.
 
-Her old wolf skin hung from the back of her head, as the hairs were pulled out one by one as it peeled itself off her scalp. Then, as if taking off a mask, her face peeled off, starting at her forward, reaching down around her eye sockets, and down her nose. Her muzzle snapped back into her face, leaving her old skin feeling like a wet rag on her nose. Her new jaw was full of teeth even sharper than before. Finally, with her cheeks peeling off in one last painful burst, she was free of her old wolf skin.
+Her old wolf skin hung from the back of her head, as the hairs were pulled out one by one as it peeled itself off her scalp. Then, as if taking off a mask, her face peeled off, starting at her forehead, reaching down around her eye sockets, and down her nose. Her muzzle snapped back into her face, leaving her old skin feeling like a wet rag on her nose. Her new jaw was full of teeth even sharper than before. Finally, with her cheeks peeling off in one last painful burst, she was free of her old wolf skin.
 
 The old wolf skin hung limply on top of her head. She shrieked in disgust as she shook violently to get it off. But it was as if her muscles didn’t know how. She just awkwardly shook her head back and forth instead. Finally, she gingerly picked up the skin by the nose and flipped it over her head, jumping to the other side of the room as it landed.
 
 Her heart beat rapidly as she assessed her new condition. Using a mirror, she found that her face was much smaller, and oranger, with a white muzzle. Her green eyes glowed even in the night’s darkness. Red hair flowed from her head to her shoulders, where her orange-striped arms attached. She had white furry gloves, and a strange arrangement of knuckles, with no claws? Ah, there were claws, just hidden.
 
-The rest of her body was all orange. Surely, there’s such a thing as an orange wolf, right? Just because she’s smaller than before, orange, and have feet that can fit into a cat’s boots, doesn't mean she’s a cat, right?
+The rest of her body was all orange. Surely, there’s such a thing as an orange wolf, right? Just because she’s smaller than before, orange, and has feet that can fit into a cat’s boots, doesn't mean she’s a cat, right?
 
 The cat boots around her feet hugged her, comforted her, welcomed her to cathood.
 
