@@ -824,8 +824,6 @@ Muddie punched the wall, and again. In rhythm with the drums.
 
 Muddie punched the last brick with extra fervor, sending it flying into the room. Ersie handed her the lantern as they both entered. Ersatzica taped her nose and Mudrich’s nose shut.
 
-[cloth or clothe pin instead of tape?]
-
 Dust and dirt rolled out of the chamber into their bedroom, depositing mostly onto Mudrich’s bed. Ersatzica and Mudrich coughed as they breathed it in. It was as if they had discovered a long-lost tomb.
 
 Inside, the floor was littered in rat feces and dotted with rat corpses. Cobwebs decorated every corner. A puddle or two reflected the lantern light.
@@ -921,8 +919,6 @@ Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it 
 “Bye, Muddy.”
 
 The boots had been sitting in a cool, dry place for a very, very long time. They were covered in, and filled with, dust. Ersie gently tapped them in in various directions to get the dust out. She wiped down every surface she could, making sure to keep her nose strapped shut. Still, she sneezed a few times, necessitating opening the window.
-
-[straps vs tape, dusty boots have no color]
 
 Finally she was able to see what she was dealing with: Red metal imperial boots with gold plating. It had patches where the paint had been chewed down. It was very mechanical for a pair of boots: a spring from the heel to the sole, gears in the middle, and a sliding mechanism that separated the rest of the boot from the ground. It was very stubborn in moving, making it difficult to tell what the mechanism was for. But that wasn’t anything a little oil couldn’t fix.
 
