@@ -4410,6 +4410,8 @@ Ersie looked at Lemilay, who shook her head. “No.” Ersie awkwardly stood up.
 
 Ersatzica nodded. “Yes, right. Of course I would have a top bunk.” She got in her bunk bed and laid down on her belly on top the blanket.
 
+Wryonin tilted his head.
+
 “Comfy?” Lemilay grimaced.
 
 “Yes, quite.” Ersatzica yawned.
@@ -4419,5 +4421,7 @@ Ersatzica nodded. “Yes, right. Of course I would have a top bunk.” She got i
 Everyone bowed their heads, except Ersatzica, who was already asleep.
 
 Mother said a prayer, then said goodnight.
+
+After checking his sisters and blowing out the candle, Wryonin laid awake in bed. Something wasn’t right, but he couldn’t quite put an ear on it.
 
 ===
