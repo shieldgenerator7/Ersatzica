@@ -219,3 +219,35 @@ When she was out of earshot, Muddie asked, “So, what’s double 125?”
 “Yep.”
 
 “Well, I’m sure glad I’m not Lemilay right now.”
+
+# Ersatzica 2025 – Ch9 Scraps
+
+“So
+
+Are you a cat or a wolf?”
+
+After a brief pause, Ersatzica said, “A wolf.”
+
+“And is it very wolf-like to disrespect your elders like that?”
+
+“No.”
+
+“Very good, good girl.”
+
+Ersatzica said nothing.
+
+“Look, my pup, I know you’re going through a lot right
+
+“Don’t listen to their conversation.”
+
+“Why do you care all of a sudden?”
+
+“It’s rude to eavesdrop.”
+
+“That didn’t stop you from using the spyglass.”
+
+“You’re still brining that up? That was a long time ago.”
+
+“It was last week.”
+
+Lemilay’s eyes were wide and she paced in a small circle in the center of the room, rubbing her index fingers on her bald spot. “Look, Wryonin, you just have to trust me, ok?”

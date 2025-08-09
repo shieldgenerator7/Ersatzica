@@ -4261,3 +4261,163 @@ Auntie returned to normal.
 Ersatzica was quiet. Her ears pinned, tail swooshing. *Ok, so I can’t be friendly towards Fisher around Auntie Seamtrust. Got it.*
 
 The rest of the night was uneventful. By Auntie’s orders, Fisher and Ersatzica slept on opposite sides of the cave. It was miserable and cold, but it was at least safe. Ersatzica sat up and looked across the cave at the mound that was Fisher. It rose and fell in the middle at regular intervals. Ersie smiled. *He’s alive.* She imagined her red-tipped tail was Fisher’s as she hugged it.
+
+===
+
+Music: <https://www.youtube.com/watch?v=g-mdQgrZgew>
+
+Wryonin and Mudrich stood on the home side of the riverbank, waiting for Lemilay to cross. It was dark and the waxing moon was out, but it was still warm from the evening sun.
+
+Finally, a black and white wolf emerged from the forest and approached Lemilay. She held her head high and walked confidently. Lemilay whispered to her, and then she relaxed her posture and put her head down. They got in the boat and Lemilay rowed across.
+
+“Ersie!” Mudrich greeted when they arrived on the bank.
+
+Ersie stepped out of the boat, looked Mudrich up and down, and scoffed.
+
+“Give her a hug, *Ersie*.” Lemilay said.
+
+Ersie grimaced, but acquiesced. She knelt down—Mudrich assaulted her with a full on hug—and gingerly patted her on the back. After the hug, she immediately brushed off her fur.
+
+“Ersie, are you ok?” Mudrich asked.
+
+“I’m fine.” Ersie patted herself down. “Let’s go home.”
+
+“Alright, let’s go.” Wryonin led the way. The other three followed.
+
+“Ersie, are you mad at me?” Mudrich walked beside Ersie.
+
+Ersie looked at Lemilay.
+
+Lemilay nodded.
+
+Ersie held her head high. “Yes.”
+
+“What did I do?”
+
+“You already know what you did.”
+
+“Is it about the boots?”
+
+Ersie didn’t respond.
+
+“Well, if it is, I didn’t!”
+
+Ersie was silent.
+
+“I didn’t destroy the boots. I was going to, then on the way to get the hoof clippings, I decided not to. I left your boots alone.”
+
+Ersie was silent.
+
+“I don’t understand why, but I know the boots are important to you. So, I promise to not destroy them. I’m sorry.”
+
+Ersie was silent.
+
+“Ersie, please tell me what’s wrong.”
+
+“I don’t know what your problem is. Just leave me alone.”
+
+“But Ersie!”
+
+“Mudrich!” Lemilay barked. “She said to leave her alone!”
+
+“Oh.” Mudrich stopped walking. “Ok.” She trailed behind them the rest of the way home.
+
+When they got home, Mother was waiting outside their room. Her tired eyes betrayed no lack of alertness. “Good evening, my pups.” She pushed the door open.
+
+Wryonin licked her on the cheek as he walked in, wagging his tail. She licked him on the forehead in return.
+
+Mother ushered Lemilay and Mudrich in, but when Ersatzica crossed her path, she stopped her. “Ersatzica, I need to speak with you.”
+
+Ersatzica looked shocked. She looked at Lemilay. Lemilay tensed, but nodded. Ersatzica took a deep breath, and relaxed, head held high. “What is it, Mother?”
+
+Mother shut the door. “Let’s go for a walk.”
+
+Wryonin’s ears pricked. He snook up on the closed door.
+
+Lemilay stopped him. “Wryonin, don’t.”
+
+“Don’t what?”
+
+Lemilay’s face betrayed a look of concern. “Uh, don’t trip. Mudrich still hasn’t gotten the wall repaired properly yet.”
+
+“Hey! Ersie hasn’t either.”
+
+Wryonin rolled his eyes. “Sure.” Wryonin opened the door slowly and snuck outside. He pricked his ears, sneaking behind them.
+
+Music: <https://www.youtube.com/watch?v=Mm0Tk7KD3hc>
+
+“So I’ve been told,” Mother stated to Ersatzica. “That you struck someone very close to you in the face. Is that true?”
+
+Wryonin waited out the silence.
+
+“And why did you do that?”
+
+“He grabbed me by the hand.”
+
+“I understand. But that’s not the appropriate response. We don’t strike people we care about, especially not in the face. You could’ve poked an eye out.”
+
+“So what?”
+
+Mother grumbled. “Don’t talk to me like that, young pup.”
+
+Ersatzica tucked her head and put her arm up, as if to block an incoming strike.
+
+“Ersatzica, are you ok?”
+
+“I’m fine.”
+
+“I’m not angry. I’m just talking.”
+
+A brief pause. “I meant, so what… should I do? If that happens again?”
+
+“Tell them to let go.”
+
+“What if they don’t listen?”
+
+“Ok, then you may hit them. But only for the purposes of getting them to let go. Hitting them in such a way that causes damage is unnecessary. But first, talk to them. Let them know you don’t like what they’re doing and you want them to stop.”
+
+“Ok, I understand.“
+
+“Good. I love you, my pup.”
+
+Ersatzica was silent.
+
+“Ok, let’s get you pups to bed. When we get there, I want you to apologize to Mudrich.”
+
+“Mudrich?”
+
+“Isn’t that who you struck?”
+
+“Ah, yes. Yes, Mother, I will do that.”
+
+“Good.”
+
+Wryonin quickly but silently ran back into the room and jumped onto his bunk. He looked around, pretending to have been there the whole time.
+
+Ersatzica and Mother entered the room. Mother nodded to Mudrich.
+
+Ersatzica stood over Mudrich as she said, “I apologize… *Mudrich*, for striking you today.”
+
+“Ah, it’s alright, Ersie.” Mudrich got up for a hug.
+
+Ersie awkwardly gave her a hug.
+
+“Are you still mad at me?”
+
+Ersie looked at Lemilay, who shook her head. “No.” Ersie awkwardly stood up.
+
+“Ah, I forgot, Ersatzica.” Lemilay got up. “You were right. So you get my pillow for a night. So, here you go. My pillow in *your* bed, right up here. Where you sleep. And I’ll take your pillow, for tonight. Fair?”
+
+Ersatzica nodded. “Yes, right. Of course I would have a top bunk.” She got in her bunk bed and laid down on her belly on top the blanket.
+
+“Comfy?” Lemilay grimaced.
+
+“Yes, quite.” Ersatzica yawned.
+
+“Alright, time for prayer.” Mother said. “Let’s bow our heads.”
+
+Everyone bowed their heads, except Ersatzica, who was already asleep.
+
+Mother said a prayer, then said goodnight.
+
+===
