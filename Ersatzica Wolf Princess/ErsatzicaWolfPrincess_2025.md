@@ -4425,3 +4425,203 @@ Mother said a prayer, then said goodnight.
 After checking his sisters and blowing out the candle, Wryonin laid awake in bed. Something wasn’t right, but he couldn’t quite put an ear on it.
 
 ===
+
+Music: <https://www.youtube.com/watch?v=8inJtTG_DuU>
+
+“Erfie, wake ufp, Erfie.”
+
+Ersie opened her eyes to Fisher with a fish in his mouth.
+
+“Fisher?”
+
+“Good morning. I haf fish fo you.” Fisher leaned forward.
+
+Ersie leaned in and took the fish with her mouth. They rubbed noses in the process. Ersatzica gobbled it down eagerly.
+
+“How did you sleep?”
+
+Ersatzica swallowed the last bit, then looked over to where Fisher had slept that night. “It was cold.” She unstrapped the drums and the wolf foot. “And these were a bit uncomfortable to sleep with.” She rubbed the part of her fur where they had been.
+
+Fisher rubbed the sore spot on her leg, tenderly. “Well next time, don’t sleep with them on, silly.”
+
+Ersatzica laughed. “You should’ve told me that last night.”
+
+“I forgot.”
+
+They laughed.
+
+“So,” he whispered in her ear. “Do you still want to become a wolf?”
+
+Ersatzica’s eyes lit up. “Yes. Is there a way?”
+
+“I found a book that talks about a deer mage who lives in a herd just beyond the wolf village, queRen…” Fisher flipped through a book. “queRenari-Ko. …’has the power to transform those who do not resemble their true self.’”
+
+“What does that mean?”
+
+Fisher whispered, “Well, your true self is a wolf, right? So because you don’t look like a wolf, she can turn you into one.”
+
+“Permanently?”
+
+“Hmm…” Fisher scanned the page. “Yes, I believe so.”
+
+Ersatzica thought about it for a moment, chewing on the fish. *If I go there, I’ll become a wolf permanently, finally! It might be dangerous, going through the wolf village and trekking through the forest to get there, but it’ll be worth it. Right?* She looked at Fisher. *But what about Fisher? If she becomes a wolf, will she ever get to see him again? Hang out with him? Kiss him?*
+
+“Well,” Ersatzica whispered. “I am a wolf, so… Can we try finding the wolf skin first? That will… make it easier to pass through the wolf village.”
+
+His ears pinned back for a split second. “Sure.” Fisher helped her to her feet.
+
+Ersatzica put the drums and wolf foot back on, then they exited the cave and navigated to the spot Yotleph was found.
+
+“I don’t see it anywhere!” proclaimed Ersatzica.
+
+“We’ve been searching for awhile now. Maybe one of your siblings picked it up? They’re probably waiting to give it to you.”
+
+“That doesn’t make any sense. How did they find me, and if they did, why did they take it and not wake me up? And last time, they tracked me down to give it to me. This doesn’t make any sense.”
+
+Ears pinned back, the hairs on Fisher’s neck stood on end. “I’m sorry, Ersatzica.”
+
+“I can’t believe this! Someone must’ve stolen it!”
+
+“If we get to the deer herd, we won’t have to worry about it ever again, right?”
+
+Ersatzica stopped searching. “I guess so. It just sucks to lose the wolf skin.”
+
+“Yeah, it’s ok, Ersie.” Fisher nervously hugged, neck hair still on end. “We still got the Phantom Guard tooth, right?”
+
+“Right.”
+
+They went back to the cave to talk to Auntie Seamtrust.
+
+“I’m going on a mission, Auntie.”
+
+“Back into the wolf village?”
+
+“Yes. And this time, I might be gone a few days.”
+
+“Ok, be safe, kitten.” She sipped from her teacup.
+
+“Thank you.” Ersatzica grabbed Fisher’s hands. “Come on, let’s go.”
+
+“Hold on.” Auntie Seamtrust put down her teacup. “Scoundrel stays.”
+
+“But he’s very crucial to our—*my*—mission.”
+
+“I need him here.”
+
+“This is just because you don’t want him near me, isn’t it?”
+
+“Nothing of the sort. I will simply get more use out of him than you will.”
+
+“Don’t lie. I see how you treat him. You treat him like crap. I’m taking him with me, because then he’ll at least be treated decently.” Ersatzica held her head high. “We’ll be leaving now.” She walked with Fisher to the cave exit.
+
+“Scoundrel.” Auntie Seamtrust cooed. “If you leave with her, I will confiscate your hat, and then there will be no place for you here, or in the Cat Kingdom. You will be exiled.”
+
+They stopped in their tracks.
+
+“Auntie, you can’t mean that.”
+
+Auntie smiled smugly. “I do.”
+
+Ersatzica looked at Fisher.
+
+His worried expression told her everything.
+
+“Come here, Scoundrel, and sit.” Auntie said.
+
+“No, Fisher! Come with me.” Ersie insisted.
+
+Fisher cowered and put his arms over his head.
+
+“Well, you have your answer, Majestra. Go do your mission without him.”
+
+“Fisher?”
+
+“I’m sorry, Your Majesty. I want to go, but I can’t. I just can’t…”
+
+Ersatzica hung her head in disappointment. “I understand.” She walked out of the cave alone.
+
+===
+
+Wryonin, after finishing his morning tasks, went to the town fountain to talk with Lemilay. It turned out, she wasn’t there. That was strange, she normally never leaves her post while on duty. He walked around town, looking for her. He eventually found her, walking up the stairs from the forest, with a black-and-white wolf behind her. That’s strange. Normally Lemilay is at her post, and Ersatzica is in her workshop. Never spending time together. Wryonin decided to keep his distance and listen in.
+
+“And so that’s what I use the spyglass for.” Lemilay said, taking back the spyglass of Sureye from Ersatzica.
+
+“Uh huh.” Ersatzica said.
+
+They walked to town to Ersatzica’s workshop.
+
+“So this is your workshop, Ersatzica. This is where you spend all your days, and sometimes nights, banging away on whatever it is you do in there.”
+
+“You don’t know?”
+
+“It’s really quite dusty in there, I hate to even step foot.”
+
+“Ew.”
+
+“Don’t worry, there’s a window, you can get a breeze.”
+
+Lemilay opened the door and gestured to Ersatzica to go inside. Their footsteps creaked across the floor boards. Cupboard doors opened and closed. Papers were raffled through, and random objects were scattered about.
+
+“There’s lots of cat heirlooms in here. Where did they all come from?”
+
+“Most are gifts from our Great Uncle Yotleph.”
+
+“So what do I do?”
+
+“You just stay here in this building all day, and don’t leave until I come get you for the night.”
+
+“What do I do for water or waste?”
+
+“It’s only a few hours, you won’t die. As for waste, find the chamber pot.”
+
+“Chamber pot? You mean you don’t have plumbing out here?”
+
+“’Plumbing’?”
+
+“Never mind. I guess you’ll tell me what to do with this pot after a few hours?”
+
+“Yes.”
+
+“And remember,” Lemilay said sternly. “If anyone comes in asking you to fix something, tell them it’ll be ready tomorrow.”
+
+“Ok. What about our deal?”
+
+“We’ll do that when I finish my job for the day.”
+
+“Ok.”
+
+Lemilay left Ersatzica’s workshop and headed to the fountain. Then Wryonin entered.
+
+“Hello, Ersatzica.”
+
+“Hello…” She replied.
+
+“Can you fix this for me?” Wryonin took a compass out of his utility pouch.
+
+“Sure. I’ll have it fixed by tomorrow.”
+
+“Are you sure?”
+
+Ersatzica looked left and right. “Yes.”
+
+“Can you tell what’s wrong with it?”
+
+Ersatzica turned it around in her hand. Then she tried to use it like a normal compass. She turned around to point in the direction it did (it pointed in the direction of the cat outpost), then confidently stated, “It points the wrong direction.”
+
+Wryonin sighed. “You’re still directionally challenged, huh?” He took back the compass.
+
+“Hey!”
+
+“This is north, and it’s pointing North.”
+
+“No. I’m just… inside a building, that’s all. What did you want anyway, to humiliate me?”
+
+“You’re acting strange, Ersatzica.”
+
+“No, this is how I always act.”
+
+“Did Lemilay put you up to this? Is she holding something above your head or something?”
+
+“I couldn’t tell you even if she did.”
+
+Wryonin squinted. “I see. Bye.”

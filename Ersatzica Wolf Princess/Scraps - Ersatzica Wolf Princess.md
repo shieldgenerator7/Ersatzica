@@ -251,3 +251,11 @@ Ersatzica said nothing.
 “It was last week.”
 
 Lemilay’s eyes were wide and she paced in a small circle in the center of the room, rubbing her index fingers on her bald spot. “Look, Wryonin, you just have to trust me, ok?”
+
+“Ersatzica, would you go into Mother’s office,” Lemilay pointed to a building where a wolf stood guard. “And retrieve my spyglass for me?”
+
+“Why don’t you do it yourself?”
+
+“Ha. Because I’ve been barred from entering that building. But you haven’t been.”
+
+“Consider it done.” Ersatzica
