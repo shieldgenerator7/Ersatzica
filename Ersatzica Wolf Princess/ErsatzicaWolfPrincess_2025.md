@@ -3412,6 +3412,8 @@ Ersatzica sat still for a moment. This was a lot to take in. Growing up as a wol
 
 Mother soothed her, singing her a lullaby.
 
+[maybe make it clear that Awoomoon will protect her even if she decides to be a cat]
+
 Finally, Ersatzica reached for the wolfskin. She grabbed it, and pulled it close. The blue streak in the wolfskin hugged her. Hugging it back, she whispered, “Thank you, Monassus. For giving me this choice. For giving me this life.”
 
 Mother hummed the melody of the lullaby.
@@ -3488,7 +3490,7 @@ Then she stepped on something soft. Looking down, she saw a green hat with a red
 
 “Fisher!” She whispered to herself.
 
-She dropped drumming, ending the beat. The wolves barely noticed, continuing to ransack the cat outpost.
+She stopped drumming, ending the beat. The wolves barely noticed, continuing to ransack the cat outpost.
 
 Ersatzica picked up the hat. It had stains where blood had splattered onto it from the inside. Her wide eyes were only matched by her wide open mouth. She searched for a body. There were dead cats everywhere, but none with Fisher’s exact pattern. “Fisher! Fisher!”
 
@@ -3512,7 +3514,7 @@ Ersatzica looked up at him. He had a bandage over one eye, and his arms had cut 
 
 “About what?”
 
-“Shhh.” Ersatzica reached a wolf hand forward, and pulled back on the wrist of the other one, like she was rolling up her sleeves. That hand turned into a cat hand. With a cat claw, she nudged around in the lock until came open. “Aha! Just a little trick I learned from Fisher.” Then she “rolled up her sleeve” again, turning back into a wolf.
+“Shhh.” Ersatzica reached a wolf hand forward, and pulled back on the wrist of the other one, like she was rolling up her sleeves. That hand turned into a cat hand. With a cat claw, she nudged the internals of the lock around until it came open. “Aha! Just a little trick I learned from Fisher.” Then she “rolled down her sleeve” again, turning completely back into a wolf.
 
 “Thank you.” The wolf said, exasperated. “Now, what are you doing with that hat?”
 
@@ -3558,7 +3560,7 @@ She didn’t respond to the howls to group up. She didn’t even respond the Mud
 
 “Did you do this?” Ersatzica asked, not looking up.
 
-“*That*?” She pointed at the cat splattered against the wall. “I don’t remember that one specifically, but sure, I’ll take credit for it.” She put lifted her hammer into position over the splatter. “Sure does look like my hammer’s print, what do you think?”
+“*That*?” She pointed at the cat splattered against the wall. “I don’t remember that one specifically, but sure, I’ll take credit for it.” She lifted her hammer into position over the splatter. “Sure does look like my hammer’s print, what do you think?”
 
 “I wish I had never made that hammer for you.”
 
@@ -3567,6 +3569,8 @@ She didn’t respond to the howls to group up. She didn’t even respond the Mud
 Ersie got up and walked away.
 
 “Ersie, we won! We were victorious! Why are you so sad?”
+
+[ersie interal monologue: if we won, why do I feel so terrible?]
 
 “Mudrich, I need some space.” She said, not even looking back.
 
@@ -4773,3 +4777,5 @@ BOUNTY PLACED – QUIVESTER – [AMOUNT] – CLAIMED – [DATE]
 “I’m not sure.”
 
 [make this relate to fishers hat somehow, or have it give them the idea to also turn fisher into a wolf]
+
+[maybe about telling a story about himself]
