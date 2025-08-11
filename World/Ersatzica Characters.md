@@ -10,7 +10,7 @@ Wolf, Chiefling of wolf village
 
 *A slender, black and white wolf pulls a strap tight around her waist.*
 
-Aka Ersie, Magystra\*
+Aka Ersie, Majestra\*
 
 Is actually a cat disguised as a wolf.
 
@@ -114,9 +114,11 @@ Wolf
 
 Wolf carpenter. Awoomoon’s younger brother. Ersatzica’s uncle. Filled the carpenter role because Awoomoon banished the previous carpenter. Built Ersatzica’s bunk, walled up the secret barracks room, and designed the lookout posts.
 
-# Magystra
+# Majestra
 
 Cat, Invasion Mission Lead
+
+Red-tip royal
 
 Cat spy. She’s Ersatzica’s cousin by blood, and looks almost exactly like her, to the point people often mistake one for the other. She uses a tooth from Yotleph’s Skull to make herself undetectable as she snoops around the wolf village. She wants to help conquer the lands beyond the mountains and become a ruler away from the Cat Kingdom.
 
@@ -136,6 +138,46 @@ Ersatzica thought of him as her grandpa, as he brought her heirlooms from the ca
 
 Cat, General of Cat Outpost
 
-Magystra’s aunt.
+Majestra’s aunt. Red-tip royal
 
 *An older cat emerged from a canvas tent. She wore various pieces of armor.*
+
+# Imraen
+
+Wolf guard
+
+# Byporf
+
+Wolf guard
+
+# Quivester
+
+Cat historical figure, exiled red-tip royal
+
+# Monassus
+
+Wolf historical figure, slave
+
+Rescued by Quivester
+
+# Yosummit
+
+Wolf
+
+# Marvelosa
+
+Cat
+
+Majestra’s mother. Red-tip royal
+
+# Pantrinome
+
+Cat
+
+Ersatzica’s biological mother. Red-tip royal
+
+# queRenari-Ko
+
+Deer
+
+leader of the deer herd south of the wolf village
