@@ -12,9 +12,9 @@ by shieldgenerator7
 
 A slender, black-and-white wolf girl inspected her patient on the worktable. It was a leather belt with scratches in one particular place that eventually cut all the way through. Attached to it were several items of use to their owner: a bag of rocks, a knife in its sheath, a bladder, and a wooden slingshot.
 
-The wolf girl looked around her workshop. It was a comfortable organized chaos, full of past projects, tools, plans, and materials. She opened a cupboard of dried skins and pulled out a sheet.
+The wolf girl looked around her workshop. It was comfortable, organized chaos, full of past projects, tools, plans, and materials. She opened a cupboard of dried skins and pulled out a sheet.
 
-Taking out her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together, over the course of a half hour, making the belt as good as new.
+Taking out her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of a half hour, making the belt as good as new.
 
 The owner wasn’t here to test it out, so she tried it on herself. She dug her paws into the bag of rocks and easily pulled out one. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
 
@@ -58,7 +58,7 @@ Muddy let her go. “Do you want to come help me with a new hole?”
 
 “Ok, see you later!” Muddy ran out.
 
-Ersie got to work on the next project: two identical drums. They had once been attached together by a belt, but that belt had since worn away. The drums were painted red with a gold trim, and had impeccable craftsmanship. A blue glint shimmered across the drums. Ersie felt a closeness to them that she couldn’t explain, like the drums were welcoming her to work on them.
+Ersie got to work on the next project: two identical drums. They had once been attached together by a belt, but that belt had since worn away. The drums were painted red with a gold trim and had impeccable craftsmanship. A blue glint shimmered across the drums. Ersie felt a closeness to them that she couldn’t explain, like the drums were welcoming her to work on them.
 
 “Ersatzica?”
 
@@ -88,7 +88,7 @@ She held the slingshot behind her back. “Your belt could break again, and what
 
 “Promise?”
 
-He grabbed it and pulled it out of her hand. Inspecting it, he found it lacking a particular spike. “Ersatzica! This was grandfather’s! He carved it with his own paws! And you went and destroyed it.” He mimed shooting it. “How am I supposed to aim now?” He mimed throwing it on the ground, but nevertheless holstered it. “Thanks a lot.” He stormed off.
+He grabbed it and pulled it out of her hand. Inspecting it, he found it lacking a particular spike. “Ersatzica! This was grandfather’s! He carved it with his own paws! And you went and destroyed it.” He mimed shooting it. “How am I supposed to aim now?” He mimed throwing it on the ground but nevertheless holstered it. “Thanks a lot.” He stormed off.
 
 Ersatzica leaned over her workshop, tears welling up in her eyes. She picked up her screwdriver and slowly fiddled with an adjustment knob on the drums, but then dropped the screwdriver.
 
@@ -96,7 +96,7 @@ Ersatzica leaned over her workshop, tears welling up in her eyes. She picked up 
 
 Ersatzica sucked in her tears and turned around.
 
-A grey and white wolf walked in, eyes rolled back into her skull. A white bald spot on her forehead glowed enough illuminate the scene. “I told you so! I knew he would get mad.”
+A grey and white wolf walked in, eyes rolled back into her skull. A white bald spot on her forehead glowed enough to illuminate the scene. “I told you so! I knew he would get mad.”
 
 “What do you want, Lemilay?”
 
@@ -110,7 +110,7 @@ Lemilay rolled her eyes forward, dimming out her bald spot. “My throne is gett
 
 “Hmmm.” Lemilay lifted her chin at Ersatzica. “Very well. I graciously grant you a deadline extension.” She swiped Ersatzica’s chin with the tip of her tail. With a glowing bald spot, she added, “I see Mudrich broke your door again. Better get that fixed.” She didn’t even bother to close the door as she left.
 
-Ersatzica stewed on her stool for a minute, and then got to work on the pillows. They were plenty puffy, they just seemed flat after hours of being sat on. She fluffed them out without even using her tools. For good measure, she straightened the fur grain on the top.
+Ersatzica stewed on her stool for a minute, and then got to work on the pillows. They were plenty puffy; they just seemed flat after hours of being sat on. She fluffed them out without even using her tools. For good measure, she straightened the fur grain on the top.
 
 Ersatzica then pushed the pillow aside to make room for the drums. She cut out a strip of leather to fit around her own waist and laid out the drums along it, meticulously calculating where best to put them. She placed them right next to each on the front. Then she attached them to the belt.
 
@@ -438,7 +438,7 @@ Lemilay twitched. Then she ran, dropping the telescope. *AWOOOOOO!* (“Intruder
 
 Mudrich ran after them.
 
-Ersatzica walked quickly, trying to be quiet as she panicked. All of her siblings were far ahead of her now. She heard several twigs snapping, getting closer. She jumped and ran, fleeing from the sound. The jostling around from her steps unsettled the scar on her stomache. She clutched her belly as she stopped. It threatened to bleed.
+Ersatzica walked quickly, trying to be quiet as she panicked. All of her siblings were far ahead of her now. She heard several twigs snapping, getting closer. She jumped and ran, fleeing from the sound. The jostling around from her steps unsettled the scar on her stomach. She clutched her belly as she stopped. It threatened to bleed.
 
 She looked back at the source of the noise. The intruders weren’t yet visible. She looked at her belly, just barely holding together. She looked at the drums. She wiped the dust off the tops. “Find the beat, find the beat. I just gotta find the beat.”
 
@@ -1138,7 +1138,7 @@ Ersatzica pulled her down with her sharp claws.
 
 “Nephalie…”
 
-“Nevermind, I don’t want to know.” She walked off.
+“Never mind, I don’t want to know.” She walked off.
 
 “Nephalie!”
 
@@ -1278,7 +1278,7 @@ The water froze instantly, despite being several feet away from the foot. Howeve
 
 “Hold it right there!” Wryonin yelled. “Don’t go anywhere!”
 
-A rock flew by Ersatzica, grazing her stomache fur.
+A rock flew by Ersatzica, grazing her stomach fur.
 
 Lemilay was closing in, her bald spot almost blinding Ersatzica in the cold, wet darkness.
 
@@ -1388,7 +1388,7 @@ She didn’t really have any good options.
 
 She took her trusty screwdriver out and scraped at the ice, trying to get the foot out. Pounding the ice to crack it risks breaking the whole raft, and trying to melt the ice away would prove fruitless against the foot’s power.
 
-After about an hour of scraping and blowing the ice scrapes, she realized she hadn’t packed any food. Her stomache grumbled as she picked away at the ice.
+After about an hour of scraping and blowing the ice scrapes, she realized she hadn’t packed any food. Her stomach grumbled as she picked away at the ice.
 
 Finally she was able to scrape the foot out of the ice. She held it above the river and it worked like normal, freezing the water under it instantly.
 
@@ -1416,7 +1416,7 @@ But at the top, she found that the bank was a bit taller than the current river 
 
 She took it, and it pulled her up. She clambered up onto the bank on all fours, trying to shake the water off. But her usual post-bathtime instinct didn’t kick in. Instead, she just had to soak it in.
 
-She looked up at her saviour. He was a black and white cat in a red-feathered green hat.
+She looked up at her savior. He was a black and white cat in a red-feathered green hat.
 
 “You’re the ghost!” Ersatzica screamed.
 
@@ -1456,7 +1456,7 @@ Ersatzica looked at it for a second. Its bulbous eyes protruded from its oily sc
 
 The cat flinched away. “I’m glad you like it.”
 
-Eratzica gobbled it all up, and licked the bits off the bones.
+Ersatzica gobbled it all up, and licked the bits off the bones.
 
 “Still hungry?” He gave her another one.
 
@@ -1478,7 +1478,7 @@ He peeked his eyes open, and upon seeing her calm expression, he relaxed his gua
 
 He tilted his head. “Did you, hit your head or something?”
 
-Erssatzica held her head. “No, I don’t think so.” She sneezed.
+Ersatzica held her head. “No, I don’t think so.” She sneezed.
 
 “Oh, you might have a cold. Here, get up.” He moved the jaw bone off the blanket. He picked up the basket by the handle, but it was broken and he immediately remembered to pick it up with both hands from the bottom. He moved it next to the jawbone in the grass. Now with the blanket vacant, he wrapped her in the blanket. “Feeling better?”
 
@@ -1896,7 +1896,7 @@ Mudrich rowed her across the river. She was once again reunited with all of her 
 
 “What?”
 
-“Nevermind. Let’s get home before the cats spot us.” He walked into the woods, and they followed.
+“Never mind. Let’s get home before the cats spot us.” He walked into the woods, and they followed.
 
 “I never thought I’d be so happy to see you, Lemilay.” Ersatzica went in to hug her sister.
 
@@ -2324,7 +2324,7 @@ Fisher pulled out a book from his basket, and opened to a particular page.
 
 “Oh! That’s my sister calling. I have to go.”
 
-Fisher hopped out of the boat. “Ok. Say hi to Magystra for me if you see her.”
+Fisher hopped out of the boat. “Ok. Say hi to Majestra for me if you see her.”
 
 “Ok.”
 
@@ -2462,9 +2462,9 @@ Mudrich stopped in her tracks to pick up a rock. “What’s up?”
 
 Mudrich giggled as she scampered off.
 
-[my computer crashed and lost the scene I just wrote about Ersatzica and mudrich getting a complete count :[ ]
+[my computer crashed and lost the scene I just wrote about Ersatzica and Mudrich getting a complete count :[ ]
 
-[ersatzcia goes to see fisher as seen earlier in the chapter]
+[Ersatzica goes to see fisher as seen earlier in the chapter]
 
 Ersie finds Mudrich. “Hi Muddie!”
 
@@ -2972,7 +2972,7 @@ The medic cat and his aid backed up away from Ersatzica. Then they looked puzzle
 
 Ersatzica’s eyes lit up, then she got angry. “That’s *Your Majesty* to you, Scoundrel.” She hit him with a clawless hand, which he easily blocked with a clawed-up arm.
 
-The medic cat and his aid returned to their normal behaviour.
+The medic cat and his aid returned to their normal behavior.
 
 Ersatzica breathed a sigh of relief. “So, is *Scoundrel* cleared for duty?”
 
@@ -3072,7 +3072,7 @@ Ersie led him randomly around the outpost until they found the armory.
 
 “I’m sorry, Your Majesty, but there has been no weapons allocated to this… thing.”
 
-“You… insolant… little… hound!” Ersatzica raised an arm.
+“You… insolent… little… hound!” Ersatzica raised an arm.
 
 The guard flinched. “I’m sorry, your majesty.”
 
@@ -3142,7 +3142,7 @@ Outside the armory, Ersatzica squealed and spun in a circle, chasing her tail. �
 
 “I’ve got an idea!” She went around the outpost, and found a deer. “You there, do you lie on wood?”
 
-“Excuse me, Your Majesty?” This male deer spoke in a grovelly voice. He looked like he could drop dead from exhaustion at any moment.
+“Excuse me, Your Majesty?” This male deer spoke in a gravelly voice. He looked like he could drop dead from exhaustion at any moment.
 
 “Wood. Can you manipulate it?”
 
@@ -3758,7 +3758,7 @@ Ersie sighed. “Muddy, you know how I turned into a cat?”
 
 “But it *did*. And you’re my sister again.”
 
-“Muddy, uh…” Ersie sighed. *Why is she being so difficult? Would she really not accept me if I was a cat?* “Nevermind. You told me all I needed to hear.” She turned to get out of the bed.
+“Muddy, uh…” Ersie sighed. *Why is she being so difficult? Would she really not accept me if I was a cat?* “Never mind. You told me all I needed to hear.” She turned to get out of the bed.
 
 “Ersie wait!”
 
@@ -4138,7 +4138,7 @@ Inside, there was a campfire running low on wood, with a few dozen figures sitti
 
 “Yes.” He hung his head in shame.
 
-“Finally. Where’ve you been? Nevermind. Go get us some more wood.”
+“Finally. Where’ve you been? Never mind. Go get us some more wood.”
 
 Fisher whispered to Ersie, “Go sit by the campfire, I’ll be right back.”
 
