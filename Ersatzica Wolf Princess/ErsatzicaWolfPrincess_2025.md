@@ -4624,4 +4624,152 @@ Wryonin sighed. “You’re still directionally challenged, huh?” He took back
 
 “I couldn’t tell you even if she did.”
 
-Wryonin squinted. “I see. Bye.”
+Wryonin squinted. “I see. Bye.” He went to the fountain and spotted Lemilay.
+
+She was sitting on the fountain edge, singing a ballad. A few wolves sat around, singing along as they ate.
+
+Wryonin leaned against a wall and waited for her to finish her song. He didn’t want to interrupt, be seen, or take sonic damage from Lemilay’s horrid voice. Ok, maybe not *horrid*, but less than pleasant, and definitely way too loud.
+
+When Lemilay stopped singing, another wolf dipped a cup into the fountain and gave it to her. While she sipped, Wryonin approached.
+
+“Lemilay.” He said.
+
+“Wry—” she choked on her water. “Wryonin, don’t sneak up on me like that.”
+
+“I have a question for you.”
+
+“Well, I’m busy right now.”
+
+“I see.” Wryonin picked up the spyglass and looked into it, not focusing on anything in particular.
+
+“Hey! That’s mine! Put it down.”
+
+“But Mother confiscated it, remember?”
+
+“Well what if she gave it back to me?”
+
+“Ok, then I should thank her for doing so. For showing my sister such *compassion*.”
+
+Lemilay grabbed the spyglass. “Ok, what do you want?”
+
+“I want to know what you did to Ersatzica.”
+
+Lemilay looked away. “What do you mean? *I* didn’t do anything.”
+
+“She’s been acting really funny lately, haven’t you noticed?”
+
+“Yeah, she seems really insecure with herself lately. She’s been asking me for advice, trying to become a better leader. I’ve been helping her as much as I can, but you know, some wolves just aren’t cut out for it. You could also use a few lessons from me.” She said with a smug smile.
+
+The wolves around Lemilay laughed.
+
+Wryonin’s eye twitched. “Ok, let’s hear it. What’s your advice?”
+
+“First of all, stop sticking your nose in other people’s business. Oh wait, I forgot, you don’t have one.” She booped him on the nose, drawing attention to the scar he had there.
+
+The wolves laughed.
+
+Wryonin squinted at Lemilay. He lifted his cheeks up for a growl, but decided to keep it cool instead.
+
+“Struck a nerve, did I?”
+
+“I have some hunting to do.” Wryonin walked away.
+
+“Don’t let the trees bite!” Lemilay snarked. Then she sang a song, “The Drunk Hunter” as he left.
+
+Wryonin went back to Ersatzica’s Workshop. If she really was looking for leadership advice, he wasn’t going to let her get all of it from Lemilay. At least some advice she receives should be good advice.
+
+“Ersatzica?” Wryonin opened the door.
+
+“Come in.”
+
+“Lemilay told me she’s giving you leadership advice, is that true?”
+
+“Um, yes. She’s teaching me… I’m learning a lot from her.”
+
+“That’s great, Ersatzica. Would you like some more advice?”
+
+“Ok.”
+
+“It’s not nice to humiliate your peers in front of others. It makes them feel small, and like dirt. It doesn’t make them respect you or want to follow you, it makes them want to *avoid* you. If you truly want to lead, you should lead by example.”
+
+“What’s that supposed to mean?”
+
+“It means you do what you think everyone should be doing. You don’t have to tell people how to behave, you show them, and they can follow your example.”
+
+“Why are you telling me this now?”
+
+“Because I thought you needed to hear it.”
+
+“Well what if the people we lead are beneath us?”
+
+“They still deserve respect, and they will respect you more for showing it.”
+
+“Not in my experience.”
+
+“Wow, Lemilay really has gotten into your head, hasn’t she?”
+
+“Or is it that she’s gotten into *yours*?”
+
+“Don’t listen to Lemilay. She’s a stuck-up she-wolf who thinks she’s better than everyone. You have a good heart, Ersatzica. I know you do. Do what you think is best.”
+
+Ersatzica looked down at her work table.
+
+Wryonin walked over to her and licked her on the forehead. “Take care, sis. I’ve got hunting to do.” Wryonin left.
+
+He left to go do some hunting, but then he heard the door to Ersatzica’s Workshop open. It was Ersatzica herself, sneaking out to go do whatever.
+
+Wryonin smiled to himself. She’s disobeying Lemilay’s orders; he’s proud of her.
+
+===
+
+Ersatzica walked back to the cave, orange tail swishing, just when Fisher was coming out.
+
+“You’re back!” Fisher greeted her with a smile and a kiss.
+
+“I… didn’t actually leave.”
+
+“Why not?”
+
+“I don’t really know the way, and I don’t know how to approach the deer. Are they as murderous towards cats as the wolves are? I don’t know. And it scares me to face them alone.”
+
+“Let’s find out.” Fisher flipped to the relevant page in the book, and skimmed it. “It doesn’t say anything about what they think of cats. For all we know, it could be they really like us.”
+
+“You really think so?”
+
+“Yeah, why not. You’ll go over there, they’ll welcome you, and then turn you into a wolf.”
+
+Ersatzica looked down and frowned. “I appreciate your optimism, Fisher, but I… I’m don’t really want to make the journey alone.”
+
+Fisher took her by the hands. “You know I would happily go with you, Ersie. But I can’t.”
+
+“I know.”
+
+“But I *can* read you a story.”
+
+“Did you find something new?”
+
+“I think I did, yeah.” Fisher took out another book. “This one’s a bit dry. It’s a log of shipments to and from the cat kingdom and the wolf village.”
+
+Ersie tilted her head. “How is that a story?”
+
+“Let me show you.” Fisher led Ersie to a tree, where they both sat down. “Remember that story about Quivester getting exiled?”
+
+“Hm mmm.”
+
+“These dates on the left line up with the approximate publication date of that story. You can see how, at first, the orders put in for wolf slaves were being fulfilled on time, in extraordinary numbers. Then, one or two of them fail to get delivered, with no reason given. Then as we go on—”
+
+“More of them aren’t getting delivered! But why?”
+
+Fisher shrugged. “It doesn’t say, but one of these entries over on this… page. It gives a reason: bandits.”
+
+“You think that is Quivester?”
+
+“I think so, because of this.” Fisher flips to a page where an entry was written in red.
+
+BOUNTY PLACED – QUIVESTER – [AMOUNT] – CLAIMED – [DATE]
+
+“So he *was* caught. Was this before or after Monassus was given to Princess Retriyoan?”
+
+“I’m not sure.”
+
+[make this relate to fishers hat somehow, or have it give them the idea to also turn fisher into a wolf]

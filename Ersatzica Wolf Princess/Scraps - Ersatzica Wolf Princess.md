@@ -259,3 +259,13 @@ Lemilay’s eyes were wide and she paced in a small circle in the center of the 
 “Ha. Because I’ve been barred from entering that building. But you haven’t been.”
 
 “Consider it done.” Ersatzica
+
+“Can I see that?” Ersie looked over the page, and the next. “These!”
+
+“‘The Antlers of ‘Truth’,” said Fisher. “What about them?”
+
+“I’ve seen this before! Someone in the wolf village has one.”
+
+“One?”
+
+“Apparently
