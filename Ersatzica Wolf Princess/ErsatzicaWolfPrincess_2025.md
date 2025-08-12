@@ -10,15 +10,15 @@ by shieldgenerator7
 
 # Chapter 1 – The Drums of Retriyoan
 
-Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a knife in its sheath, a bladder, and a wooden slingshot.
+Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
 
-The workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for something more.
+Her workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for one more project.
 
-She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of a half hour, making the belt as good as new.
+She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of half an hour, making the belt as good as new.
 
-Her brother wasn’t here to test it out, so she tried it on herself. She dug her paws into the bag of rocks and easily pulled one out. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
+Her brother wasn’t here to test it out, so she herself tried it on. She dug her paw hands into the bag of rocks and easily pulled one out. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
 
-She placed the culprit on the worktable, leaning over it. “I want to remove this spike, but he told me not to.” She looked to the slingshot for validation, but it offered no consolation. “But if I don’t, he’ll wear a cut into his belt again.” She held down the slingshot and held out the file part of her screwdriver. “This will only hurt for a moment.” She filed down the spike to a round bump.
+She placed the culprit on the worktable, eyeing the spike. “I want to remove this spike, but he told me not to.” She looked to the slingshot for validation, but it offered no response. “But if I don’t, he’ll wear a cut into his belt again.” She held down the slingshot and held up the file part of her screwdriver. “This will only hurt for a moment.” She filed down the spike to a round bump. “There! All done.”
 
 When she holstered the slingshot, it didn’t scrape the new patch of belt. Check.
 
