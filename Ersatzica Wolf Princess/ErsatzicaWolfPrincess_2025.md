@@ -30,7 +30,7 @@ Ersie took off the belt she had just finished repairing. “Come in.”
 
 The door burst open, releasing a short, all-white wolf girl. She ran up to Ersie, bouncing up and down, dried mud patches flopping to the ground. “Did you finish it? Did you did you?”
 
-“Calm down, Muddy.” Ersie pushed her back. “It’s right here.” She pulled out a metal hammer from a barrel that was about as big as the white wolf girl was.
+“Calm down, Muddy.” Ersie pushed her back. “It’s right here.” From a barrel, she pulled out a metal hammer that was about as big as the white wolf girl was.
 
 Muddy grabbed it and swung it. “This feels great!” She hit the door, knocking the locking mechanism askew.
 
@@ -64,13 +64,13 @@ Ersie got to work on the next project: two identical drums. They had once been a
 
 “Come in.”
 
-A black and grey wolf boy pushed the workshop door open and marched inside. “How’s it coming?”
+Her brother Wryonin, a black and grey wolf boy, pushed the workshop door open and marched inside. “How’s it coming?”
 
 Ersatzica looked up at him as she handed him the belt. “I fixed your belt, like you asked. I stitched it up, good as new, it should last a lot longer now.”
 
 Wryonin wrapped the belt around his waist and felt around for the items. “Where’s the slingshot?”
 
-“Now, don’t be mad, but…”
+“Now, don’t be mad, but—”
 
 “Ersatzica, what did you do?”
 
@@ -88,7 +88,7 @@ She held the slingshot behind her back. “Your belt could break again, and what
 
 “Promise?”
 
-He grabbed it and pulled it out of her hand. Inspecting it, he found it lacking a particular spike. “Ersatzica! This was grandfather’s! He carved it with his own paws! And you went and destroyed it.” He mimed shooting it. “How am I supposed to aim now?” He mimed throwing it on the ground but nevertheless holstered it. “Thanks a lot.” He stormed off.
+He grabbed it and pulled it out of her hand. Inspecting it, he found it lacking a particular spike. “Ersatzica! This was grandfather’s! He carved it with his very own paws! And you went and destroyed it.” He mimed shooting it. “How am I supposed to aim now?” He mimed throwing it on the ground but nevertheless holstered it. “Thanks a lot.” He stormed off.
 
 Ersatzica leaned over her workshop, tears welling up in her eyes. She picked up her screwdriver and slowly fiddled with an adjustment knob on the drums, but then dropped the screwdriver.
 
@@ -96,7 +96,7 @@ Ersatzica leaned over her workshop, tears welling up in her eyes. She picked up 
 
 Ersatzica sucked in her tears and turned around.
 
-A grey and white wolf walked in, eyes rolled back into her skull. A white bald spot on her forehead glowed enough to illuminate the scene. “I told you so! I knew he would get mad.”
+A grey and white wolf walked in, eyes rolled back into her skull. A white bald spot on her forehead glowed enough to illuminate the scene. “I told you so! I knew he would get mad if you removed the spike.”
 
 “What do you want, Lemilay?”
 
@@ -112,15 +112,15 @@ Lemilay rolled her eyes forward, dimming out her bald spot. “My throne is gett
 
 Ersatzica stewed on her stool for a minute, and then got to work on the pillows. They were plenty puffy; they just seemed flat after hours of being sat on. She fluffed them out without even using her tools. For good measure, she straightened the fur grain on the top.
 
-Ersatzica then pushed the pillow aside to make room for the drums. She cut out a strip of leather to fit around her own waist and laid out the drums along it, meticulously calculating where best to put them. She placed them right next to each on the front. Then she attached them to the belt.
+Ersatzica then pushed the pillow aside to make room for the drums. She cut out a strip of leather to fit around her own waist and laid out the drums along it, meticulously calculating where best to put them. She placed them right next to each other on the front. Then she attached them to the belt.
 
 Putting the belt on, she immediately realized a problem: the drums sagged forward, causing the whole belt to droop. Uncheck.
 
-Well why had this not happened with Wryonin’s belt? There was nothing on it that was that heavy. Wait, yeah there was. The bag of rocks, and the bladder. So why did that work, but this doesn’t?
+*Well why had this not happened with Wryonin’s belt? There was nothing on it that was that heavy. Wait, yeah there was. The bag of rocks, and the bladder. So why did that work, but this doesn’t?*
 
 Ersatzica took out a piece of paper and a pencil, sketching out her memory of Wryonin’s utility belt. She soon discovered that the heavy items were on opposite sides of the belt, balancing it out.
 
-Aha!
+*Aha!*
 
 With that in mind, Ersatzica detached the drums and laid them out so they were on either side of the belt. Her stomach rumbled as she sewed them back on.
 
@@ -144,7 +144,7 @@ She pressed on, taking the belt off and preparing to detach the drums again.
 
 “I wasn’t?”
 
-“No, you were supposed to…”
+“No, you were supposed to—"
 
 Ersie’s stomach growled.
 
@@ -176,9 +176,9 @@ Ersie followed Muddie to the river, eating her rations as she went. She finished
 
 “I want to show you something.”
 
-Muddie led her to big rock by the river, so close it was literally part of the river bank. The river roared up next to the boulder, threatening to swallow it up.
+Muddie led her to a big rock by the river, so close it was literally part of the river bank. The river roared up next to the boulder, threatening to swallow it up.
 
-“It’s a boulder.”
+“…It’s a boulder.”
 
 “Not just any boulder!” Muddie tapped the boulder gently with her hammer. *TING TING*. “See?”
 
@@ -204,7 +204,7 @@ Muddie danced to the beat of Ersie’s drums .
 
 “No, what happened?” *BUM BUM BUM*
 
-“I’m not sure.” Muddie let her hands relax and her feet rest, but they didn’t want to. “Hey! Hey! Hey!”
+“I’m not sure.” Muddie let her hands relax and her feet rest, but they didn’t want to. “Hey! Hey hey hey!”
 
 “What’s wrong Muddie?”
 
@@ -226,7 +226,7 @@ Muddie danced to the beat of the drum.
 
 *BUM BUM BUM*
 
-Muddie’s dancing increased in speed. “Faster.”
+Muddie’s dancing speed increased. “Faster.”
 
 *BUM BUM BUM*
 
@@ -266,11 +266,11 @@ Her feet were still moving like normal. “Nothing’s happening.”
 
 “Are you sure? I’m doing exactly what you were doing.”
 
-“No I was moving my arms. You know, the standard dance we do. You were just standing there like a tree.”
+“No, I was moving my arms. You know, the standard dance we do. You were just standing there like a tree.”
 
-“Well I can’t move my arms and play the drums at the same time.”
+“Well, I can’t move my arms and play the drums at the same time.”
 
-“Ok I wanna try again.”
+“Ok then I’ll try again.”
 
 Ersie stopped dancing and focused on the drums.
 
@@ -285,6 +285,8 @@ Ersie stopped dancing and focused on the drums.
 “Ok now faster.”
 
 Ersie gradually sped up the drums.
+
+*BUM BUM BUM BUM BUM*
 
 Muddie’s pace quickened as she jogged. Her legs soon became a blur.
 
@@ -306,11 +308,11 @@ Ersie looked around, but there was no sign of Muddie.
 
 “A fresh pile of mud?”
 
-“I ran so fast with those drums!” Muddie got on all fours.
+“Something even better! I ran so fast with those drums! You’re not going to believe this!” Muddie got on all fours.
 
 “Mudrich! Not here!”
 
-Mudrich shook all the loose mud off here, splashing it all over Ersie and the drums.
+Mudrich shook all the loose mud off of her, splashing it all over Ersie and the drums.
 
 “Oh, sorry Ersie.” She picked up her hammer. “Let’s try again.”
 
@@ -318,7 +320,7 @@ They tried the drums out on Mudrich’s hammer, finding that she can swing faste
 
 Ersie tried to get the same effect, but no matter what she did, she couldn’t get it to work.
 
-Mudrich shrugged. “Maybe you’re just bad. I’ve got the beat.”
+Mudrich shrugged. “Maybe you’re just bad. I’ve got the beat, and you don’t.”
 
 “No, I’m good at getting the beat too. It must be something else.”
 
@@ -342,7 +344,7 @@ Mudrich let out an exasperated sigh. “Finally!” She dug some more. “Hey, w
 
 “No, Mudrich!”
 
-“Huh? Oh… oh!” Mudrich slapped herself in the forehead. “Of course! If it can speed me up, it can also slow me down. But why would I want that?”
+“Huh? Oh… oh!” Mudrich slapped herself in the forehead. “Of course! If it can speed me *up*, it can also slow me *down*. But why would I want that?”
 
 “That’s what I want to ask Ersatzica.”
 
@@ -362,11 +364,11 @@ Mudrich let out an exasperated sigh. “Finally!” She dug some more. “Hey, w
 
 Lemilay flashed her bald spot, her eyes rolling back into her skull. A second later, she returned to normal.
 
-“Did you see it? Wasn’t it cool?”
+“Did you see it? Did you see it? Wasn’t it cool?”
 
-“Great. So you two were down here partying instead of getting your job done? Wait until Mother hears about this.”
+“Great. So you two were down here partying instead of getting your jobs done? Wait until Mother hears about this.”
 
-“Lemilay, don’t!” Ersatzica grabbed her by the arm. “I’ll get it done.”
+“Lemilay, don’t!” Ersatzica grabbed her by the arm. “I’ll-I’ll get it done.”
 
 Lemilay crossed her arms. “Ok, but I expect extra fluff.”
 
@@ -376,13 +378,13 @@ Lemilay crossed her arms. “Ok, but I expect extra fluff.”
 
 “I saw your damn jig, Mudrich!” Lemilay shouted.
 
-“Well you don’t have to shout at me.”
+“Well you don’t have to be so mean about it.”
 
 “Well you don’t have to be so annoying.”
 
 “But you should see it.”
 
-“I *saw* it Mudrich. It’s just another stupid heirloom.”
+“I *saw* it, Mudrich. It’s just another stupid heirloom.”
 
 “It’s not stupid.” Ersatzica’s ears pinned back.
 
@@ -394,11 +396,11 @@ Lemilay crossed her arms. “Ok, but I expect extra fluff.”
 
 “No, but it can—”
 
-“Then who cares? You two have fun with it, but only after getting your jobs done.”
+“Then who cares? You two have fun with it, but only after getting your jobs done. Are we clear?”
 
 “What’s going on?” Wryonin dropped down from a tree.
 
-“Nothing, go away.”
+“Nothing, Wryonin, go away.”
 
 “I heard shouting. I thought you were in trouble.”
 
@@ -426,9 +428,9 @@ Ersie followed her siblings, not saying anything.
 
 “Everyone stop.” Wryonin froze.
 
-Mudrich pretended to be a statue, standing on one leg. Ersatzica laid her hands on the drums as she stopped. Lemilay kept walking.
+Mudrich pretended to be a statue, standing on one leg. Ersatzica laid her hands on the drums as she stopped. Lemilay just kept walking.
 
-Wryonin’s ears twitched. “They’re here! Everyone run!” Wryonin took off toward the stairs. *AWOOOOO!* (“Intruders!”)
+Wryonin’s ears twitched. “They’re here! Everyone, run!” Wryonin took off toward the stairs. *AWOOOOO!* (“Intruders!”)
 
 “It was probably just a twig.” Lemilay pulled out a telescope. She looked into it, then froze.
 
@@ -450,7 +452,7 @@ The snapping twigs grew louder and closer.
 
 The snapping twigs were right up on her soon.
 
-“Fast beat! Fast beat!” She pounded the drums as fast as she could. However, her footsteps didn’t get faster. She sped walk as fast as she could, but without the beat. She was just normal speed walking this whole.
+“Fast beat! Fast beat!” She pounded the drums as fast as she could. However, her footsteps didn’t get faster. She speed walked as fast as she could, but without the beat. She was just normal speed walking this whole time.
 
 *PFFFFT!*
 
@@ -468,7 +470,7 @@ Ersatzica hit the drums. Then again. And again.
 
 The cats paused.
 
-Ersatzica beat them some more, pounding them faster with each beat.
+Ersatzica beat the drums some more, pounding them faster with each beat.
 
 The cats came out from behind the trees. One of the cats whispered, “Monassus?”
 
@@ -484,7 +486,9 @@ The cat grabbing her left hand launched forward, letting go of her, and splattin
 
 “What in the name of Teal—” That cat also got launched into a tree before he could finish what he was saying.
 
-Ersie just kept beating the drum.
+A blur of white came out of nowhere and splatted a cat against a tree.
+
+Ersie just kept beating the drums.
 
 “Retreat!” The cats ran away.
 
@@ -496,7 +500,7 @@ Ersie let out her breath. “Muddie!”
 
 “I heard your drums. Did they hurt you?”
 
-Ersie held up her hand. It had a few scratch marks on it, but that was it.”
+Ersie held up her hand. It had a few scratch marks on it, but that was it.
 
 *AWOOOOO!* (“Help!”) Mudrich howled. “Play the drums.”
 
@@ -532,7 +536,7 @@ Mudrich shrugged. “*You* dropped it.”
 
 “I need it!”
 
-“Well we can help you retrace your steps.” Wryonin offered. “Tomorrow. Tonight it’s just going to be out here.”
+“Well we can help you retrace your steps.” Wryonin offered. “Tomorrow. Tonight it’s just going to be us getting out here.”
 
 “Tomorrow it’s going to be out there.” Ersatzica pointed out into the distance, indicating a location beyond the river.
 
@@ -542,9 +546,9 @@ Mudrich shrugged. “*You* dropped it.”
 
 Lemilay’s bald spot glowed and her eyes rolled back for a moment. “The cats *do* have it!”
 
-“Well that sucks, but we can’t go after it tonight.”
+“Well, that sucks, but we can’t go after it tonight.”
 
-“Think about what that *means*, Wryonin. The cats are going to have access to a powerful heirloom that lets them see through walls. Imagine how much *intel* they could gather with it. How that could give them a *tactical* and *strategic* advantage against us.
+“Think about what that *means*, Wryonin. The cats are going to have access to a powerful heirloom that lets them see through walls. *See through walls!* Imagine how much *intel* they could gather with it. Imagine what kind of a *tactical* and *strategic* advantage that they could have against us with that.”
 
 Wryonin’s tail swished and his eyes narrowed. “You want to risk your hide chasing some dumb heirloom?”
 
@@ -560,7 +564,7 @@ Wryonin’s tail swished and his eyes narrowed. “You want to risk your hide ch
 
 “They hurt Ersie, I’m going with you.”
 
-“If I hit you, it’s your own fault.”
+“If I hit you, it’s your own damnfault.”
 
 “Deal. Ersie, drums?”
 
@@ -574,7 +578,7 @@ When Ersie and Lemilay got to the beach, multiple cats were laying scattered and
 
 Mudrich was swinging her hammer left and right, keeping the cats at bay. She was moving at normal speed, apparently she had gone out of the range of the drums.
 
-*PLOK!* Another cat were dropped to the ground.
+*PLOK!* Another cat was dropped to the ground.
 
 Lemilay emerged from the woods, bald spot active. “There! They’re getting on the boat!” She pointed.
 
@@ -586,7 +590,7 @@ Lemilay emerged from the woods, bald spot active. “There! They’re getting on
 
 Ersie sped up the drums, increasing Mudrich’s swing rate.
 
-Mudrich stepped forward, mowing down several cats at once. The remaining cats all backed up, scrambling to get on the boat. The boat had already left, leaving the cats stranded on the shore.
+Mudrich stepped forward, mowing down several cats at once. The remaining cats all backed up, scrambling to get on the boat. But the boat had already left, leaving the cats stranded on the shore.
 
 Mudrich made short work of the stranded cats. Her muddy fur coat was now also covered in blood and bits of hair.
 
@@ -632,9 +636,9 @@ The voices of her siblings faded into the background as Ersatzica tightened the 
 
 “I’m going to get the telescope!”
 
-*AWOOOOO!*
+*AWOOOOO!* (Here!)
 
-The drums helped her float, and she paddled herself across the river, but slowly. The current pulled her along, and she floated out of view of her siblings.
+The drums helped her float, and she paddled herself across the river, but slowly. The current pulled her along, faster than she anticipated, and she floated out of view of her siblings.
 
 She was almost half way across the river when she heard the sound of the waterfall ahead. She thought she had enough room and enough time to cross, but she didn’t. She would only get about three-quarters of the way there when she would go over the waterfall.
 
@@ -646,21 +650,23 @@ Ersie reached over to grab it, and got a hold of it.
 
 The rope pulled taut, pulling Ersie toward the shore. The cat shore.
 
-She looked up. The rope went straight up towards a rock outcropping, where it vanished. It must have just been a trick of the sunlight, causing it to not be visible.
+She looked up. The rope went straight up towards a rock outcropping, where it vanished. It must have just been a trick of the sunlight, causing it not to be visible.
 
 Ersie was pulled ashore.
 
 “Hey there, are you ok?” A black and white cat reached out a hand.
 
-She scrambled to her feet. She growled at the cat, and ran off. She looked behind her. There was no cat there. She stopped and looked again. The cat she had saw just a moment ago was no longer there. She shivered as she continued.
+She scrambled to her feet. She growled at the cat, and ran off. She looked behind her. There was no cat there. She stopped and looked again. The cat she had seen just a moment ago was no longer there. She shivered as she continued.
+
+*Was I seeing things? Or… was that a ghost?*
 
 She very easily found the boat. The cat that escaped laid on the ground, clutching the telescope with its clawed hands. She pulled hard, hard enough to get the telescope back.
 
-The telescope was metal: blue paint with gold trim. It had three telescoping sections that allowed for a lot of adjustments. It was still in good condition. It didn’t seem to get scraped up much from all the commotion. The lenses were still intact, and none of the paint was chipped.
+The telescope was metal: blue paint with gold trim. It had three telescoping sections that allowed for a lot of adjustments. It was still in good condition; it didn’t seem to get scraped up much from all the commotion. The lenses were still intact, and none of the paint was chipped.
 
 *AWOOOOO!* (“Here!”)
 
-Ersatzica looked up, and across the river. Lemilay was waving her arms at her. Ersatzica waved back. She hopped into the boat and paddled across. This time, she made it to the other side very easily without worrying about the waterfall.
+Ersatzica looked up, and across the river, Lemilay was waving at her. Ersatzica waved back. She hopped into the boat and paddled across. This time, she made it to the other side very easily without worrying about the waterfall.
 
 “Give me that.” Lemilay swiped the telescope from Ersatzica’s hands.
 
@@ -676,7 +682,7 @@ Ersatzica rolled her eyes.
 
 Lemilay sighed. She flashed her bald spot for a moment. “It appears not.”
 
-Ersatzica froze.
+Ersatzica froze. *If even Lemilay couldn’t see it, was it ever really there? But if it wasn’t there, how did I get across the river?*
 
 Mudrich waved her hand in front of Ersie. “Are you ok?”
 
