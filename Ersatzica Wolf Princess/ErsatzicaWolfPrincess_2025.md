@@ -2,6 +2,8 @@
 
 by shieldgenerator7
 
+The cat kingdom is about to invade and the chielfling of the wolf village suddenly transforms into a cat, now she must choose between staying loyal to her wolf pack or accepting her new identity.
+
 # Prologue
 
 [cats come and raid wolf village on the night of ersatzica’s birth]
