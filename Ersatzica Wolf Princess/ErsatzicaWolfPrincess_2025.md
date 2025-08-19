@@ -4789,3 +4789,55 @@ BOUNTY PLACED – QUIVESTER – [AMOUNT] – CLAIMED – [DATE]
 [make this relate to fishers hat somehow, or have it give them the idea to also turn fisher into a wolf]
 
 [maybe about telling a story about himself]
+
+[rewrite this]
+
+“Anyway, the cat army is invading soon.” Fisher said.
+
+“It’s been coming for a while.” Ersatzica nodded.
+
+“No, I mean really soon. Like within the next week.”
+
+“They won’t get past our defenses.”
+
+“It’s a whole army, Ersie. They outnumber your village 100 to 1.”
+
+“They need my help.”
+
+“Yes.”
+
+“Wait, why are you telling me this?”
+
+“You should run. Or stay away. Or they’ll kill you all. They want to wipe out the entire village. Like you wiped out our outpost.” The way he said sounded like it was directed at her.
+
+“Oh, you saw that?”
+
+“I know you helped them wipe us out.”
+
+“I was just following orders.”
+
+“No, you were leading the pack. You played the drums of Retriyoan, and you ensured their victory.”
+
+“I… I didn’t mean to harm you, Fisher. I-I was going to warn you, but I didn’t know they were going to do this, and they sprang this on me, and I didn’t have time to warn you—”
+
+“Save it. You showed who you’re loyal to. And now, I’m showing you who I’m loyal to.”
+
+“But what about us?”
+
+“There is no ‘us’.”
+
+“But we kissed!”
+
+“You came onto me, I just went along with it so Majestra could get your wolf skin.”
+
+“You mean…”
+
+“Yes, and she’s pretending to be you right now.”
+
+Ersatzica’s mouth dropped in shock. “Was it ever real? Didn’t you ever have feelings for me?”
+
+“No, I—” Fisher’s fist clenched and he looked away. “Look, Ersie, it doesn’t matter. You have to go.”
+
+“I thought we were happy.” Ersie turned away and ran. She found a tree to sit under and buried her face in her knees, pouring tears over them.
+
+[Majestra interacting with muddy, or ersie coming back to wolf village]
