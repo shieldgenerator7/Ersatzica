@@ -4974,4 +4974,4 @@ Nephalie smiled. “Don’t let this happen again.”
 
 “It won’t.”
 
-Ersatzica latched the boots and opened the locket before she left.
+Ersatzica latched the boots and opened the locket before she left. *If queRen—the deer leader of Adavin—won’t turn me into a wolf, I’ll have to manage as a cat, somehow.*
