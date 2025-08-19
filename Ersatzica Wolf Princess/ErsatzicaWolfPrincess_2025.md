@@ -4841,3 +4841,133 @@ Ersatzica’s mouth dropped in shock. “Was it ever real? Didn’t you ever hav
 “I thought we were happy.” Ersie turned away and ran. She found a tree to sit under and buried her face in her knees, pouring tears over them.
 
 [Majestra interacting with muddy, or ersie coming back to wolf village]
+
+[this scene might come before or in place of a previous scene]
+
+Ersatzica dug up the boots and unwrapped them. “I’m here”
+
+The blue glimmer in the boots hugged her back.
+
+She put them on and latched them. “You’re Pantrinome, right?” She said silently.
+
+The boots flashed blue.
+
+“It’s good to meet you. I’ve learned a lot about you.”
+
+Ersatzica opened the locket to turn invisible. She walked normally to the cave entrance where the cats were hiding. “Great Uncle Yotleph, please extend your invisibility protection to whoever I hold.” I’m going to kidnap Fisher if Auntie Seamstress won’t let him go with me.
+
+But when she got to the entrance, she heard them talking.
+
+“I just got word from a messenger,” Fisher said, out of breath from running. “The beavers are building a damn for us.” He panted a bit.
+
+“And?” Auntie Seamstress asked.
+
+“They’re planning on drying up the river. When the river stops running, the army will arrive.”
+
+“How many days away is the army?”
+
+”About 5.”
+
+I always knew they were coming, but this soon? I have to warn the others! I thought the river would hold them back, but with this news, I’m not sure if we can hold them off long enough to survive. Ersatzica ran to the river. But how am I going to tell them as a cat? I’ll have to find the deer village by myself. Or, maybe Nephalie knows where the deer village is?
+
+With the help of Nosalen’s foot, she easily crossed the river on an ice bridge. The boots slipped a little on the ice, but it wasn’t anything she couldn’t handle.
+
+Invisible and quiet, she snook into the wolf village. She searched around for Nephalie. She found her fixing a building by herself.
+
+Unlatching the boots, she whispered, “Nephalie!”
+
+“What? Who’s there?” Nephalie looked up from her task.
+
+Ersatzica closed the locket to reveal herself. “Don’t scream, it’s me, Ersatzica.”
+
+“So you are a cat?”
+
+“…it’s complicated.”
+
+“When is it not?” She went back to fixing the building.
+
+“And that’s why I need your help.”
+
+“I can’t turn you into a wolf, Ersatzica.”
+
+“I understand. But I’m hoping that kay... kay-raneario?”
+
+“queRenari-Ko?”
+
+“Yeah, her! I’m hoping she can. You know her?”
+
+“Yeah we visit Adavin every year. But she won’t turn you into a wolf just because you want her to.”
+
+“What if I need her to?”
+
+“Do you?”
+
+“Yes, of course.”
+
+“Hand me that brick.” She pointed to a brick well within her reach.
+
+Ersatzica obliged, putting it down where Nephalie gestured her to. “So, can you help me get there?”
+
+Nephalie finished up her task. “Here, take this.” She gave Ersatzica the hoof clipping from the job. Dusting off her hoof hands, she thought out loud, “I’m really don’t want to, but I suppose I can help.”
+
+“Oh thank you, Nephalie!”
+
+“Don’t get too excited, this counts as your request for the week.”
+
+“I understand.”
+
+“Follow me.” Nephalie led (invisible) Ersatzica to the deer barracks. There was no one there at the moment. It was structured much like the wolf barracks, but some space had been carved out for a pedestal on which sat a pair of decorated antlers. They were attached to together at the base, and curved around an imaginary lens to form something one could look through.
+
+“Is this the shrine to your god?”
+
+“Goddess.” Nephalie corrected. “But no, this is the Antlers of Truth, a sacred heirloom that helps us remember who we are. Or at least, a copy of it.”
+
+“Does it lead the way to Adavin?”
+
+“No, but it does something important.” She lifted it and held it like a magnifying glass over Ersatzica. “You see, queRenari-Ko, the leader of Adavin, will only transform those who need to it become their true self.”
+
+“And my true self is a wolf. So she’ll help me, right?”
+
+Nephalie looked through the antlers at her own arm. “Hmmm.” She gave the antlers to Ersatzica. “Careful with these now, but look at the pedestal.”
+
+Ersatzica looked at the pedestal with her own eyes. It was basically a stretched piece of rock, as if the stone tiles that made up the floor were goo that had been stretched up into a new shape and then left to dry. Then she looked at the pedestal through the antlers. The pedestal wasn’t there at all, just the stone tiles that had made it up.
+
+“You see?”
+
+“It shows what would happen if you broke the hoof clippings.”
+
+“No you stupid mutt.” Nephalie grabbed the antlers from Ersatzica and forced her to look through it. “It shows the true version of that thing. And yes, it shows what’s there after we break the lie on it, but it’s more than that.”
+
+“It can me my true self.”
+
+“Yes. And look.” Nephalie turned it on Ersatzica.
+
+Through the antlers, Ersatzica saw her arms, and her legs. They looked exactly like they did without the antlers. “But wait, that can’t be right.”
+
+“It is, Ersatzica.”
+
+“Let me see my face. How can I use it to see my face?”
+
+“Do you expect it to be any different for your face?”
+
+“I need to know.”
+
+“Here.” Nephalie took her to a window, where she stretched a brick to cover up the outside, letting the inside reflect like a mirror.
+
+Ersatzica held the antlers of truth up to the makeshift mirror, eyes closed. When I open my eyes, it’ll show me a wolf. It’ll show me a wolf. I’m a wolf. She opened her eyes. The shocked yet jubilant expression of an orange feline greeted her. Her red hair flowed over her green eyes, around her white muzzle, and down to her orange-striped shoulders. “I’m a cat.” She smiled. She stared at her reflection through the antlers.
+
+Why am I so happy to see this? Did I want to be a cat? Have I always wanted this?
+
+“You happy now?” Nephalie interrupted.
+
+Ersatzica took a deep breath and handed back the antlers. “I’m… conflicted.”
+
+“Well, wolf or cat, it doesn’t matter to me. You’re still a pain in my tail.” She put the antlers back on the pedestal.
+
+“Thank you, Nephalie.” Ersatzica hugged her. “For your help.”
+
+Nephalie smiled. “Don’t let this happen again.”
+
+“It won’t.”
+
+Ersatzica latched the boots and opened the locket before she left.
