@@ -4960,7 +4960,7 @@ Through the antlers, Ersatzica saw her arms, and her legs. They looked exactly l
 
 Ersatzica held the antlers of truth up to the makeshift mirror, eyes closed. When I open my eyes, it’ll show me a wolf. It’ll show me a wolf. I’m a wolf. She opened her eyes. The shocked yet jubilant expression of an orange feline greeted her. Her red hair flowed over her green eyes, around her white muzzle, and down to her orange-striped shoulders. “I’m a cat.” She smiled. She stared at her reflection through the antlers.
 
-Why am I so happy to see this? Did I want to be a cat? Have I always wanted this?
+*I’m… a cat. I can’t believe it. But then, why am I surprised? Mother told me I was. So it makes sense that I would be. But why… Why am I so happy to see this? Did I want to be a cat? Have I always wanted this? Well, no… but this? This feels like* me*. But if I’m a cat, how do I stay loyal to my wolf pack?*
 
 “You happy now?” Nephalie interrupted.
 
