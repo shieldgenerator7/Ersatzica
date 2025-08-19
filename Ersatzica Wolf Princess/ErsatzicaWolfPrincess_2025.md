@@ -16,7 +16,7 @@ Ersatzica found it easy to forget about the impending cat invasion while working
 
 Her workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for one more project.
 
-She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of half an hour, making the belt as good as new.
+She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of half an hour. Wiping the sweat off her brow, she admired her handiwork.
 
 Her brother wasn’t here to test it out, so she herself tried it on. She dug her paw hands into the bag of rocks and easily pulled one out. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
 
@@ -34,13 +34,13 @@ The door burst open, releasing a short, all-white wolf girl. She ran up to Ersie
 
 “Calm down, Muddy.” Ersie pushed her back. “It’s right here.” From a barrel, she pulled out a metal hammer that was about as big as the white wolf girl was.
 
-Muddy grabbed it and swung it. “This feels great!” She hit the door, knocking the locking mechanism askew.
+Muddy’s fingers wiggled as she grabbed it. “This feels great!” Despite her small stature, she lifted the hammer with the heft of someone who moves dirt all day—because she does. She carelessly swung the hammer around, hitting the door and knocking the locking mechanism askew.
 
 “Not in here!”
 
 “Oh, right. Sorry, Ersie.”
 
-“Now, you need to take better care of it. I managed to scrape off all the rust spots, and I added a coat of sealant to make it water resistant, but you have to keep it indoors.”
+“Now, you need to take better care of it. I managed to scrape off all the rust spots, and I added a coat of sealant to make it water resistant, but you have to store it indoors.”
 
 “But then how will I know where I left off with my tunnel progress?”
 
@@ -52,9 +52,9 @@ Muddy grabbed it and swung it. “This feels great!” She hit the door, knockin
 
 “Thanks so much, Ersie!” Muddy gave Ersie a big squeezer hug.
 
-“No problem, Muddy.” Ersie tapped her.
+“No problem, Muddy.”
 
-Muddy let her go. “Do you want to come help me with a new hole?”
+“Do you want to come help me with a new hole?”
 
 “Not today, Muddy. I got stuff to do.”
 
@@ -134,7 +134,7 @@ She pressed on, taking the belt off and preparing to detach the drums again.
 
 “Ersie! Help!” Mudrich burst through the door.
 
-“What’s wrong, Muddy?”
+“What’s wrong, Muddy?” Ersie sighed.
 
 “My stake is broken!”
 
@@ -172,7 +172,7 @@ Muddie looked up from picking through the bone pile. “Where you going?”
 
 “Just eat on the way. Come on!”
 
-Ersie followed Muddie to the river, eating her rations as she went. She finished well before they walked down the cliff stairs, through the forest, and to the river. She left a trail of bones as she went.
+Ersie followed Muddie to the river, eating her rations along the way. She finished well before they walked down the cliff stairs, through the forest, and to the river. She left a trail of bones as she went.
 
 “So why the river?”
 
@@ -320,7 +320,7 @@ Mudrich shook all the loose mud off of her, splashing it all over Ersie and the 
 
 They tried the drums out on Mudrich’s hammer, finding that she can swing faster while under the influence of the drums. They tried other things, finding that it sped up Mudrich as long as she was synced to the beat first.
 
-Ersie tried to get the same effect, but no matter what she did, she couldn’t get it to work.
+Ersie tried to get the same effect, but no matter what she did, she couldn’t get it to work. Ersie growled at the drums.
 
 Mudrich shrugged. “Maybe you’re just bad. I’ve got the beat, and you don’t.”
 
@@ -482,13 +482,9 @@ The cats surrounded Ersatzica, and grabbed her by the arms.
 
 She shifted so the drums fell a bit behind her, and she beat the drums with her tail.
 
-The cat grabbing her left hand launched forward, letting go of her, and splatting against a nearby tree.
+A blur of white came out of nowhere, striking the cat holding Ersatzica and launching it forward and splatting against a nearby tree.
 
-[make it clearer that mudrich is doing this, not the drums]
-
-“What in the name of Teal—” That cat also got launched into a tree before he could finish what he was saying.
-
-A blur of white came out of nowhere and splatted a cat against a tree.
+“What in the name of Teal—” said a cat who also got punted into a tree by the white blur.
 
 Ersie just kept beating the drums.
 
@@ -496,9 +492,9 @@ Ersie just kept beating the drums.
 
 Ersie stopped playing the drums.
 
-“Whoa-oh!” Mudrich appeared, face flat on the ground. She got up on all fours to Ersie. “Are you ok?”
+“Whoa-oh!” The white blur materialized into Mudrich, who appeared face flat on the ground. She got up on all fours and said, “Are you ok?”
 
-Ersie let out her breath. “Muddie!”
+Ersie gave her sister a big hug. “Muddie!”
 
 “I heard your drums. Did they hurt you?”
 
@@ -550,7 +546,7 @@ Lemilay’s bald spot glowed and her eyes rolled back for a moment. “The cats 
 
 “Well, that sucks, but we can’t go after it tonight.”
 
-“Think about what that *means*, Wryonin. The cats are going to have access to a powerful heirloom that lets them see through walls. *See through walls!* Imagine how much *intel* they could gather with it. Imagine what kind of a *tactical* and *strategic* advantage that they could have against us with that.”
+“Think about what that *means*, Wryonin. The cats are going to have access to a powerful heirloom that lets them see through walls. *See through walls!* Imagine how much *intel* they could gather with it. Imagine the *tactical* and *strategic* advantage that would give them.”
 
 Wryonin’s tail swished and his eyes narrowed. “You want to risk your hide chasing some dumb heirloom?”
 
@@ -562,7 +558,7 @@ Wryonin’s tail swished and his eyes narrowed. “You want to risk your hide ch
 
 “No way!” Mudrich started dancing. “I’m going with you.”
 
-“Mudrich, quit playing around.”
+“Mudrich, quit playing around.” Wryonin’s ear twitched.
 
 “They hurt Ersie, I’m going with you.”
 
@@ -572,15 +568,15 @@ Wryonin’s tail swished and his eyes narrowed. “You want to risk your hide ch
 
 Ersie scrambled to her feet. She beat the drums as she marched forward. *BUM BUM BUM*
 
-Mudrich showed Wryonin how to sync with the drums, and then Ersie played faster. Mudrich and Wryonin ran off ahead.
+Mudrich showed Wryonin how to sync with the drums. He stiffly jogged in place to sync to it, much less fun than Mudrich’s jig. When both were synced, Ersie played faster. Mudrich and Wryonin ran off ahead.
 
-Ersie ran as fast as she could without tearing her scar. She heard a lot of commotion ahead that she couldn’t see. Lemilay ran behind her, pushing her pace.
+Ersie ran as fast as she could without tearing her scar. She held her belly with one hand as she beat a drum with the other. She heard a lot of commotion ahead that she couldn’t see. Lemilay ran behind her, pushing her pace.
 
-When Ersie and Lemilay got to the beach, multiple cats were laying scattered and bloodied on the beach. Several more were up and about, fighting off Mudrich.
+When Ersie and Lemilay got to the beach, multiple cats were laying scattered and bloodied on the beach. The delicious taste of iron and the putrid smell of guts clashed in a battle almost as epic as Mudrich’s battle with the cats, who were struggling to fight off Mudrich.
 
-Mudrich was swinging her hammer left and right, keeping the cats at bay. She was moving at normal speed, apparently she had gone out of the range of the drums.
+Mudrich swung her hammer left and right, keeping the cats at bay. She was moving at normal speed, apparently having left the range of the drums.
 
-*PLOK!* Another cat was dropped to the ground.
+*PLOK!* Another cat was dropped to the ground, this one by Wryonin’s slingshot.
 
 Lemilay emerged from the woods, bald spot active. “There! They’re getting on the boat!” She pointed.
 
@@ -590,7 +586,7 @@ Lemilay emerged from the woods, bald spot active. “There! They’re getting on
 
 “Got it!”
 
-Ersie sped up the drums, increasing Mudrich’s swing rate.
+Like adjusting a knob, Ersie turned up the speed, increasing Mudrich’s swing rate.
 
 Mudrich stepped forward, mowing down several cats at once. The remaining cats all backed up, scrambling to get on the boat. But the boat had already left, leaving the cats stranded on the shore.
 
@@ -608,7 +604,7 @@ Mudrich made short work of the stranded cats. Her muddy fur coat was now also co
 
 “Wryonin?”
 
-“Quiet.” Wryonin closed his eyes, raised his slingshot, and let loose a rock. It sailed across the river, landing squarely on the back of the cat’s head. The cat dropped to the ground, tripping over the edge of the boat. “There.”
+“Quiet.” At his command, the world went silent. Lemilay shut up, Ersatzica paused, and even Mudrich stopped digging for a moment. Wryonin closed his eyes, raised his slingshot, and let loose a rock. It sailed across the river, landing squarely on the back of the cat’s head. The cat dropped to the ground, tripping over the edge of the boat. “There.”
 
 Lemilay tapped her foot. “So?”
 
@@ -632,7 +628,7 @@ Lemilay looked at Ersatzica, then rolled her eyes. She growled and stomped her f
 
 “But we *need* to get it *tonight*!”
 
-The voices of her siblings faded into the background as Ersatzica tightened the straps on the drums. *Just doggy paddle, just doggy paddle. There’s no shame in not being the best swimmer.* She gave herself a running start, jumping feet-first into the river with a splash.
+The voices of her siblings faded into the background as Ersatzica tightened the straps on the drums. *Just doggy paddle, just doggy paddle. There’s no shame in not being the best swimmer.* She closed her eyes and howled to the moon. *AWOOOO!* (“Alpha”) *Alpha, please guide me in what I’m about to do.* She gave herself a running start, jumping feet-first into the river with a splash.
 
 “Ersatzica!” Wryonin yelled. “What are you doing?”
 
@@ -642,29 +638,37 @@ The voices of her siblings faded into the background as Ersatzica tightened the 
 
 The drums helped her float, and she paddled herself across the river, but slowly. The current pulled her along, faster than she anticipated, and she floated out of view of her siblings.
 
-She was almost half way across the river when she heard the sound of the waterfall ahead. She thought she had enough room and enough time to cross, but she didn’t. She would only get about three-quarters of the way there when she would go over the waterfall.
+*Just doggy paddle, just doggy paddle…*
+
+She was almost half way across the river when she heard the sound of the waterfall ahead. Its roar deafened her and clouded her thoughts. She thought she had enough room and enough time to cross, but she didn’t. She would only get about three-quarters of the way across when she would go over the waterfall.
 
 She panicked. She beat the drums. But they didn’t speed her up.
 
-A rock splashed into the ground next to her. A rope attached to it pulled it back up. It splashed down again.
+A rock splashed into the water next to her. A rope attached to it pulled it back up. It splashed down again.
 
-Ersie reached over to grab it, and got a hold of it.
+Ersie reached over to grab it, gripping it like her life depended on it.
 
 The rope pulled taut, pulling Ersie toward the shore. The cat shore.
 
 She looked up. The rope went straight up towards a rock outcropping, where it vanished. It must have just been a trick of the sunlight, causing it not to be visible.
 
-Ersie was pulled ashore.
+Ersie was pulled ashore. She crawled up onto the bank, digging her claws into the dirt.
 
-“Hey there, are you ok?” A black and white cat reached out a hand.
+“Hey there, are you ok?” A black and white hand reached out.
 
-She scrambled to her feet. She growled at the cat, and ran off. She looked behind her. There was no cat there. She stopped and looked again. The cat she had seen just a moment ago was no longer there. She shivered as she continued.
+She accepted it and let it lift her to her feet. Standing upright again, she stood face to face with a cat!
+
+She growled at the cat and jumped back. As soon as she did, the cat disappeared. Just vanished. There was no cat there. She looked around for tracks, but didn’t see any. The cat she had seen just a moment ago was no longer there. A shiver spiked up her spine, making her fur stand on end.
 
 *Was I seeing things? Or… was that a ghost?*
 
-She very easily found the boat. The cat that escaped laid on the ground, clutching the telescope with its clawed hands. She pulled hard, hard enough to get the telescope back.
+Walking along the shore, she very easily found the boat. The cat that escaped laid on the ground, head swimming in a pool of blood. It was still clutching the telescope with its clawed hands.
 
-The telescope was metal: blue paint with gold trim. It had three telescoping sections that allowed for a lot of adjustments. It was still in good condition; it didn’t seem to get scraped up much from all the commotion. The lenses were still intact, and none of the paint was chipped.
+Her ears pricked when she heard a noise coming from the forest. After a moment of silence, she swallowed and built up the determination to take the telescope. She pulled hard, hard enough to get the telescope back.
+
+The telescope was metal: blue paint with gold trim. It had three telescoping sections that allowed for a lot of adjustments. It was still in good condition; it didn’t seem to get scraped up much from all the commotion. The lenses were still intact, and none of the paint was chipped. The blue shimmer frowned at her. It was a captive who almost escaped.
+
+“I’m sorry. I know you want to be with the cats, but we need you—"
 
 *AWOOOOO!* (“Here!”)
 
