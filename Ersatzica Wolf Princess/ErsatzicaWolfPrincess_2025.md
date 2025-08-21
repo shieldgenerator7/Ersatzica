@@ -4975,3 +4975,307 @@ Nephalie smiled. “Don’t let this happen again.”
 “It won’t.”
 
 Ersatzica latched the boots and opened the locket before she left. *If queRen—the deer leader of Adavin—won’t turn me into a wolf, I’ll have to manage as a cat, somehow.*
+
+Stepping outside, Ersatzica spots Mudrich, nose to the ground, sniffing.
+
+Mudrich follows a scent for a while, closing in on Ersatzica.
+
+*She must be smelling my cat scent!*
+
+# Chapter 11
+
+“Ersie! There you are!” Mudrich exclaimed. She slapped the workshop door open.
+
+“Oh, it’s you again.” The black and white wolf turned around.
+
+“I’ve been looking all over for you, Ersie!” Mudrich hugged her.
+
+Ersie patted her on the back. “I’ve been here this whole time.”
+
+“Really? I checked here earlier and you weren’t here.”
+
+Ersie shrugged. “So what do you want?”
+
+“It broke again!” Mudrich put a dirty broken stake on the workbench. “I tried pounding it in with my fists this time, but it still broke.”
+
+“Ok.”
+
+“So, can you fix it?”
+
+“I’ll have it fixed by tomorrow.”
+
+“Thank you, Ersie.”
+
+“Uh huh.”
+
+“Is… everything ok?”
+
+“Yeah, why do you ask?”
+
+“You just seem… like not yourself lately.”
+
+“I’m fine, dirty. Now go away.”
+
+Ears back, head down, Mudrich left emptyhanded. She was stupid, afterall. Ersie didn’t outright say it, but there was something that she said Mudrich wouldn’t understand, and that she didn’t trust her enough to tell her about. And now, not only is Ersie not speaking to her, but she’s being mean. She was like letting a friend slip from your grasp, watching them fall off a cliff, and getting harassed by their ghost.
+
+Mudrich leaned on the wall overlooking the stairs. “Alpha, Wolf God of the Loyal Moon, if you’re listening, please guide me. Please help me say the right things and do the right things so that Ersie talks to me again. Awoo.”
+
+Mudrich rested her head on the wall, eyes slinking back and forth as they followed the wolves going up and down the stairs. Her eyes drooled on the bricks.
+
+“Muddie?” A voice said from behind her.
+
+“Ersie?” Muddie turned around, but no one was there. “Where’d you go?”
+
+“Meet me in the room where we found the boots.” The voice was as clear as day, as if someone was standing right in front of her.
+
+“Ersie?” Muddie looked around, but didn’t see anyone.
+
+A metal-on-metal clang.
+
+Muddie sucked in her tears, and nodded. She knew what she had to do. She rushed to the puddle with the hoof clipping, broke it open, and ran to the hidden room in their barracks. The room was dark.
+
+“Ersie?” Muddie stepped cautiously into the room.
+
+“I’m here.”
+
+“Where? I can’t see you. Let me get the light.”
+
+“No, stay.”
+
+“Ersie, I don’t like this. Why do we have to meet in the dark?”
+
+“It’s ok Muddy. You’ll see why.”
+
+“Ersie, it stinks in here.”
+
+“Oh right. Hold still.” An orange paw wrapped tape around Mudrich’s nose.
+
+“Ersie, is that you?”
+
+“Yes, Muddy.”
+
+“Can I see you?”
+
+“Not yet. There’s something I need to tell you.”
+
+“Anything.”
+
+“Last time I tried to tell you, I… wasn’t very… direct.”
+
+“Whatever it is, Ersie. I *promise* on *Alpha*, I’ll understand.”
+
+“I’m glad to hear you say that, Muddy, but I’m not convinced.”
+
+“Please just tell me what’s wrong, Ersie!”
+
+“Ok, but you have to promise me, that you won’t try to kill me, and you won’t even howl.”
+
+“What? Why would I—Of course I wouldn’t!”
+
+“Muddy, I…”
+
+A warm, fuzzy feeling knocked on Mudrich’s chest. She invited it in, and it made itself a cozy home in her heart. “No matter what you’re about to tell me, you’ll always be my sister.” The feeling gave her the words, and placed them at the tip of her tongue, but she hesitated.
+
+“You know how you gave me the wolfskin, and it turned me back into a wolf?”
+
+“Yes.”
+
+“And you know that the wolfskin can come off again?”
+
+“Mmm… I guess so.”
+
+“Well, it did. And… I lost it.”
+
+“Ersie, nooo….”
+
+“And, what’s more is, I don’t know where it is.”
+
+“So… you’re a wolf now without it?”
+
+“No, Muddy.”
+
+Muddy whimpered. “So can I see you?”
+
+“Muddy, I’m a cat. Do you really want to see me?”
+
+“Is there any way to fix it?”
+
+Ersie chuckled. “No, Muddy, in fact, there’s nothing to fix.”
+
+“Huh?”
+
+“I realize now, that you said that, that I’m a cat, and that’s ok. It’s not *that* important whether I’m a wolf or a cat. I’m still your sister, right?”
+
+The door opened.
+
+“Don’t sweat it, it’s an easy mistake to make.” Lemilay said as she entered the room. “Wait, Mudrich? What are you doing in there?”
+
+“I’m talking to Ersie.”
+
+A metal-on-metal clang.
+
+“But Ersatzica is right here.”
+
+“Yeah, I’m right here.” The black and white wolf said.
+
+“But if you’re Ersie, then who am I talking to?” Mudrich swatted around in the dark. “Ersie?”
+
+Some water droplets silently splashed on her legs.
+
+“Mudrich, get out of there.” Lemilay ordered.
+
+“Give me the light.” Mudrich grabbed the lantern and lit it. She shoved it into the room. There was nobody in there but her. Her, and the cat skeleton. “IT… WAS… A GHOST!” Mudrich screamed, nearly jumping out of her fur.
+
+“What are you on about… *Muddy*?” The black and white wolf said.
+
+“I was just talking to you, Ersie, just now, but you said you were a cat.”
+
+Ersie’s eyes widened. “You don’t know that.”
+
+“Was I just hearing things?”
+
+“Mudrich, why do you have tape on your nose?” Lemilay asked.
+
+“Because Ersie put it there to stop the smell of the room.” She took it off. “I know I saw you, Ersie, in here with me, but you were a cat.”
+
+“I don’t know what you saw, but it wasn’t me. As you can see, I’m clearly a wolf.”
+
+“What’s this? Who’s a wolf?” Wryonin asked, suddenly jumping into the room.
+
+“We all are.” Lemilay fake smiled.
+
+“Then why are we talking about it?”
+
+“No reason.”
+
+“Right.” Wryonin shut the door. He picked up the table in the center of the room and set it on end in front of the door, blocking it.
+
+“Wryonin, what are you doing?”
+
+“Taking a nap, what’s it look like?”
+
+“What an odd place for a nap.”
+
+“And what an odd place for a lie.”
+
+Lemilay gasped.
+
+“Mudrich,” Wryonin said. “Have you noticed Lemilay and Ersatzica acting strange?”
+
+“Ersie’s been acting strange ever since the boots.”
+
+“Anything in particular?”
+
+“She called me ‘dirty’ today, and other insults.”
+
+“Interesting. You know what else she did? She didn’t work on a single thing today. She just stood there in her workshop, staring at the wall. And then she snuck out at midday to snoop in Mother’s office.”
+
+“Ersatzica!” Lemilay put her hands on her hips. “How could you!”
+
+“I’m sorry. I was looking for info about… the boots. I didn’t know that area was off limits.”
+
+“And where are the boots? Where are the drums?”
+
+“In my workshop, of course.” Ersatzica looked away.
+
+“Well, I just came from your workshop, and they weren’t there. How come you don’t know where they are?”
+
+“Because they’re right here!” A voice from inside the room said. *BUM BUM BUM*. An orange red-tipped cat appeared in the room, wearing the boots, the drums, a locket, and the foot of Nosalen.
+
+The black and white wolf tried to get out the door, but Wryonin blocked her.
+
+“*I* am Ersatzica.” The orange cat said.
+
+“It’s a cat! Kill it!” The black and white wolf said.
+
+“No.” Lemilay said. She hung her head.
+
+“Why not?” Wryonin asked.
+
+“We should put her in the pit instead.”
+
+“Listen, listen to me.” The orange cat said. “I can prove I’m Ersatzica. Look, I’m wearing the drums, and the boots. I made them to fit me.”
+
+“You stole those from my workshop!” The black and white wolf said.
+
+“I can tell you exactly how I fixed them up, and what they do, and how they work.”
+
+“Those are the famous Drums of Retriyoan. Everyone knows how they work.”
+
+“And everyone knows what this is, and how it works.” The orange cat jiggled the wolf foot on her foot. “Tell me, whose is it and what does it do?”
+
+Lemilay put her mouth up the black and white wolf’s ear—
+
+“Shut up, Lemilay. Don’t tell her.” Wryonin said.
+
+“Nosalen’s foot, Freezes water.” Lemilay said aloud.
+
+“Lemilay!” Wryonin shouted.
+
+“This game doesn’t matter anyway. I’m Ersatzica.” The black and white wolf said. “Afterall, is your sister a cat or a wolf?”
+
+“A wolf.” Lemilay answered.
+
+“And I’m a wolf. And whoever that is, in there, that’s a cat. Clearly not your sister.”
+
+“Yeah, obviously.” Lemilay said. “Right, Mudrich?”
+
+“What do you think, Mudrich?” Wryonin asked.
+
+The warm feeling in Mudrich’s heart spoke up again. “It’s her. It’s her.” It said, as loud as it could. It placed the words directly on her tongue. “My sister is a wolf.” She said.
+
+The orange cat was taken aback.
+
+“Ok, well I guess that means we have to take care of the orange cat.” Wryonin said.
+
+“No wait!” The orange cat said. “I can prove I’m Ersatzica.” She split the fur on her stomach, to reveal a horizontal scar. “I have the scar! Look!”
+
+Mudrich’s ears perked. “That’s Ersie’s scar! That’s Ersie’s scar!”
+
+The black and white wolf gulped. She exchanged glances with Lemilay.
+
+Wryonin looked at the wolf expectantly. “So?”
+
+“Ok, you want to know the truth?” Lemilay said, defiantly.
+
+“Yes.” Wryonin said.
+
+“Well here it is. Ersatzica is a *cat*. And she has been all along. And this wolf here, is actually a *different* cat, who put on the wolfskin, and has been impersonating her for the last day or two.”
+
+“What are you saying?” Wryonin shook his head. “That’s insane.”
+
+“It’s hard to believe, isn’t it? Or would you rather believe that this here is Ersatzica—” she placed her hands on the white wolf’s shoulders. “—and that cat in there is an intruder, who we need to imprison.”
+
+Wryonin put a hand on his forehead.
+
+“Are we loyal to cats, Wryonin? Would a good wolf of loyalty side with the cat? Or with the wolf? Cat. Or. Wolf.”
+
+“…wolf.” Wryonin muttered.
+
+“Hmmph.” Lemilay smiled, head held high.
+
+Wryonin put the table back in the center of the room.
+
+“Mudrich?” Lemilay motioned to her sister.
+
+“It’s her! It’s her! It’s your sister!” The feeling in Mudrich’s heart was practically screaming at her. “I’m sorry, Ersie.” Mudrich said. She grabbed the orange cat and picked her up, carrying her in her arms.
+
+“Wryonin, lead the way to the pit. I don’t want any trouble.” Lemilay ordered.
+
+Wryonin grumbled, but helped with the escort.
+
+They walked through town, down the stairs, and into a cave. They put the orange cat in a jail cell with iron bars. Water flowed in from the wall and across the floor, puddling up a good portion of the stone floor. The lonely wind blew through the cell, sending the cat into shivers.
+
+“Are we all good now, Ersie?” Mudrich asked.
+
+“Yes, all is forgiven.” Ersie, the black and white wolf, said.
+
+As they were leaving, Mudrich looked back at the orange cat.
+
+She didn’t say anything. She just solemnly stared at Mudrich, as if she was shocked speechless. She reached an arm out, but had nothing to grab onto.
+
+“Forget about her.” Lemilay said. “She’s a cat, she deserves to rot in here.”
+
+“Ha. Ha.” Mudrich nervously chuckled. “Right.”
+
+“It’s her. It’s her.” The feeling in her heart continued. “Shhh. My sister is a wolf, and everything is just fine.” Mudrich said to herself.
