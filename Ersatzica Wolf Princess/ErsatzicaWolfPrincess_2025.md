@@ -5034,6 +5034,8 @@ A metal-on-metal clang.
 
 Muddie sucked in her tears, and nodded. She knew what she had to do. She rushed to the puddle with the hoof clipping, broke it open, and ran to the hidden room in their barracks. The room was dark.
 
+Music: <https://www.youtube.com/watch?v=dzNvk80XY9s>
+
 “Ersie?” Muddie stepped cautiously into the room.
 
 “I’m here.”
@@ -5103,6 +5105,8 @@ Muddy whimpered. “So can I see you?”
 Ersie chuckled. “No, Muddy, in fact, there’s nothing to fix.”
 
 “Huh?”
+
+[move this moment of realization to when ersie soul-searches in the jail]
 
 “I realize now, that you said that, that I’m a cat, and that’s ok. It’s not *that* important whether I’m a wolf or a cat. I’m still your sister, right?”
 
