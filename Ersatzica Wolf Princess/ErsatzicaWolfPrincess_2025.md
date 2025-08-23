@@ -5283,3 +5283,15 @@ She didn’t say anything. She just solemnly stared at Mudrich, as if she was sh
 “Ha. Ha.” Mudrich nervously chuckled. “Right.”
 
 “It’s her. It’s her.” The feeling in her heart continued. “Shhh. My sister is a wolf, and everything is just fine.” Mudrich said to herself.
+
+===
+
+Ersatzica reached out to Mudrich as she left. She wanted to scream, to yell, to cry out, “Don’t leave me!” but all that would escape her mouth was *meow*.
+
+She clung onto the iron bars holding her in the cell, as if they could somehow hug her in return.
+
+*All my siblings abandoned me. Lemilay, Wryonin, even Mudrich. They all hate me for what I am. If only I could be a wolf, then they would love me. Like they used to.*
+
+She found the latch on the boots, and flipped them ope and shut. Open and shut. It gave her a modicum of comfort.
+
+“I wish they would just accept me as I am. Accept me as a cat. Wait, am I really dsayting that? Am I finally admitting to myself that I’m a cat? *Ersatizca chuckled to herself.* I guess I am. It’s ironic, isn’t it? I get rejected by everyone I know and love, and that’s how I come to accept myself for what I truly am.
