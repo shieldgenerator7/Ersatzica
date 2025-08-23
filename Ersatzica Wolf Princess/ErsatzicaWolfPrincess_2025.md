@@ -5295,3 +5295,19 @@ She clung onto the iron bars holding her in the cell, as if they could somehow h
 She found the latch on the boots, and flipped them ope and shut. Open and shut. It gave her a modicum of comfort.
 
 “I wish they would just accept me as I am. Accept me as a cat. Wait, am I really dsayting that? Am I finally admitting to myself that I’m a cat? *Ersatizca chuckled to herself.* I guess I am. It’s ironic, isn’t it? I get rejected by everyone I know and love, and that’s how I come to accept myself for what I truly am.
+
+*Did I deserve this? I removed the spike from Wryonin’s slingshot against his wishes. I prioritized working on the drums instead of fixing Lemilay’s pillow. I took the boots back despite Mudrich telling me to leave them alone. I went to the cat outpost despite Mother telling me not to. I’ve been… disloyal. I broke all the promises I made. I strayed from Alpha’s guiding moonlight.*
+
+The water dripped from the hole in the wall. *Drip. Drip. Drip.*
+
+Ersatzica shivered. It was cold down here under the town.
+
+“I never should have trusted Fisher.” She bit her tongue. *Fisher is a good cat, and a good friend. I can’t blame him for what he did, or why he did it. I’m the one who destroyed his home, who almost killed him, who recklessly endangered his life. I betrayed him. It’s my fault.*
+
+Ersatzica took a deep breath. “So what now? What am I?” *Yes, I know I was born a cat, but I was raised a wolf. And assuming I can get the wolfskin back, I can still be a wolf. But I don’t know, it feels… different, now. Like I don’t deserve the wolfskin. Or maybe, that I don’t want it? “Is it something we can fix?” Mudrich said. No, Muddy, no it isn’t. Because I’m not broken. I’m just different. Funny how it took me getting put in jail to realize that.*
+
+She sat in a corner. “So what do I do now?” *In the heat of the moment, I forgot to tell them about the invasion plans. But I’m a cat now, and what happens to them no longer effects me.* Images of war flashed before her eyes, scenes of death and destruction, of her siblings skewered on spears and chopped to bits, of Mother’s skin draped like a trophy around Seamtrust’s shoulders. The thought brought a tear to her eye. “Mudrich…” she sobbed. “Wryonin, Mother, Lemilay…” *Well, one thing’s for certain: even though I’m no longer a wolf, I’m still loyal. I’ll do what I have to to save my family, and my village.*
+
+Ersatzica opened her mouth to howl, but all that escaped was a *meow*. “Oh right.” She looked around the cell for a way to escape.
+
+[Ersatzica uses heirlooms to escape jail]
