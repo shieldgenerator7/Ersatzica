@@ -5370,3 +5370,80 @@ Ersatzica stood in the cell, looking out into the cave hallway that she was now 
 
 Ersatzica shook her head out of it. *They need me, I have to help!*
 
+# Chapter 15
+
+She stepped out of the cell with one foot, then the other. She took a deep breath.
+
+She twisted the key to get it out, but it wouldn’t budge. Then the key snapped in her hand. She tried to grab the metal pieces, but they were trapped in the lock and the ice.
+
+*No no no! I need these pieces in order to put the boots back together!*
+
+She shoved her screwdriver in to chip away at the ice. Finally, the ice was gone, but the pieces were still stuck in the lock. She couldn’t turn the lock because the pieces didn’t have anything good to grab onto.
+
+She heard a commotion outside, a lot of yelling, and howling.
+
+She collected her things, tossing the miscellaneous pieces of the boots into the main part of the boots, all except the two pieces in the lock.
+
+*I’m sure I have some scraps that’ll work in my workshop.*
+
+She opened the locket and ran out of the cave and up the stairs. Getting up the stairs and through the town wasn’t so hard. All the wolves were focused on the incoming cat invasion, so no one was around to focus on an invisible cat. Along the way, she caught a glimpse of the cat army. It was massive, and stretched beyond where she could see, even from the top of the plateau.
+
+*What am I going to do? What I’ve done the last few times: play the drums.*
+
+But the drums had limited range, and only a few of the cats and wolves would be in range at any one time. Unless… they were louder.
+
+She reached her workshop and placed the boots on her worktable. Her workshop was in disarray, even more so than it usually was. *Majestra moved all my stuff!*
+
+“So, I have an idea. But, that requires me to take you apart, are you ok with that?”
+
+The blue streak in the boots bounced with excitement.
+
+“Oh! Thank you so much Mother!” She hugged them. “This’ll be amazing!”
+
+She took the boots apart and took off the mouth. She turned it inside out and wrapped it around her arm to measure, then pinched and stitched it so it fit. Then she sewed a latch onto it. The arm band fit on her arm. Check.
+
+Leaving the other latches unlatched, she latched the one on her new arm band. The world went silent. Check?
+
+“Mother, could you—” Ersie covered her ears. Her own voice was so loud, it hurt her own ears!
+
+Boots reversable? *Check!*
+
+Ersie tapped on the drums. It was super loud. Check. It hurt her ears. Uncheck. She pulled out some stuffing she used for Lemilay’s pillow and a roll of tape, taping it to her ears.
+
+“I hope this—” she flinched. *I hope this works.*
+
+She unlatched the armband. The world was flooded with howls and cries and screams, all louder and more constant than before. A chill crept up her spine, and she felt a dread she had only ever felt in nightmares. She latched the armband again, and the world was again at peace.
+
+Stepping outside, she noticed something odd: the town was practically deserted. Exploring around, she found that several chunks of the town were just… gone. Chunks of the ground that had been there for ages were crumbled away, and the buildings they supported were lying in ruins on the forest trees below.
+
+The wolf soldiers were fighting in the forest below, trying to keep the cats on their side of the river. But the river was gone. In its place was a dry bed of mud, that became the main location for the battle. The wolves tore through the cat soldiers, but every now and then, one would catch fire, and burn slowly, and die.
+
+Ersatzica found the sturdiest railing she could, and leaned up against it. She beat the drums.
+
+*BUUUUUUUUMMMMMMmmmmm….*
+
+She tensed. A sharp pain stung her ears. But the sound rang out, and the soldiers all looked up at her for a quick moment. It could work.
+
+*BUMMMM BUMMMM BUMMMM*
+
+Each beat brought an incredible pain to her ears, but she pressed on.
+
+*BUMMM BUMMM BUMMM*
+
+She could see the wolves swinging to the beat, knowing exactly what to do.
+
+*BUMM BUMM BUMM*
+
+*BUM BUM BUM*
+
+*BUM-BUM-BUM*
+
+She quickened the pace, and the wolves tore through the cats faster than before. Shockwaves shot from her ears down her spine. Her belly scar quivered.
+
+The wolves cut down so many cats, the river bed was now home to a river of red, with icebergs of flesh.
+
+One of the notable wolves swimming in the new river was a short, stocky wolf, with a hammer just about as big as she was. *Mudrich!*
+
+*BUM-BUM-BUM*
+
+Ersie focused on her sister, making sure she was keeping up to the beat.
