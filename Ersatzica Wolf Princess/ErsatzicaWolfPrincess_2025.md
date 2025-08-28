@@ -16,6 +16,8 @@ Ersatzica found it easy to forget about the impending cat invasion while working
 
 Her workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for one more project.
 
+[describe her screwdriver: flatblade, shaft has knife and saw, handle has file on one side, can be used as a chisel]
+
 She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of half an hour. Wiping the sweat off her brow, she admired her handiwork.
 
 Her brother wasn’t here to test it out, so she herself tried it on. She dug her paw hands into the bag of rocks and easily pulled one out. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
@@ -5267,6 +5269,8 @@ Wryonin put the table back in the center of the room.
 “Wryonin, lead the way to the pit. I don’t want any trouble.” Lemilay ordered.
 
 Wryonin grumbled, but helped with the escort.
+
+[mention the key to the cell being dropped in the mud]
 
 They walked through town, down the stairs, and into a cave. They put the orange cat in a jail cell with iron bars. Water flowed in from the wall and across the floor, puddling up a good portion of the stone floor. The lonely wind blew through the cell, sending the cat into shivers.
 
