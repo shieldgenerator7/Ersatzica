@@ -5310,4 +5310,63 @@ She sat in a corner. “So what do I do now?” *In the heat of the moment, I fo
 
 Ersatzica opened her mouth to howl, but all that escaped was a *meow*. “Oh right.” She looked around the cell for a way to escape.
 
-[Ersatzica uses heirlooms to escape jail]
+The lock was only accessible from the outside of the cell, but her arms were thin enough to slip through easily. Fisher had taught her the lockpicking trick with a cat’s claw, but she wasn’t very good at it, and she couldn’t get her claw in the right way from this side of the lock. Uncheck.
+
+She reached into her fur and produced her trusty screwdriver. It fit in the lock ok, but it wasn’t the right shape for it pick the lock. Uncheck.
+
+She had the boots, the drums, Nosalen’s foot, Yotleph’s tooth, and of course, her screwdriver. If only she had Roseblood’s Spear…
+
+She took off a boot and examined it, looking for any pieces that could be the right shape. *I don’t want to have to do this, but I can take the boots apart if needed.*
+
+Then she spotted something odd, just outside the bars. It was an indent in the mud, and it was shaped like a key. “Wryonin dropped the key!” Ersatzica exclaimed. Maybe she could take pieces from the boots, and reconstruct them in the shape of the key, using the indent as a guide.
+
+*drip, drip, drip*
+
+Or… she could just fill it in with the water!
+
+She cupped her hands to catch the water, but the drops came too slowly, and the water drained from her hands before the next drop came. At this rate, it would take hours to get the amount of water she needed.
+
+“What did the book say about the drums? That they can also control natural effects?”
+
+Ersatzica beat the drums every time a drop fell.
+
+*drip, BUM. drip, BUM.*  *drip, BUM.*
+
+Then she beat the drum a little faster.
+
+drip, BUM. drip, BUM. drip, BUM.
+
+drip, BUM. drip, BUM. drip, BUM.
+
+It worked! The drops fell faster with the beat of the drum. Now she just had to collect the water and transport it. She used the boots for that, placing them under the hole in the wall. She beat the drums faster and faster until the boots held enough water.
+
+She poured the water from the boots into the indent. Then she put Nosalen’s foot over it, and it froze instantly into a solid key. She pried the piece of ice out, and examined the result. A working key. Check.
+
+She put the ice key into the lock, and it fit nicely into it, but it wouldn’t turn. Uncheck.
+
+The lock was rather old and rusty, and it turned hard. If only she had some oil or grease.
+
+She turned the ice key harder, but it snapped off in the lock.
+
+*Maybe, if the ice had something solid in it, it would be stronger.* She held up her screwdriver to the boots. “I’m sorry, Pantrinome.” She paused. “Mother.” She sighed. “But I need to escape, and that means I need a piece of you.”
+
+The blue streak in the boots beamed with pride, welcoming the dismantling and accepting its sacrifice to help Ersatzica.
+
+Ersatzica hugged them. “But don’t worry, I’ll put you back together afterwards.”
+
+She unscrewed the bolts of the boots, and removed each piece carefully. She found a piece that was exactly like what she was looking for: an L-shaped piece. She found enough of them to fill in each tooth of the key. “Thank you, Mother.”
+
+She filled the indent half way and froze it, added the metal pieces, then poured and froze the rest of the water. A working, stronger key. Check.
+
+She put it in the lock and turned it. The key actually turned! Then, with a satisfying *CLINK!*, the lock unlocked.
+
+She pushed the door open. It creaked slowly, resisting her push. She leaned into it with all her weight, and finally popped it open.
+
+Ersatzica stood in the cell, looking out into the cave hallway that she was now free to walk into.
+
+*Would I be betraying their trust if I escaped? Shouldn’t I wait here, for them to decide to free me?*
+
+*AWOOOO!* (“Intruders!”)
+
+Ersatzica shook her head out of it. *They need me, I have to help!*
+
