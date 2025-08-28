@@ -5354,6 +5354,8 @@ The blue streak in the boots beamed with pride, welcoming the dismantling and ac
 
 Ersatzica hugged them. “But don’t worry, I’ll put you back together afterwards.”
 
+[make the boots dismantling more emotional by adding thoughts of her mother]
+
 She unscrewed the bolts of the boots, and removed each piece carefully. She found a piece that was exactly like what she was looking for: an L-shaped piece. She found enough of them to fill in each tooth of the key. “Thank you, Mother.”
 
 She filled the indent half way and froze it, added the metal pieces, then poured and froze the rest of the water. A working, stronger key. Check.
