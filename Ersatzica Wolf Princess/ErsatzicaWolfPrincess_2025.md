@@ -5508,6 +5508,8 @@ Ersatzica tried to dodge, but took it full force to the neck. She fell to the gr
 
 “Lemilay, please! I promise, I’m playing the drums for the wolves. They’re winning because of what I’m doing.”
 
+[lemilay is attacking her because she’s getting in the way of her plans, but ersie thinks its because shes a cat. Subtly hint that Lemilay is attacking her for a different reason than she thinks]
+
 “UU eye-ing KAT ummm. UU eet-ayyed us, n eye ILL KILL UU!” Lemilay swung down her hand onto Ersie’s back, preventing her from getting up. Then she put her muzzle close to her eye, and shout whispered, “AS IT TURNS OUT, YOU WERE NEVER MY SISTER.”
 
 *AWOOOO!* (gibberish)
