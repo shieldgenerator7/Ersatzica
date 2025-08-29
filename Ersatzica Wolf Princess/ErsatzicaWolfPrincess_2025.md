@@ -5398,7 +5398,15 @@ She opened the locket and ran out of the cave and up the stairs. Getting up the 
 
 But the drums had limited range, and only a few of the cats and wolves would be in range at any one time. Unless… they were louder.
 
-She reached her workshop and placed the boots on her worktable. Her workshop was in disarray, even more so than it usually was. *Majestra moved all my stuff!*
+She opened the door to the workshop. The scent of her former wolf body hung in the air. Familiar, yet strangely foreign. The first thing she noticed, other than the fact that all her stuff had been moved, was the wolfskin of Monassus draped over the stool. It gave her pause.
+
+[put in part where mother tells each sibling their responsibility when the invasion happens]
+
+*Mother told me that it was my responsibility to make sure the towns people were evacuated when the invasion happened. Now that I have the wolfskin, I could honor that responsibility.*
+
+She picked up the wolfskin. She stared into the holes where the eyes would have been. “Thank you, Monassus, for giving me this choice.” She hugged the wolfskin close. Then with a quick kiss on the forehead, she hung it up on a cabinet. “But I’m a cat, and I have a battle to fight.”
+
+She placed the boots on her worktable. Her workshop was in disarray, even more so than it usually was. *Majestra moved all my stuff!*
 
 “So, I have an idea. But, that requires me to take you apart, are you ok with that?”
 
@@ -5453,3 +5461,109 @@ One of the notable wolves swimming in the new river was a short, stocky wolf, wi
 *BUM-BUM-BUM*
 
 Ersie focused on her sister, making sure she was keeping up to the beat.
+
+Mudrich swung her hammer wildly, with inhuman speed. The hammer was a blur in front of her, and her arms were invisible. She rushed into the battle, mowing down cat after cat. It didn’t matter that the cat had a sword, hammer, or spear. It didn’t matter that the cat had a helmet and metal plating. As soon as Mudrich got close, they turned into a carcass standing in a new puddle of blood. It was like watching a watermelon smashing contest.
+
+The single was given to retreat. The cats ran away, many dropping their weapons on the ground. Ersatzica breathed a sigh of relief, and gave the drums one last beat before stopping it. She rested her hands, sore from the blunt force trauma they had just endured, and tried to feel her ears, which felt like they were going to explode.
+
+Mudrich’s muzzle raised in the motion only used to howl.
+
+*Oh no. Mudrich, don’t!*
+
+But Mudrich didn’t hear her. She charged in, leading several other wolves on all fours. Even without the drums, they ran faster. Even when crossing the muddy bloody river bed, they ran faster. Even with their weapons in their mouths, they ran faster.
+
+Mudrich and her wolves caught the cats in the back, slaughtering several in quick succession.
+
+The order was given to turn and attack.
+
+Ersie placed her hands on the drums and—
+
+*THWACK!*
+
+Ersie found herself hurling towards the ground. Thankfully, on this side of the railing. If her ears weren’t bleeding before, they sure were now.
+
+Towering above Ersatzica, was none other than Lemilay.
+
+Ersatzica unlatched the leg band so she could hear again. But the world stayed silent.
+
+Lemilay ‘s mouth moved, but no sound came out. The expression on her face said how angry she was.
+
+Ersatzica checked the locket, it was still open. She quickly took the leg band off, hoping she could hear again. She couldn’t.
+
+Lemilay struck her again, this time hitting her in the arm. She swung again, but hit absolutely nothing.
+
+“Lemilay, why are you doing this?” Ersatzica could barely even hear her own voice.
+
+“EEE-awwwz UUUU uuu-n EV-EEE-ING!” Lemilay’s yell was muffled and barely audible. But it was something.
+
+Ersatzica scrambled to her feet and dashed away, hiding in a corner.
+
+Lemilay looked around, but didn’t seem to see her. Then her eyes rolled into the back of her head and her bald spot glowed.
+
+Ersatzica’s breathing turned frantic. “I know I’m a cat, Lemilay!” Ersatzica shouted, if only just so she could hear herself. “But I’m doing this for the wolves!”
+
+Lemilay ran at her and swiped her with the side of her hand.
+
+Ersatzica tried to dodge, but took it full force to the neck. She fell to the ground, with the wind knocked out of her.
+
+“Lemilay, please! I promise, I’m playing the drums for the wolves. They’re winning because of what I’m doing.”
+
+“UU eye-ing KAT ummm. UU eet-ayyed us, n eye ILL KILL UU!” Lemilay swung down her hand onto Ersie’s back, preventing her from getting up. Then she put her muzzle close to her eye, and shout whispered, “AS IT TURNS OUT, YOU WERE NEVER MY SISTER.”
+
+*AWOOOO!* (gibberish)
+
+Ersatzica looked up. It was that strange black and white wolf again, who had one eye covered up, and several scratches all over his arms. And he held a sword. Not very confidently, but very determined. The fire in his eyes was unmistakable.
+
+“Leave that cat alone!” He ordered.
+
+“What are you doing here?” Lemilay said, placing a foot on Ersie’s back. “You’re supposed to be evacuating like the rest of the town.”
+
+“I’m here to save Ersie.”
+
+“Ersie’s not here.”
+
+“*That* is Ersie. Get off her.”
+
+“Run along, little wolf. This is a cat. And I’ll take care of it.”
+
+“That cat is *Ersie*, and you will not harm her.”
+
+“Fisher?”
+
+“Hi Ersie,” Fisher said. ‘”Don’t worry, I’ll get you out of this.”
+
+*THWACK!*
+
+In the moment he was distracted, Lemilay dashed to him and kicked him in the stomache, sending him hurling and dropping his sword.
+
+Fisher held his stomache, keeling over as he coughed up blood.
+
+“Fisher!”
+
+“Don’t worry, I’m fine. I’ve taken worse.”
+
+Lemilay stood over him, head held high. “Fisher? That sounds like a cat name.” Without bending down, she sniffed. “You’re a cat in a wolf’s skin.”
+
+“I’m a cat by choice. There’s nothing wrong with that.”
+
+“If you’re a wolf, prove it. Prove your loyalty. Obey my orders and run. Go help the other villagers who are evacuating.”
+
+“I won’t let you hurt Ersie.” He stood up, fists ready.
+
+“Fisher, she knows Pea-Fo! You don’t stand a chance!” Ersie cried.
+
+“We’ll see about tha—”
+
+Lemilay swiped at his face.
+
+He lifted an arm to block.
+
+She punched him in the belly.
+
+But he swatted it down with his hand.
+
+She finally lowered her gaze to look him in the eyes. He stared back into hers with a determined focus.
+
+Then he looked past Lemilay to Ersatzica. His eyes prodded her to move.
+
+Ersatzica scrambled to her feet and put the leg band back on. She latched it, winced, and beat the drums. She scanned the battlefield for Mudrich.
