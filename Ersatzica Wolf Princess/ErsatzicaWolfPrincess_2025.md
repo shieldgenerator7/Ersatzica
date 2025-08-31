@@ -5571,3 +5571,23 @@ She finally lowered her gaze to look him in the eyes. He stared back into hers w
 Then he looked past Lemilay to Ersatzica. His eyes prodded her to move.
 
 Ersatzica scrambled to her feet and put the leg band back on. She latched it, winced, and beat the drums. She scanned the battlefield for Mudrich.
+
+Mudrich was in the thick of the battle, fighting off cat after cat. She was surrounded on all sides by the enemy. Despite showing signs of wearing out, she was still giving it her all.
+
+Ersie beat the drums.
+
+*BUM. BUM. BUM.*
+
+But Mudrich seemed unable to sync to it, and every time Ersie sped up, Mudrich lagged behind.
+
+*Mudrich swung her hammer at a large cat. She had no beat. It blocked and scratched her arm up.*
+
+Ersie came back to the present. *If Muddy can’t sync to the beat, I’ll sync everyone else up instead.* She watched the cats around Muddy, and beat the drums every time they moved. Then she tested it out, speeding them up suddenly. Cats synced up to the drums. Check! Then she slowed down the beat. The cats slowed too. Check! She slowed the beat down to a crawl, increasing the duration between beats. It seemed that the pauses didn’t matter, as long as the next beat was coming, it slowed the cats.
+
+Mudrich easily wiped out the immobile targets. The cats swung like molasses, making their swings easy to dodge and punish with a swift hammer to the face.
+
+Ersie did her best to sync up the incoming waves of cats and slow them down, but it was a struggle. It wasn’t as easy as constantly speeding Muddy up. But it seemed to be working.
+
+As the fight wore on, more and more cats stepped up. Occasionally a wolf would fall, and then the wolf defense was that bit weaker. The cat forces, however, never seemed to flinch, despite losing comrades in droves.
+
+Muddy was across the river, in an area she hadn’t been in for very long. She didn’t have any tunnels over there to dive into for safety. And she was tiring out. Ersie could see it in the way she swung her hammer. She was overexerting herself and had severely overestimated her endurance.
