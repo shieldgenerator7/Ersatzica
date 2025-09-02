@@ -5591,3 +5591,79 @@ Ersie did her best to sync up the incoming waves of cats and slow them down, but
 As the fight wore on, more and more cats stepped up. Occasionally a wolf would fall, and then the wolf defense was that bit weaker. The cat forces, however, never seemed to flinch, despite losing comrades in droves.
 
 Muddy was across the river, in an area she hadn’t been in for very long. She didn’t have any tunnels over there to dive into for safety. And she was tiring out. Ersie could see it in the way she swung her hammer. She was overexerting herself and had severely overestimated her endurance.
+
+Suddenly, one of the cats next to Mudrich turned into a giant wolf, muscles bulging out, with a howl as loud as Ersie’s drums. It fought off the cats around Mudrich, and knocked her back to the wolf side, where other wolves could escort Mudrich away from the front lines.
+
+Ersie noticed Mother fighting in the chaos, beating up the cats with her Pea-Fo moves. Ersie synced to her moves, speeding her up.
+
+Mother seemed to move in slow motion, even with the drums boost. She moved in fluid ways, and some cats fell around her, as if being hit by an invisible force. Many cats died while charging up to her. Others hit the ground from just one punch, kick, or bite.
+
+*AWOOOO!* (“Home!”) Mother howled, despite being surrounded by cats. She ran back across the river and held her ground on her side. The other wolves followed her.
+
+Now the cats would have to come to them.
+
+*THWACK!*
+
+Ersie was on the ground again. Lemilay stood over her again.
+
+Ersie unlatched the leg band. She looked around, Fisher was lying on the floor, motionless. “Did you kill Fisher?”
+
+“He was a traitor, just like you. Do you have any idea what trouble you’ve caused for me?”
+
+“Me? I’m helping the—”
+
+“You’re sabotaging my plans! On purpose!” Lemilay stepped on Ersie’s belly scar, pinning her to the ground. “First it was pillow, then the spyglass, and now this!”
+
+“I don’t understand.”
+
+“Majestra and I had a plan. We surrender the wolf village, and in exchange, they make me the new chief of the village. But now, they might not take it, and it’s all your fault!”
+
+“You *want* them to take over?” Ersatzica’s mouth dropped. “Traitor!”
+
+“I’m not the traitor, *you* are. You mingled with the enemy and became one of them.” Lemilay held up Fisher’s sword. “But you won’t be ruining any more of my plans!”
+
+“Lemilay, I despise you!” Ersie growled, with grit in her voice.
+
+Lemilay held the sword above her head, ready to swing it down.
+
+It started as a slight burning smell. Smoke whisps snaked out of Lemilay’s chest fluff. Then the whole thing caught on fire.
+
+“Ah!” Lemilay screamed, she hopped around, patting her chest.
+
+Ersatzica took the opportunity to ensure the locket was open, roll away, get up, and run as fast as she could. She latched the leg band and turned it inside out. The world was loud and she was silent.
+
+Lemilay couldn’t follow her with sight or sound, and tracking by smell was not one of her skills. However, she could still find her with her Hindsight. Ersatzica wasn’t safe yet.
+
+[mention this item in previous chapter, or make this scene use the drums instead.]
+
+She ran to her workshop to get an item. It was a cursed set of cat armor she had picked up from the outpost. It had the effect of constraining the wearer’s movements to the point of being practically immobile.
+
+She grabbed it, and climbed up the side of a building. Lemilay would be here soon enough, and probably would know she had the armor. Ersatzica was banking on the possibility that Lemilay didn’t know what the armor did.
+
+Ersatzica waited on a roof top, and when Lemilay came by, she jumped down, and slipped the armor onto Lemilay. Then she punched her in the chest, hitting the armor.
+
+“What is this?” Lemilay growled. She tried to take the armor off.
+
+But Ersie hit her in the arm, preventing her from doing so.
+
+Lemilay struggled, but eventually succumbed to the armor, and stood still, unable to move, or even fall over. She wheezed out a breath from her agape mouth.
+
+“Sorry, Lemilay. But I have to do this.”
+
+Lemilay’s eyes followed Ersie as she left.
+
+Ersie returned to her position on the wall railing, and looked down at the battlefield below.
+
+Mudrich and Mother were fighting side by side, tearing through waves of cats.
+
+[describe the fence bc ersie doesn’t know what it is probably]
+
+Soon, the cats stopped coming. They waited on the other side of the shore. They brought something forward: a section of a white picket fence. They planted it in the ground on their side of the river.
+
+Then a big group of cats huddled around a cat with another fence piece just like it. They rushed to the wolf side, blowing right past Mother and Mudrich. None of them died to the invisible force around Mother. Then, the cat in the middle planted the fence.
+
+Even from up here, Ersie felt the seismic shift of the change. The bodies of the cats between the fence posts rose into the air and twisted into rectangular pieces which rose into the air and butted smoothly up against each other. These bloody bricks melded with the bricks made of dirt, forming an arch that arced over both fence pieces and across the river. It was wide enough for 2 cats to cross at a time. And cross they did.
+
+The cats that came first had heavy armor and giant shields. They walked across the bridge made of flesh and mud as if it was a normal walkway. When they got to the wolf side of the river, they spread out, claiming an area within their shields as cat territory. Then with their spears, they poked any wolf who dared to get close.
+
+Inside the claimed area, a tall old cat appeared out of a flame burst. He reached out with an open hand at a nearby wolf, snapped his fingers, and the wolf lit up in flames. Not just his chest floof like Lemilay had, but his entire body. Just poof! up in flames. He seemed to be the leader of the cat army.
