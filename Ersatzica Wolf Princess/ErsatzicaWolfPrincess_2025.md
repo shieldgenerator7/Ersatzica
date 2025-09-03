@@ -5667,3 +5667,55 @@ Even from up here, Ersie felt the seismic shift of the change. The bodies of the
 The cats that came first had heavy armor and giant shields. They walked across the bridge made of flesh and mud as if it was a normal walkway. When they got to the wolf side of the river, they spread out, claiming an area within their shields as cat territory. Then with their spears, they poked any wolf who dared to get close.
 
 Inside the claimed area, a tall old cat appeared out of a flame burst. He reached out with an open hand at a nearby wolf, snapped his fingers, and the wolf lit up in flames. Not just his chest floof like Lemilay had, but his entire body. Just poof! up in flames. He seemed to be the leader of the cat army.
+
+Mother growled aggressively at the tall cat, but focused on taking out his underlings.
+
+Mudrich howled and ran at the tall cat. Mother tried to stop her, but she couldn’t contain her. Mudrich leapt into the air over the shield cats and slammed her hammer down on the tall cat.
+
+The tall cat dodged to the side, twiddling his fingers as he stared Mudrich down. He wasn’t making any obvious big moves, so he couldn’t be forcibly synced to the drums.
+
+Muddy swung relentlessly at the tall cat, but he dodged everytime. Mother’s attempts to stop Mudrich failed.
+
+[state that ersie gets the spyglass from Lemilay above]
+
+Ersie focused the spyglass on the tall cat.
+
+The tall cat’s grin widened as he dodged. He was backing up into his army! Mudrich chased him, completely unaware of where she was being led: onto the bridge of flesh and mud.
+
+Mother fought her way towards the duel, but the shield cats passively blocked her attacks, and didn’t fight back. She was unable to get past their shields, and the invisible force killing cats around her didn’t vanquish the shield cats.
+
+Mudrich was cut off.
+
+But not out of options. Ignoring the shield cats, she leapt over the tall cat, plowing her hammer into the fleshy bricks behind him. She broke through the floor, splashing blood and meat everywhere underneath. She swung the hammer at the picket fence, splintering it into a thousand pieces. Then she dug out the small pieces stuck in the mud.
+
+The bridge immediately collapsed. The bricks of flesh and mud fell onto the river bed like rain. The cat soldiers fell into the squishy pile below, not suffering any injuries, but getting stuck in the corpses.
+
+Mudrich smiled deviously, having cornered the tall cat on this side of the river. She swung wildly at him, more herding him than attacking.
+
+He dodged in predictable ways, with predictable timing.
+
+Ersie beat the drums everytime he dodged, and forcibly synced him to the drums. Then, she slowed him down, until he was slow enough to get hit by Mudrich.
+
+Mudrich pulled back her hammer for a big slam.
+
+The shield cats keeping Mother at bay refocused to protected the tall cat.
+
+[make Wryonin more a part of this fight]
+
+But as soon as they did, Mother bit them in the back of the neck, wiping them out quickly. Some shots came in from Wryonin, knocking more shield cats out.
+
+Mudrich’s hammer strike struck true. Hitting the tall cat in the side, breaking his ribs, cracking his backbone, and splashing his insides all over the dead shield cats’ bodies.
+
+The tall cat let out a short-lived cackle as he collapsed to the ground. His one last act, was to snap his fingers, and light *himself* on fire.
+
+*AWOOOOO! AWOOOO! AWOOOO!*
+
+The wolves all joined in a celebratory howl. The cat soldiers froze in fear, and stopped advancing.
+
+Mudrich stood on the epauling of the tall cat. She held it up in victory, then slammed into the pile of ashes that was the tall cat.
+
+*BOOM!*
+
+A burst of flame and smoke erupted out of the ash pile. The epauling rose to the shoulder height of the tall cat, and the form of the tall cat took shape. He cackled.
+
+Mudrich stood in shock.
