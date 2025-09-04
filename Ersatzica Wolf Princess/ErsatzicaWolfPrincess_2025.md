@@ -5719,3 +5719,37 @@ Mudrich stood on the epauling of the tall cat. She held it up in victory, then s
 A burst of flame and smoke erupted out of the ash pile. The epauling rose to the shoulder height of the tall cat, and the form of the tall cat took shape. He cackled.
 
 Mudrich stood in shock.
+
+The tall cat seized his opportunity. He stared at Mudrich, and his thumb and index finger together. Mother noticed too late to intervene. Wryonin was still celebrating.
+
+With a snap, the tall cat lit Mudrich on fire.
+
+Flames erupted around Mudrich, causing her to yell and scream in pain. Then in an instant, the flames all went out.
+
+The tall cat snapped again and again, setting her on fire. And each time, the flames died out quickly.
+
+Apparently, all that mud caked all over her fur made her *very* fire resistant.
+
+Mudrich howled, and charged up a super hammer swing. The hammer hit the tall cat, sending him flying up against a tree. She charged in again, going for the kill.
+
+The tall cat snapped his fingers, lighting himself on fire. In an instant, he was a pile of ash on the ground.
+
+Mudrich’s hammer hit the tree, lodging itself in the trunk.
+
+The tall cat rose from the ashes again, completely unphased, but with the same burn marks across his face.
+
+He grabbed Mudrich’s hammer, digging his fingers into the blood and mud that covered it. The blood lit on fire as the hammer heated up.
+
+Mudrich yelped as she let go of the hammer. Both her hands had burn marks around the spot where they touched the hammer. Her ears pinned back as she growled in defiance.
+
+Mother leapt in front of Mudrich, cutting the tall cat off from her. She growled as she bared her claws.
+
+The tall cat smiled evilly. He spoke some words to Mother.
+
+Mother circled him, responding in kind.
+
+The tall cat’s eyes darted around, but not straying long enough to lose focus of Mother. His fingers stood at the ready, but he didn’t snap at all.
+
+“What are you doing Mother?” Ersatzica asked. “Kill him already!”
+
+Mother and the tall cat circled each other. The cats and wolves continued to fight.
