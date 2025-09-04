@@ -5712,6 +5712,8 @@ The tall cat let out a short-lived cackle as he collapsed to the ground. His one
 
 The wolves all joined in a celebratory howl. The cat soldiers froze in fear, and stopped advancing.
 
+[linger on this moment of victory a bit longer]
+
 Mudrich stood on the epauling of the tall cat. She held it up in victory, then slammed into the pile of ashes that was the tall cat.
 
 *BOOM!*
@@ -5740,9 +5742,15 @@ The tall cat rose from the ashes again, completely unphased, but with the same b
 
 He grabbed Mudrich’s hammer, digging his fingers into the blood and mud that covered it. The blood lit on fire as the hammer heated up.
 
+[chat gpt: maybe play up mudrich’s defiance in the face of losing a bit more?]
+
 Mudrich yelped as she let go of the hammer. Both her hands had burn marks around the spot where they touched the hammer. Her ears pinned back as she growled in defiance.
 
 Mother leapt in front of Mudrich, cutting the tall cat off from her. She growled as she bared her claws.
+
+[have mother tell muddy to tell the other wolves to cover themselves in mud]
+
+[have ersie learn to read lips earlier, so she can see what they’re saying]
 
 The tall cat smiled evilly. He spoke some words to Mother.
 
@@ -5750,6 +5758,10 @@ Mother circled him, responding in kind.
 
 The tall cat’s eyes darted around, but not straying long enough to lose focus of Mother. His fingers stood at the ready, but he didn’t snap at all.
 
+[have tall cat sneak in a snap to light wolf warriors on fire]
+
 “What are you doing Mother?” Ersatzica asked. “Kill him already!”
+
+[describe other cats trying to kill mother but failing bc invisible force, explain why tall cat isn’t being ganged up on by other wolves]
 
 Mother and the tall cat circled each other. The cats and wolves continued to fight.
