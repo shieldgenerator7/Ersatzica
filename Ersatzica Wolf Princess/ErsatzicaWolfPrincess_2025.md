@@ -5734,6 +5734,8 @@ Apparently, all that mud caked all over her fur made her *very* fire resistant.
 
 Mudrich howled, and charged up a super hammer swing. The hammer hit the tall cat, sending him flying up against a tree. She charged in again, going for the kill.
 
+[make it clear that only his body gets burnt, his clothes aren’t touched at all]
+
 The tall cat snapped his fingers, lighting himself on fire. In an instant, he was a pile of ash on the ground.
 
 Mudrich’s hammer hit the tree, lodging itself in the trunk.
@@ -5923,6 +5925,8 @@ The High One backed up. “Guards!”
 “Fleeting, I see, your loyalty.” The High One grimaced.
 
 “I was always doing this to replace you.” Majestra said. “This will just make it happen faster.”
+
+[chat gpt: make the berserk potion feel more like a desperation play]
 
 The shield cats surrounded the High One.
 
