@@ -5762,6 +5762,182 @@ The tall cat’s eyes darted around, but not straying long enough to lose focus 
 
 “What are you doing Mother?” Ersatzica asked. “Kill him already!”
 
-[describe other cats trying to kill mother but failing bc invisible force, explain why tall cat isn’t being ganged up on by other wolves]
+Mother and the tall cat circled each other. The cats and wolves continued to fight. The other wolves kept most of the cats off Mother, but the ones who got through magically dropped dead before they could reach her. Shield cats surrounded the tall cat, protecting him from getting flanked by other wolves.
 
-Mother and the tall cat circled each other. The cats and wolves continued to fight.
+Meanwhile, the cats crossed the bloody river of corpses. It didn’t matter that they got slaughtered while traversing or when they got to the other side, they just kept coming. Occasionally, a wolf would get hit by a spear or get lit on fire, and the wolf defense would weaken.
+
+*Mother can’t kill the tall cat. And their army outnumbers us. We’ll all die before we fend them off.*
+
+Ersatzica unlatched the leg band. She rushed over to where she had stashed Lemilay. “Lemilay!”
+
+“Mmmph!” Lemilay grunted, unable to move.
+
+“You said you had a plan?”
+
+“Mm-hmmph!”
+
+“Does that plan mean we survive?”
+
+Lemilay nodded with her eyes.
+
+“Ok, tell it to me.” Ersatzica taped Ordaent’s lock to the armor Lemilay was wearing. Then she helped Lemilay out of it.
+
+Lemilay elbowed Ersatzica, pushed her to the ground, and kneed her chest, claws bared. “Why should I?”
+
+“Mother can’t kill the cat leader. We need a non-combat option.”
+
+“How do I know you won’t ruin my plan this time?”
+
+Ersatzica searched around for a response. “Ok, I concede. I won’t try to go for the chief position anymore.”
+
+“And you’ll fully back me as the next chief? Even over Wryonin and Mudrich?”
+
+Ersatzica bit her tongue.
+
+“Promise?”
+
+“Alright, yes, ok.” Ersatzica huffed.
+
+“Ok.” Lemilay let up and helped Ersatzica to her feet. “I can stop this, but I need to find Majestra.”
+
+“That’ll be hard, because she has a tooth of Yotleph. But for you, it should be easy.”
+
+“I found you even while invisible because you made a lot of noise, and then I knew your general location. Tracking down Majestra’s location will take a lot of time.”
+
+“Use the spyglass.”
+
+“Even with that, it will take a lot of time.”
+
+“Wait! I know how to find her!” Ersatzica opened the locket and held the tooth within. She grabbed Lemilay’s hand so she could see her. “Great Uncle Yotleph, please help us find Majestra.”
+
+“What’s he going to do? He’s dead.”
+
+“He will grant us vision of others using his skull to be invisible.” Ersatzica took off the locket. She hesitated to give it to Lemilay. “I don’t feel I can trust you with this. But I don’t feel I have any other choice.”
+
+Lemilay grabbed it and put it on. “You know I’m never giving it back, right?”
+
+Ersatzica let go off Lemilay, and Lemilay turned invisible. “Just find Majestra and stop the fighting!” Ersatzica beat the drums. “Oh, and sync to the drums.”
+
+Ersatzica beat the drums, keeping in good faith that Lemilay was synced. After a while of running around the town, Ersatzica’s hand was grabbed, and both Lemilay and Majestra appeared. Majestra stood in all her glory: orange-striped fur, red-tipped tail, and flowing red hair tied up in a battle bun.
+
+“Majestra?” Ersatzica exclaimed.
+
+“It’s ‘Your Majesty’ to you.”
+
+Lemilay growled.
+
+“Fine. *Ersatzica*.” Majestra said.
+
+“We’ll go down the stairs and talk with the wolf and cat leaders.” Lemilay said. “You beat the drums to speed us up.”
+
+Ersatzica nodded.
+
+She escorted Lemilay and Majestra down to the battle, going through the prison cave to avoid confrontation.
+
+When they arrived at the scene, Mother and the tall cat were still locked in stalemate.
+
+Lemilay closed the locket and Majestra stowed her tooth necklace, becoming visible.
+
+“Play *Approach of the High One*.” Majestra told Ersatzica.
+
+“I don’t know that one.”
+
+“Then play a regular beat.”
+
+“Ok.” Ersatzica beat the drums at regular, steady intervals.
+
+*AWOOOOOO!* (“Here!”) Lemilay howled. *AWOOOO!* (“Hour!”)
+
+All eyes turned to them, even Mother’s and the tall cat’s.
+
+“We have fought long and hard, honorably and bravely,” Lemilay began. “But we must put our weapons down, relax our tired muscles, and welcome peace.”
+
+“We don’t need to take the village by force,” Majestra continued, “We will take it by peace.”
+
+“Brothers and sisters of Alpha, let us welcome our cat brothers and sisters of Ajig. Let us dine and bathe together in harmony. Let us—”
+
+“You are NOT the chief, Lemilay!” Mother growled. “Stand down!”
+
+“Mother, we can’t win this fight! But we can survive. Agree to a peace settlement.”
+
+“The High One doesn’t do peace settlements, do you?”
+
+The tall cat grinned. “As much fun as I’m having here, I will agree to a peace settlement. Under my conditions, of course.”
+
+“*I* will handle the negotiations,” Majestra said. “With the help of Lemilay-Ko, of course.”
+
+“Mother.” Lemilay pleaded.
+
+Mother growled. “I made a promise, Lemilay. To never let the cats in. I intend to keep my promise.”
+
+Some cats with spears tried to throw them at Mother, but they mysteriously fell before they could.
+
+“Mother, please.” Lemilay said.
+
+Mother scanned the countenances of the young ones. “But I will agree to a cease-fight. But under no circumstances will the High One or his followers be allowed in.”
+
+“That just won’t do.” The High One cooed. “Always in the way of my plans, you wolves.”
+
+“We ended your plans a long time ago, and we will do it again.”
+
+The High One laughed. “The march of progress cannot be ended, only delayed.”
+
+“Once we find a way to kill you, your—”
+
+“*YAWN!*” The High One mimed yawning. “My first stipulation is that you are replaced as the boss of the clog.”
+
+Mother growled.
+
+Lemilay stepped up. “I will replace her. Will you negotiate with me?”
+
+“A wolf who has hindsight. An actual worthy leader. Ajig’s jolly!”
+
+“Lemilay don’t you *dare* let him in!”
+
+“Mother, this needs to end.”
+
+“You don’t know what you’re doing. You don’t know what he’s done.”
+
+“But I know what he will do. He’ll spare our lives if we let him in. He’ll bring us infrastructure—”
+
+“Stand down Lemilay.”
+
+“Listen to your daughter, Awoomoon.” The High One said. “She’s very wise for one so young and naïve. Besides, you can’t kill me. What other options do you have?”
+
+“I know how to kill him.” Mudrich stood next to Mother, hands caked in mud.
+
+“You can’t possibly be serious.” Lemilay scoffed.
+
+“He’s wearing clothes. Get him naked, and he’ll be powerless.” Mudrich said, staring straight into The High One’s soul.
+
+“Ha!” The High One chuckled nervously. “I’m afraid my weakness is merely an illusion—”
+
+Mudrich walked up, grabbed her hammer with her muddy paws, and ignored the searing pain of the heated metal with a mere wince. She approached the High One. A rock landed right at The High One’s feet. Wryonin was watching.
+
+The High One backed up. “Guards!”
+
+[mention Majestra and Lemilay holding hands, raised in the air]
+
+“Wait, are you serious?” Majestra asked. She broke her peace gesture with Lemilay and drew her weapon, turning on the High One.
+
+“Fleeting, I see, your loyalty.” The High One grimaced.
+
+“I was always doing this to replace you.” Majestra said. “This will just make it happen faster.”
+
+The shield cats surrounded the High One.
+
+The High One opened his hand, and four vials containing red liquid appeared between his fingers. “Drink up.” He one to each of the shield cats.
+
+They drank it, and their eyes turned red with anger. Their muscles bulged and their skin thickened. More concernedly, their steady and practiced soldier gaze was overcome with a crazed anger that thirsted for blood.
+
+“Attack!” The High One ordered.
+
+The blood-crazed cats dropped their shields and lunged at the wolves and Majestra.
+
+Majestra and Ersatzica flinched, trying to escape.
+
+Mother and Mudrich dove right in. Mudrich, though tired and fighting back the inferno that was her hammer, swung with all her might at the frenzied cats. She branded one in the face and singed another in the stomach, sending them flying. Mother went toe-to-toe with the third, creating an opening that Wryonin took to rock it straight between the eyes.
+
+Lemilay, for her part, bravely fought against the fourth, giving Majestra and Ersatzica time to reposition.
+
+But the berzerking cats recovered from their wounds quickly and came back for more.
