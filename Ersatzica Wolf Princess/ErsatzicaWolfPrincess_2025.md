@@ -5378,7 +5378,7 @@ Ersatzica stood in the cell, looking out into the cave hallway that she was now 
 
 Ersatzica shook her head out of it. *They need me, I have to help!*
 
-# Chapter 15
+# Chapter 15 – Mudrich’s Hammer
 
 She stepped out of the cell with one foot, then the other. She took a deep breath.
 
@@ -5944,4 +5944,112 @@ Mother and Mudrich dove right in. Mudrich, though tired and fighting back the in
 
 Lemilay, for her part, bravely fought against the fourth, giving Majestra and Ersatzica time to reposition.
 
-But the berzerking cats recovered from their wounds quickly and came back for more.
+But the berzerking cats recovered from their wounds quickly and came back for more. They lunged at Mudrich and Mother, frantically trying to claw their way through their faces. It took everything Mudrich and Mother had just to keep from getting hit.
+
+“I know what to do!” Ersatzica exclaimed. She beat the drums, syncing up to the flurry of blows that the berserk cats were making. It was hard though, because they didn’t attack in sync, and their movements were quick. Finally, after 1 minute, she synced with one of the berzerking cats. She slowed down the beat, eventually freezing it.
+
+The berserk cat froze mid-leap. Not only did it stop moving its muscles, but it also froze mid-air, like it was frozen in ice. Just floating there.
+
+Until Mudrich smashed it with a hammer! She angled the hammer below the cat, so when it hit, it launched it further and higher than it usually would have. Who knew where it landed? No one, but it didn’t matter. Because it was out of the fight.
+
+“What a fiiine parlor trick.” The High One mused. Then he snapped his fingers and lit the berserk cats’ ears on fire.
+
+The cats didn’t seem to notice. Where they used to have ears, they now had holes with crispy hair chunks inside it. But their already aggressively angry behaviour didn’t change.
+
+Nonetheless, Ersatzica beat the drums again.
+
+*BUM BUM BUM*
+
+This time she synced up with two at once. Ersatzica paused them while they were on the ground, so she beat again just to get them into the air.
+
+With a one and a two, Mudrich swung and batted them away.
+
+The High One grumbled.
+
+Ersatzica synced up with the last one.
+
+The High One extended his arm and his gaze towards Ersatzica.
+
+Majestra stepped in the way, and grabbed Ersatzica’s shoulder, causing them both to turn invisible.
+
+The High One closed his eyes, still tracking Ersatzica’s movements with his hand. Then he snapped his fingers.
+
+The drums caught fire! The silky top burned away immediately, and the metal around it heated to intolerable temperatures. Luckily Ersatzica was between beats, and didn’t get her hands burned, but the drums quickly started searing into her hips. She instinctively clawed at the belt, tearing it.
+
+Majestra raised a clawed hand and scratched Ersatzica with all her might in the belly, and in the process, shredding the belt in one swipe. The drums rolled away, burning the grass as they tumbled.
+
+Ersatzica hurled to the ground from the force of the swipe. After a relatively relaxing fall, she found a clawed hand stuck in her face. She glanced at it, then grabbed it, allowing it to pull her back to her feet.
+
+“Thanks, Majestra.”
+
+“I’m your cousin.”
+
+Mudrich and Mother fought off the berserk cat. It was as strong as a wolf, and fearless like cat. It seemed to either shrug off all damage, or complete ignore it. Its neck had multiple puncture wounds, Its belly was all bruised up, its jaw was a bloody mess. It had to be suffering from blood loss. But it kept coming.
+
+Just then, a small cat appeared, holding a candle. The High One snapped his fingers, lighting the candle. Then the small cat opened his hand, revealing a tooth, and disappeared.
+
+With a spectacular glow, the High One disappeared as well, and reappeared in the middle of the battlefield, burning corpses.
+
+*That’s strange. Why burn corpses in the middle of the battle?*
+
+Lemilay jumped into the fight, swiftly punching Mother in the stomach then darting out. “Give up, Mother! You’ve lost!”
+
+Mother flinched, and failed to block a strike from the cat. The cat landed on her, striking rapidly at her face. More puncture wounds appeared on its neck, and an invisible force tried to drag it off Mother. But it kept going.
+
+“Mother!” Mudrich screamed. She flung her hammer at the cat, knocking it off Mother. Tears in her eyes, she grabbed the cat’s head in her mouth, despite it being bigger than her, and bit down hard. She squeezed her claws around its throat, and squeezed as hard as she could.
+
+The cat, in turn, clawed at her chest, digging through all the mud and blood, and the fur and skin, and into the muscle.
+
+Mudrich clamped down, crushing the cat’s skull.
+
+The frenzy slowed, and eventually halted.
+
+Mudrich bit down one more time, ending with a satisfying crunch. Then she flopped over onto the ground.
+
+Mother got up, her face in shreds, and picked up her daughter. “Mudrich! Mudrich! Wake up!”
+
+The wounds on Mudrich’s belly were severe. The cat had tore through the muscles and bones, and organs of her insides.
+
+“Muddy!” Ersie cried. She ran over, holding Muddy’s head.
+
+“You can save her.” Majestra stated.
+
+“How?” Ersatzica looked up at her.
+
+“Do the medic bear thing.”
+
+“I don’t have the blessing of Garoftle.”
+
+“No, but you have Heart Fire. Seal her wounds, stop her bleeding.”
+
+“Ok.” Ersatzica looked up at the moon in the mid-day sky. “Alpha, Wolf God of the Loyal Moon, please help me save my sister.” Then she looked down. “Muddy, don’t die on me!”
+
+She pressed her hand into her sister’s wound. She didn’t know how to use Heart Fire, and it didn’t work.
+
+*But wait! The hammer! It was burning hot!*
+
+Ersatzica got up and fetched Muddy’s hammer, the one she had made especially for her. She took a cuff off Muddy’s wrist, and used a belt she had as a glove to hold the hammer. She easily moved the hammer and gently placed it on Muddy’s wound.
+
+“Come back, Muddy, come back!” She cried.
+
+She stopped the bleeding with the burning hot hammer. She checked for a pulse. There was a heart beat. There was a breath.
+
+“Muddy, come back! We need you! *I* need you! You’re strong, and smart, and I… I don’t know what to do without you. I can’t fill your role, Muddy. I’m not strong enough—”
+
+[add line in ch1 “youre smart in your own way, muddy”]
+
+Muddy’s muzzle opened, just a crack. “You’re strong in your own way, Ersie.”
+
+“Muddy!” Ersie smiled, a tear rolling down her cheeks.
+
+Muddy smiled. Then her head went limp.
+
+“Muddy? Muddy!” Ersatzica stared at her sister. She had a funny feeling, and turned to the hammer. A blue shimmer flashed over it, and for a moment, it smiled at Ersie.
+
+Ersatzica sobbed, holding her sister. “Awoooo!” She yelled, unable to properly howl.
+
+*AWOOOOO!* (“Moon”) Mother howled in unison.
+
+“Awooo!” Majestra joined in.
+
+*AWOOOO!* (“Moon”) Wryonin’s howl could be heard from a distance.
