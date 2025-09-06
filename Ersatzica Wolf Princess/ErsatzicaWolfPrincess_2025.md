@@ -6053,3 +6053,5 @@ Ersatzica sobbed, holding her sister. “Awoooo!” She yelled, unable to proper
 “Awooo!” Majestra joined in.
 
 *AWOOOO!* (“Moon”) Wryonin’s howl could be heard from a distance.
+
+The whole world stood still for just a moment of mourning.
