@@ -2,6 +2,8 @@
 
 2025-09-06: created by chat gpt (after feeding it story contents)
 
+so, watch out, because this probably contains a lot of inaccuracies
+
 ## Contents
 1. [Characters](#characters)
 2. [Heirlooms & Magical Items](#heirlooms--magical-items)
