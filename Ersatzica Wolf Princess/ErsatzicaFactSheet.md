@@ -13,28 +13,30 @@
 
 ## Characters <a name="characters"></a>
 
-| Name        | Species       | Role                  | Key Traits                 | Abilities/Heirlooms                             | Notes |
-|------------|--------------|----------------------|---------------------------|------------------------------------------------|-------|
-| **Ersatzica** | Cat/Wolf    | Protagonist           | Brave, curious, loyal     | Wolfskin, Boots of Pantrinome, Drums of Retriyoan (syncing), Heart Fire | Born a cat, grew up as a wolf, resolves to accept cat identity |
-| **Mudrich** | Wolf         | Ersatzica’s sister    | Strong, fearless, clever | Super Hammer                                   | Key combatant against High One, Heart Fire potential |
-| **Mother (Awoomoon)** | Wolf | Chief               | Protective, stubborn      | Combat skill, magic immunity                  | Cannot be killed by High One indirectly |
-| **Lemilay** | Wolf         | Ersatzica’s sibling  | Tactical, ambitious       | Ordaent’s Lock, invisibility via Yotleph’s tooth | Becomes leader (“Bumpy”), negotiates peace |
-| **Wryonin** | Wolf         | Ersatzica’s sibling  | Loyal, supportive         | Rock throwing                                 | Assists in battles |
-| **Majestra** | Cat          | Royal                | Strategic, loyal          | Tooth of Yotleph                             | Guides Lemilay, becomes assistant leader |
-| **High One** | Cat          | Antagonist           | Cunning, immortal (burn resurrection) | Blood of Artyr, Yotleph’s tooth (unused) | Can only resurrect if burned; doesn’t kill Awoomoon |
+| Name        | Species       | Role                  | Key Traits                 | Abilities                                  | Heirlooms / Magical Items                       | Notes |
+|------------|--------------|----------------------|---------------------------|--------------------------------------------|-------------------------------------------------|-------|
+| **Ersatzica** | Cat/Wolf    | Protagonist           | Brave, curious, loyal     | Heart Fire                                  | Wolfskin, Boots of Pantrinome, Drums of Retriyoan (syncing) | Born a cat, grew up as a wolf, resolves to accept cat identity |
+| **Mudrich** | Wolf         | Ersatzica’s sister    | Strong, fearless, clever | Super Hammer                                | —                                               | Key combatant against High One, Heart Fire potential |
+| **Mother (Awoomoon)** | Wolf | Chief               | Protective, stubborn      | Combat skill, magic immunity               | —                                               | Cannot be killed by High One indirectly |
+| **Lemilay** | Wolf         | Ersatzica’s sibling  | Tactical, ambitious       | —                                           | Ordaent’s Lock, invisibility via Yotleph’s tooth | Becomes leader (“Bumpy”), negotiates peace |
+| **Wryonin** | Wolf         | Ersatzica’s sibling  | Loyal, supportive         | Rock throwing                               | —                                               | Assists in battles |
+| **Majestra** | Cat          | Royal                | Strategic, loyal          | —                                           | Tooth of Yotleph                               | Guides Lemilay, becomes assistant leader |
+| **High One** | Cat          | Antagonist           | Cunning, immortal (burn resurrection) | —                                           | Blood of Artyr, Yotleph’s tooth (unused)      | Can only resurrect if burned; doesn’t kill Awoomoon |
+
 
 ---
 
 ## Heirlooms & Magical Items <a name="heirlooms--magical-items"></a>
 
-| Item | Owner/Current User | Effects | Notes |
-|------|-----------------|---------|-------|
+| Item | Owner / Current User | Effects | Notes |
+|------|--------------------|---------|-------|
 | **Wolfskin** | Ersatzica | Transforms wearer into wolf resembling Monassus | Long-term usage caused Ersatzica to grow up as a wolf |
 | **Boots of Pantrinome** | Ersatzica | Grants enhanced hearing, silent movement | Can be reversed to deafen wearer & amplify their sounds |
 | **Drums of Retriyoan** | Ersatzica | Allows drum syncing to influence targets’ movement | Replacement for “Ersie Drum Syncing” effect |
 | **Ordaent’s Lock** | Lemilay / Ersatzica | Locks magical items or prevents transformations | Used to assist Lemilay in the battle |
-| **Tooth of Yotleph** | Majestra / Lemilay | Grants invisibility | Can be reversed so wielder cannot see others |
+| **Tooth of Yotleph** | Majestra / Lemilay / Ersatzica | Grants invisibility | Can be reversed so wielder cannot see others |
 | **Blood of Artyr** | High One / Shield Cats | Induces berserk state, increased muscle & skin toughness, ignores pain, survives critical injuries | High One uses on Shield Cats but not himself |
+
 
 ---
 
