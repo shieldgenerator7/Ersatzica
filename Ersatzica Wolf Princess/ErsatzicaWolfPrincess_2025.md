@@ -6055,3 +6055,109 @@ Ersatzica sobbed, holding her sister. “Awoooo!” She yelled, unable to proper
 *AWOOOO!* (“Moon”) Wryonin’s howl could be heard from a distance.
 
 The whole world stood still for just a moment of mourning.
+
+[flashbacks to good times with muddy]
+
+“Lemilay, how could you!” Mother growled. “You threw off my guard. Are you trying to kill me?"
+
+"We can’t kill the High One.” Lemilay said. “The best we can do is cooperate and negotiate a peace treaty.”
+
+“You traitor!” Mother swiped at her, striking her in the face and catching her off guard.
+
+Lemilay looked stunned, but assumed the starting Pea-Fo pose. “I was hoping I wouldn’t have to do this, Mother. But if you won’t cooperate, I will have to take your place.”
+
+“My place? You should take *your* place!” Mother swiped again.
+
+Lemilay blocked it, then landed a kick in Mother’s belly.
+
+“So you know Pea-Fo.”
+
+“I learned from the best.” Lemilay nodded, tapping her bald spot.
+
+“I should’ve trained at night.” Mother circled Lemilay.
+
+Lemilay flipped over to Mother’s side and tried to punch her from a flanking position.
+
+Mother stuck out her arm, letting Lemilay run into, clotheslining herself. She punted Lemilay to the ground and stepped on her belly.
+
+“You’ve got a lot yet to learn.”
+
+Lemilay struggled under Mother’s weight, but soon realized she wasn’t going anywhere. *AWOOOOOO!* (“Help!”)
+
+“Aw, did the stupid stubborn one die?” The High One strutted toward the group. “Finally.”
+
+“You did this!” Mother jumped off Lemilay and lunged at the High One.
+
+He easily dodged. “Tie her up. Be careful not to kill her.”
+
+Behind him stood a small battalion of cats, who all had various burns all over their bodies. They grabbed a hold of Mother.
+
+Mother fought them off, maiming and killing several of them. But eventually, too many of them held her down.
+
+Lemilay kneed her in the stomach. “Well then, it’s a good thing you’ll still be around to teach me. Maybe this time even face-to-face.”
+
+Mother growled as her face was forcibly stuck into the mud by the horde of cats on her.
+
+*AWOOOOO!* (“Hour!”) Lemilay howled.
+
+The High One blew a bugle, signaling the cats to stop fighting.
+
+“Attention everyone!” The High One yelled. His voice boomed through the valley. “We have a new leader of the clog village!” He raised up Lemilay’s hand. “Bumpy! Congratulations, Bumpy! You are the new leader of the clog village.”
+
+“My name is Lemi—”
+
+“No, it’s Bumpy now. I chose your name.”
+
+The wolves gathered around. “Where’s Awoomoon?”
+
+“Your former leader has been defeated.”
+
+“I am your leader now!” Lemilay said. “Pledge your loyalty to me, loyal wolves of Alpha.”
+
+A hand full of wolves resisted, and the High One lit them all on fire. After that, the other wolves pledged loyalty to Lemilay.
+
+The High One took Majestra’s hand. “And you, my dear Majestra, shall guide Bumpy in her task as leader.”
+
+“I’m going to lead the march forward into the eastern lands.” Majestra proclaimed.
+
+“No, you’re going to stay in the clog village helping Bumpy. You will be her assistant.”
+
+“That’s not what we agreed to.”
+
+“Yes it is, you just didn’t understand.”
+
+“Rejoice! A great accomplishment has been made this day! We have finally achieved peace between cats and wolves!” He put Lemilay’s and Majestra’s hands together.
+
+Lemilay and Majestra raised their hands in unison, begrudgingly celebrating victory.
+
+“And you my dear, Majestra’s twin.” The High One grabbed Ersatzica. “You are coming with me. Rumor has it you don’t know what it’s like to be a cat. We’ll change that.” The High One laughed. He pulled Ersatzica along, ripping her from Mudrich and her hammer.
+
+Then General Seamtrust arrived, with the other cats under her command.
+
+“Ah, just in time! I’m sure you will see to it that the liberation force achieves their goal from here?”
+
+“Yes, High One.” Seamtrust nodded.
+
+“Goood. Off to the High Tower then.” He handed Ersie to his cat soldiers, who sat her down on a pillow. Then they picked up the floor under the pillow with long rods that rested on four soldiers’ shoulders.
+
+“Where are you taking me?”
+
+“Where all the royals live.”
+
+“The Cat Kingdom?”
+
+“Ha! Is that what you wolves call it?”
+
+“Yes.”
+
+“Well, are you a wolf or a cat?”
+
+“I’m a cat.”
+
+“Very well.”
+
+“But I want to stay with my family.”
+
+“Well you’re in luck! If you’re truly the daughter of Pantrinome, you’ll have lots of family to stay with in High Tower.”
+
+Ersatzica found it hard to forget about her wolf family, Mother, Lemilay, Wryonin, Mudrich, while riding to the Cat Kingdom.
