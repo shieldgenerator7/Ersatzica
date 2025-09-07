@@ -5378,7 +5378,7 @@ Ersatzica stood in the cell, looking out into the cave hallway that she was now 
 
 Ersatzica shook her head out of it. *They need me, I have to help!*
 
-# Chapter 15 – Mudrich’s Hammer
+# Chapter 14
 
 She stepped out of the cell with one foot, then the other. She took a deep breath.
 
@@ -5769,6 +5769,10 @@ Mother and the tall cat circled each other. The cats and wolves continued to fig
 Meanwhile, the cats crossed the bloody river of corpses. It didn’t matter that they got slaughtered while traversing or when they got to the other side, they just kept coming. Occasionally, a wolf would get hit by a spear or get lit on fire, and the wolf defense would weaken.
 
 *Mother can’t kill the tall cat. And their army outnumbers us. We’ll all die before we fend them off.*
+
+# Chapter 15 – Mudrich’s Hammer
+
+Ersatzica, convinced that the wolves were about to lose the battle, decided the best course of action was to find Lemilay.
 
 Ersatzica unlatched the leg band. She rushed over to where she had stashed Lemilay. “Lemilay!”
 
