@@ -5940,6 +5940,8 @@ They drank it, and their eyes turned red with anger. Their muscles bulged and th
 
 “Attack!” The High One ordered.
 
+[make it obvious that the berserk cats don’t actually take orders, they just attack whatever is closest or attacks them most recently]
+
 The blood-crazed cats dropped their shields and lunged at the wolves and Majestra.
 
 Majestra and Ersatzica flinched, trying to escape.
