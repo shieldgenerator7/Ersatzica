@@ -1,5 +1,7 @@
 # Ersatzica Master Reference Sheet
 
+2025-09-06: created by chat gpt (after feeding it story contents)
+
 ## Contents
 1. [Characters](#characters)
 2. [Heirlooms & Magical Items](#heirlooms--magical-items)
