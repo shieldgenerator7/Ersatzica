@@ -15,13 +15,13 @@
 
 | Name        | Species       | Role                  | Key Traits                 | Abilities                                  | Heirlooms / Magical Items                       | Notes |
 |------------|--------------|----------------------|---------------------------|--------------------------------------------|-------------------------------------------------|-------|
-| **Ersatzica** | Cat/Wolf    | Protagonist           | Brave, curious, loyal     | Heart Fire                                  | Wolfskin, Boots of Pantrinome, Drums of Retriyoan (syncing) | Born a cat, grew up as a wolf, resolves to accept cat identity |
-| **Mudrich** | Wolf         | Ersatzica’s sister    | Strong, fearless, clever | Super Hammer                                | —                                               | Key combatant against High One, Heart Fire potential |
-| **Mother (Awoomoon)** | Wolf | Chief               | Protective, stubborn      | Combat skill, magic immunity               | —                                               | Cannot be killed by High One indirectly |
-| **Lemilay** | Wolf         | Ersatzica’s sibling  | Tactical, ambitious       | —                                           | Ordaent’s Lock, invisibility via Yotleph’s tooth | Becomes leader (“Bumpy”), negotiates peace |
-| **Wryonin** | Wolf         | Ersatzica’s sibling  | Loyal, supportive         | Rock throwing                               | —                                               | Assists in battles |
-| **Majestra** | Cat          | Royal                | Strategic, loyal          | —                                           | Tooth of Yotleph                               | Guides Lemilay, becomes assistant leader |
-| **High One** | Cat          | Antagonist           | Cunning, immortal (burn resurrection) | —                                           | Blood of Artyr, Yotleph’s tooth (unused)      | Can only resurrect if burned; doesn’t kill Awoomoon |
+| **Ersatzica** | Cat/Wolf    | Protagonist           | Brave, curious, loyal     | Heart Fire                                  | Wolfskin, Boots of Pantrinome, Drums of Retriyoan | Born a cat, grew up as a wolf, resolves to accept cat identity |
+| **Mudrich** | Wolf         | Ersatzica’s sister    | Strong, fearless, clever |     —                            |                                                 Cuffs of Tigrin |— |
+| **Awoomoon** | Wolf | Chief               | Protective, stubborn      | Combat skill               | Tooth of Feistiven                                               | Chief of Bridge Town, the Wolf Village |
+| **Lemilay** | Wolf         | Ersatzica’s sibling  | Tactical, ambitious       | Hindsight                                           | Spyglass of Sureye, Yotleph’s tooth | Becomes leader (“Bumpy”), negotiates peace |
+| **Wryonin** | Wolf         | Ersatzica’s sibling  | Loyal, supportive         | slingshot, good hearing                               | —                                               | Assists in battles |
+| **Majestra** | Cat          | Royal                | Strategic          | —                                           | Tooth of Yotleph                               | Guides Lemilay, becomes assistant leader |
+| **High One** | Cat          | Antagonist           | Cunning, effectively immortal | —                                           | Blood of Artyr, Epaulette of the High One, Tinsel's Time Keeper      | King of the High Tower, the Cat Kingdom |
 
 
 ---
