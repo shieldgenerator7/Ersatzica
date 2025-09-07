@@ -6165,3 +6165,7 @@ Then General Seamtrust arrived, with the other cats under her command.
 “Well you’re in luck! If you’re truly the daughter of Pantrinome, you’ll have lots of family to stay with in High Tower.”
 
 Ersatzica found it hard to forget about her wolf family, Mother, Lemilay, Wryonin, Mudrich, while riding to the Cat Kingdom.
+
+[have coronation scene for Lemilay]
+
+[give ersie time to prepare to leave for the cat kingdom, maybe even give her the decision to leave or attempt to dodge and stay]
