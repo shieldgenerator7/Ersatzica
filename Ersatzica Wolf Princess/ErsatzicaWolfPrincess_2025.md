@@ -6171,3 +6171,65 @@ Ersatzica found it hard to forget about her wolf family, Mother, Lemilay, Wryoni
 [have coronation scene for Lemilay]
 
 [give ersie time to prepare to leave for the cat kingdom, maybe even give her the decision to leave or attempt to dodge and stay]
+
+===
+
+A few days later, an official Passing of the Torch was held.
+
+Wolves gathered on one side of the mess hall, and the other side was occupied by the cats.
+
+Lemilay stood on a wooden structure build specifically for this occasion. She stood tall and proud, even if a little wounded, emotionally. Her chest fluff was well-groomed and combed, and her fur was so shiny it gleamed.
+
+The High One stood on the podium behind, his relentless smile suppressing the mood. He held a book in his hand, and he wore a black officiating robe over his military attire, which had been properly cleaned and polished after the battle.
+
+Ersatzica sat in the front row of the cat side, as close as she could to Wryonin, who sat on the wolf side. Ersatzica looked at him and flicked her ears up. He nodded back, clutching Mudrich’s Hammer, which was planted firmly on the floor next to him, in the exact spot that Mudrich had smashed a week prior. Next to Ersatzica, Auntie Seamtrust patted her on the lap, prodding her to face the podium. Instead, she peered past Auntie to the other end of the front row, where Fisher sat with his hands in his lap. Ersie looked down. Auntie prodded her again, and she focused on Lemilay.
+
+Then the music started. A band sat behind the podium, both visibly blocked by and amplified by the podium.
+
+The mess hall doors opened, and two cat guards stepped in, followed by Majestra. She wore her magnificent red hair in a braid that was re-woven into a bun. Around her shoulders, a red cape with gold trim hung snugly over her golden pendant with the red jewel. In her hands, she held the torch.
+
+As she carried it forward, the weight and heft of it weighed down on her. Her arms shook and her fingers trembled. Her face was calm, but it was evident that it took everything she had to carry this burden. The light of the flame shone through torch onto her body, casting shadowy stripes on her orange-striped body.
+
+She walked down the middle aisle to the beat of the music, bobbing the torch up and down as she did. The flames watched touched everyone as she did so, welcoming them into a new era.
+
+She stepped onto a platform in front of the podium, and was lifted up by two cat guards and two wolf guards. She took her place facing Lemilay in front of The High One.
+
+“We are gathered here today.” The High One said, pretending to read from the book he held. “Celebrating the beautiful union between two officials, who will seek to continue the improvement of lives, and the expansion of the kingdom. You will encounter many difficult decisions, journeys, and tasks in your duties, but together you will solve all your challenges.”
+
+Majestra adjusted her fingers on the torch. Her arms were starting to bow under the weight.
+
+“Do you, Lemilay, daughter of Awoomoon, take this cat to be your lawfully assigned assistant?”
+
+“I do.” Lemilay nodded.
+
+“And do you, daughter of Marvelosa, take this wolf to be your lawfully assigned chief?”
+
+“I do.”
+
+“Then I pronounce, partners in rule!” The High One closed the book with a dramatic *thud* that echoed across the room. “You may now hold the torch.”
+
+Majestra seemed to fall over forward, but Lemilay caught the torch in time. Together, they held the torch above their heads.
+
+The High One motioned to everyone to applaud.
+
+The cats meowed loudly. The wolves stayed silent.
+
+“It’s time to celebrate, *everyone*!” He looked directly at the wolves.
+
+The wolves stayed silent.
+
+“I said—"
+
+*AWOOOOO!* (“Moon!”) Wryonin howled first.
+
+*AWOOOOO!* (“Moon!”) The other wolves howled in unison.
+
+“That’s better.” The High One smiled.
+
+Lemilay and Majestra held the torch above their heads for over an hour, while the cats and wolves sat and watched. When they finally couldn’t hold it anymore, Majestra’s hand slipped from exhaustion, and Lemilay held it by herself for another 15 minutes. Then, her arm gave out, and she collapsed to the floor.
+
+The High One grabbed the torch before it fell and planted it firmly into the podium. “Well done, young chief. You will be a great ally, indeed.”
+
+Lemilay looked up at him, sore from the experience.
+
+The next day, Ersatzica prepared for her departure.
