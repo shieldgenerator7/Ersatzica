@@ -20,7 +20,59 @@ This fact sheet is for nuances I need to remember when writing / editing the sto
     -   Used to repair things
     -   Running gag
 
+### Quotes
+
+-   “I can make it work.”
+    -   Meaning “I can fit that event into my schedule”
+    -   Meaning “I can fix this item”
+
+## Mudrich
+
+-   Likes to dig, has lots of tunnels everywhere
+-   Shortest
+-   Covered in mud
+-   Most likely to run around on all fours
+
+### Quotes
+
+-   “You don’t have to be so [adjective] about it.”
+    -   “You don’t have to be so mean about it.”
+
+## Wryonin
+
+### Quotes
+
+-   “Listen to this.”
+    -   When about to say something important / about to tell a story
+
+## Lemilay
+
+-   Talks to herself out loud
+    -   “Ignore your sister, Lemilay.”
+-   “Blinks” her bald spot when annoyed
+
+## Awoomoon
+
+## Fisher
+
 ## Majestra
 
 -   Interprets “thank you” as flirting
     -   Thus responds with reasons they can’t be in a romantic relationship
+        -   “We’re cousins”
+
+## Nephalie
+
+-   Copies other people’s mannerisms to mock them
+    -   To Mudrich: “You don’t have to be so stupid about it.”
+
+## General Seamtrust
+
+-   Calls Majestra “little majesty”
+
+## The High One
+
+-   Says description, then what he’s talking about.
+    -   “So simple, you wolves.”
+    -   “Fleeting, I see, your loyalty.”
+    -   NOT “yoda-speak”
