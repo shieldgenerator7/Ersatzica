@@ -6232,4 +6232,6 @@ The High One grabbed the torch before it fell and planted it firmly into the pod
 
 Lemilay looked up at him, sore from the experience.
 
+[show what Ersatzica is thinking about all this]
+
 The next day, Ersatzica prepared for her departure.
