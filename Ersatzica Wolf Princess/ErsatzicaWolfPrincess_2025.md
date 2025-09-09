@@ -6234,4 +6234,250 @@ Lemilay looked up at him, sore from the experience.
 
 [show what Ersatzica is thinking about all this]
 
-The next day, Ersatzica prepared for her departure.
+===
+
+The next day, Ersatzica prepared for her departure. She scoured her workshop for things she could reasonably take with her. She was given a small wagon with which to pack her things up in.
+
+She wore the boots of her mother, the drums of her grandmother, and a smile of excitement. This was going to be a new adventure for her, in which she would get to learn a lot about heirlooms from the cats.
+
+She packed the cart full of supplies and her favorite heirlooms that she couldn’t fit in her bag.
+
+*KNOCK KNOCK*
+
+Majestra opened the door. “Are you almost ready, Ersatzica?”
+
+“I think so. Anything in here you want to keep for your own projects?”
+
+“Anything you leave behind is going to get thrown out.”
+
+“Oh, so you don’t want this stack of dried leather—”
+
+“No.” Majestra shook her head.
+
+“Ok.” Ersatzica placed it on the wagon.
+
+“Where’s the stool?”
+
+“You want that?”
+
+“Yeah, that’s like the whole reason I picked this room for my new office.”
+
+“It’s in here somewhere…” Ersatzica fished around for it, finally finding it and pulling it out. “You know how to install it, right?”
+
+Majestra stared at her blankly, sitting on the counter.
+
+Ersatzica sighed. “Of course not.” Ersatzica knelt down to reinstall it. “Consider this a gift from me to you.”
+
+“Oh, and by the way, you’ll be taking my room in High Tower. I don’t think I’ll ever return. Just whatever you do, don’t sit in the fluffy chair with red ‘dots’ on it.”
+
+“What—”
+
+“Just promise to throw it out when you get there.”
+
+“Sure, I guess?” Ersatzica finished installing the stool.
+
+Majestra sat in the stool, spun around a few times, and looked out the window.
+
+“Well, I’m heading out now.”
+
+Majestra got up, and hugged her.
+
+“You’re welcome.” Ersatzica hugged her back.
+
+Majestra cried on her shoulder. She stood there for a moment. Before she disengaged, she sucked in her tears. “Travel safely.”
+
+Ersatzica nodded. She looked into Majestra’s eyes. “Hey, it’s going to be ok.”
+
+Majestra nodded.
+
+Outside, cat guards arrived. “We’re here to pick up the cart for—” They checked a sheet of paper they held. “Ersatz… ica?”
+
+“Yes, right here.” Ersatzica pulled it out for them.
+
+They took it and Ersatzica left to find Wryonin. Along the way, she bumped into Lemilay.
+
+“Oh, you’re still here.”
+
+“I’m about to leave. I wanted to say goodbye.”
+
+“Goodbye? You’re leaving for good?”
+
+“I don’t know when I’ll be coming back.”
+
+Lemilay nodded.
+
+Ersatzica stood there.
+
+Lemilay didn’t say anything.
+
+Ersatzica’s eyebrows furrowed, and she dug her clawed hands into the side of her own hip. She stopped herself from growling.
+
+“Do you know where Wryonin is?”
+
+Lemilay quickly Hindsighted, used her spyglass, and pointed out into the forest, adjusting her gesture to be more accurate.
+
+“I thought so.” Ersatzica turned in that direction and started walking.
+
+“Bye.” Lemilay turned away.
+
+“Yeah.” Ersatzica said. Then she continued.
+
+She found Wryonin out in the woods, practicing his aim with his slingshot, right where Lemilay had pointed.
+
+“Hey Wry!” Ersatzica called.
+
+Wryonin fired one last rock from his slingshot. It pinged off the tree, hitting it dead center. He stood by Mudrich’s Hammer, which stood next to a wooden stake in the ground, which stood next to a Muddy-sized hole.
+
+“Ersie!” Wryonin pocketed his slingshot. He eagerly hugged her. “How are you doing?” He licked her on the forehead. It didn’t matter that she was a cat. She was his sister, deep down.
+
+“I’m almost ready to depart.”
+
+“Oh yeah? What do you have left to do?”
+
+“Well, this.” She hugged him tighter. “I couldn’t leave without telling my brother goodbye one last time.”
+
+“One last time? You sound like you’re not coming back.”
+
+Ersatzica pulled away. “Well, it’s not in the plans. I do hope to visit again someday.”
+
+“*Visit*?!”
+
+“Yes, I’m relocated on a permanent basis to the cat kingdom.”
+
+“Pfft. High Tower, what a pretentious name for a city. Don’t lose yourself over there, Ersatzica. Don’t let those pompous red-tails get in your head.”
+
+Ersatzica laughed, wagging her red-tipped tail, or as much as her cat body would allow. “Don’t worry, I won’t. I’m still your wolf sister, deep down.”
+
+“I’m just happy you’re still my sister.” Wryonin laughed, then hung his head. He turned away. His shoulders wavered.
+
+“Wryonin?”
+
+Wryonin choked and coughed, then swallowed. He didn’t face her again. “I found her stake today.”
+
+“So this is the place—”
+
+“Yes. The tunnel she made last. I—I was going to explore it., but I’m having… difficulties.”
+
+Ersatzica took his hand. “I’ve got a few hours. That’s more than enough time for another bath, right?”
+
+“Don’t use the ‘b’ word around her.” Wryonin pointed to the hammer.
+
+They both laughed.
+
+“Speaking of which,” Ersie said, taking a clump of mud in her hands. She smeared it all over the hammer. “There you go, Muddy. More comfy now?”
+
+It was hard to see the glimmer of blue under all the mud, but it danced enthusiastically.
+
+“I’m glad, Muddy. Shall we explore this tunnel?” She looked up at Wryonin.
+
+He nodded.
+
+It was a small and tight tunnel. Muddy usually widened them when she wanted to show others, but apparently she didn’t have time to widen this one.
+
+For being incomplete, it sure went far. Finally it came out to an opening. Ersatzica entered the opening first, stretching her hands as far as they could go up to the ceiling. Wryonin came out next, dragging Mudrich’s hammer to the dirt floor below.
+
+“What is this place?” Ersatzica mused.
+
+“Looks like some underground cavern.” Wryonin said. “Do you have a light?”
+
+“Sure do.” Ersatzica took out a lamp from her pouch. It lit up the opening.
+
+It was a small little room with a mud floor. Muddy’s pawprints were all over the floor and walls. On one side, there was a little running water fall that fell from the ceiling, puddled on the floor, and drained into a little hole. Moss of various colors grew all around the puddle, and in the puddle, tiny little fish swam, gobbling up little specks of dirt that fell into it from the water fall.
+
+“It’s beautiful, Muddy.” Ersatzica smiled. “What a find!”
+
+Wryonin knelt in front of the moss, placing his knees where Mudrich’s knee prints were. He cupped his hands, collecting some water in them. Then he took a sip. “Ersatzica, try this!”
+
+“What is it?”
+
+“Mineral water. It tastes amazing!”
+
+Ersatzica tasted it too. “Wow! This is incredible!”
+
+The hammer glimmered blue.
+
+Afterwards, they climbed out of the hole.
+
+“Thank you, Muddy,” Ersie patted the mud on the hammer. “I wouldn’t have ever seen that otherwise.”
+
+“How did that? Find little places like that under the ground?” Wryonin mused.
+
+“Well, I hate to say it, Muddy,” Ersie took out a washcloth. “But you can’t stay muddy forever. All that mud is going to eat right through your material and rust you up so bad you’ll be unrecognizable.”
+
+“You’re starting to sound like Mother. Is what she would say.” Wryonin laughed.
+
+Ersie chuckled. “Yes, but seriously. Mudrich needs to stay relatively clean and dry. To maintain good condition. Promise me you’ll take care of her?”
+
+“I will.” Wryonin nodded. “I promise I’ll take care of Mudrich’s hammer.”
+
+“Thank you.” Ersie gave him a big hug.
+
+“Be good for Wryonin, ok?” Ersie hugged the hammer.
+
+Wryonin sniffled.
+
+“Hang in there, brother. It’ll be alright.” Ersie licked Wryonin’s forehead.
+
+“Do you have to go?”
+
+“What?”
+
+“Do you have to go? Can’t you just say ‘screw that guy’ and just stay here?”
+
+“I’m sorry, Wry-wry. I have things I need to do. And I have to go to High Tower to do them.”
+
+He balled his clawed hands into fists, trembling silently on his sides. His head hung low.
+
+“Hey, would it help if we said a prayer?”
+
+Wryonin nodded.
+
+Ersatzica put her arms around his neck, pulling him in close. “Alpha, Wolf God of the Loyal Moon, thank you for helping us survive—” Ersatzica choked on a tear. “Thank you for helping spare our little wolf village, and thank you for helping… helping—”
+
+“Helping us remember those who’ve fallen, so that we may live. Thank you for my sister,” he pulled her in close, “And thank you for the opportunities we have for a future—”
+
+“And thank you for my brother, the most loyal and kind soul I’ve ever known.”
+
+Wryonin couldn’t keep it in any longer. He grabbed Ersie tightly by the shoulder and let the tears pour down his cheeks onto her back.
+
+“And please him, Alpha. Help him overcome the many challenges he will face while I’m not here. Help him find someone new to be loyal to, somehow who will care for him as much as Mudrich did, and as much as I do—"
+
+“And please, keep my sister safe. Please help her stay true to her family, her values, and most of all, *herself*.”
+
+Ersie shed a tear herself. “May we ever be in your guiding moonlight.”
+
+“Forever and ever,” *AWOOOOO!*
+
+“Awooo!” Ersie mimicked to the best of her ability.
+
+Wryonin laughed as they squeezed one last time and disengaged. He rolled a fist into his eyes. “That’s some howl, sis.”
+
+Ersie laughed. “I don’t know if I’ll ever get used to that.”
+
+Wryonin sniffled, and swallowed. “Well, have safe travels, sis. I don’t know what things will be like when you return, but I’ll do what I can to keep your bunk reserved for you.”
+
+“Thanks Wry-wry, but we both know Majestra’s going to be all over that.”
+
+They both laughed.
+
+“Bye, Wryonin.” Ersie licked Wryonin on the forehead. “Bye Mudrich.” She knelt down and kissed the muddy hammer. “Ech! That mud does *not* taste good.”
+
+They both laughed.
+
+“Bye, Ersatzica.” Wryonin licked her on the forehead.
+
+“Do you know where Mother is?”
+
+“She’s still in the prison. They haven’t done anything with her yet.”
+
+“Thank Alpha.”
+
+“Yeah.”
+
+“I love you, Wry-wry!” Ersie said as she walked away.
+
+“I love you too, Ersie!” Wryonin said, unholstering his slingshot.
+
+===
+
+Ersie entered the cave that held the prison cells. “Mother?” she called out.
