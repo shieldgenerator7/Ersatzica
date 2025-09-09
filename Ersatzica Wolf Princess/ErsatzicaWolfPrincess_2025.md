@@ -6296,6 +6296,10 @@ Outside, cat guards arrived. “We’re here to pick up the cart for—” They 
 
 They took it and Ersatzica left to find Wryonin. Along the way, she bumped into Lemilay.
 
+[show lemilay’s cracks, but also her determination to show shes in charge now]
+
+[use more body language to show ersie’s emotions upon meeting her randomly]
+
 “Oh, you’re still here.”
 
 “I’m about to leave. I wanted to say goodbye.”
@@ -6322,7 +6326,11 @@ Lemilay quickly Hindsighted, used her spyglass, and pointed out into the forest,
 
 “Yeah.” Ersatzica said. Then she continued.
 
+[make Lemilay defend herself “I saved the town!”]
+
 She found Wryonin out in the woods, practicing his aim with his slingshot, right where Lemilay had pointed.
+
+[have scene in this scene or earlier where Wryonin apologizes for choosing Majestra over Ersatzica]
 
 “Hey Wry!” Ersatzica called.
 
@@ -6356,6 +6364,8 @@ Wryonin choked and coughed, then swallowed. He didn’t face her again. “I fou
 
 “So this is the place—”
 
+[add in scenes earlier where they explore one of muddy’s tunnels or use it to escape]
+
 “Yes. The tunnel she made last. I—I was going to explore it., but I’m having… difficulties.”
 
 Ersatzica took his hand. “I’ve got a few hours. That’s more than enough time for another bath, right?”
@@ -6373,6 +6383,8 @@ It was hard to see the glimmer of blue under all the mud, but it danced enthusia
 He nodded.
 
 It was a small and tight tunnel. Muddy usually widened them when she wanted to show others, but apparently she didn’t have time to widen this one.
+
+[good spot for a flashback sequence]
 
 For being incomplete, it sure went far. Finally it came out to an opening. Ersatzica entered the opening first, stretching her hands as far as they could go up to the ceiling. Wryonin came out next, dragging Mudrich’s hammer to the dirt floor below.
 
@@ -6444,6 +6456,8 @@ Wryonin couldn’t keep it in any longer. He grabbed Ersie tightly by the should
 
 “And please, keep my sister safe. Please help her stay true to her family, her values, and most of all, *herself*.”
 
+[add more stuff here, maybe]
+
 Ersie shed a tear herself. “May we ever be in your guiding moonlight.”
 
 “Forever and ever,” *AWOOOOO!*
@@ -6481,3 +6495,5 @@ They both laughed.
 ===
 
 Ersie entered the cave that held the prison cells. “Mother?” she called out.
+
+[ersie uses grease to unstick lock and picks lock with a cat claw, mother takes ersie to river and they take a bath together, ersie asks mother about why she adopted her, mother tells ersie not to listen to the high one and to stay here in the wolf village, but ersie refuses]
