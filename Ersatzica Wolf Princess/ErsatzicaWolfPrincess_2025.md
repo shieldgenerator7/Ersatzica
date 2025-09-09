@@ -5378,7 +5378,7 @@ Ersatzica stood in the cell, looking out into the cave hallway that she was now 
 
 Ersatzica shook her head out of it. *They need me, I have to help!*
 
-# Chapter 14
+# Chapter 13
 
 She stepped out of the cell with one foot, then the other. She took a deep breath.
 
@@ -5770,7 +5770,7 @@ Meanwhile, the cats crossed the bloody river of corpses. It didn’t matter that
 
 *Mother can’t kill the tall cat. And their army outnumbers us. We’ll all die before we fend them off.*
 
-# Chapter 15 – Mudrich’s Hammer
+# Chapter 14 –Epaulette of the High One
 
 Ersatzica, convinced that the wolves were about to lose the battle, decided the best course of action was to find Lemilay.
 
@@ -6172,7 +6172,7 @@ Ersatzica found it hard to forget about her wolf family, Mother, Lemilay, Wryoni
 
 [give ersie time to prepare to leave for the cat kingdom, maybe even give her the decision to leave or attempt to dodge and stay]
 
-===
+# Chapter 15 – Mudrich’s Hammer
 
 A few days later, an official Passing of the Torch was held.
 
