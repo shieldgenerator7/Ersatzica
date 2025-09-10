@@ -6496,4 +6496,194 @@ They both laughed.
 
 Ersie entered the cave that held the prison cells. “Mother?” she called out.
 
-[ersie uses grease to unstick lock and picks lock with a cat claw, mother takes ersie to river and they take a bath together, ersie asks mother about why she adopted her, mother tells ersie not to listen to the high one and to stay here in the wolf village, but ersie refuses]
+After a moment of silence, Mother answered, “Ersatzica?”
+
+Ersatzica ventured in, finding Mother in the same cell she herself had been in earlier. “Mother.”
+
+“Ersatzica.”
+
+Ersatzica tried not to stare at Mother’s face. It was tattered and scarred in every direction. Dried blood clung to the bruised skin, uncleaned wounds held dirt and a green oozy-substance.
+
+“How are you?” Ersatzica asked.
+
+“Happy I get to see your smiling face one last time.”
+
+“You make it sound like you’re dying.”
+
+“Just dying to know you’ll be ok.” She laughed until she coughed.
+
+“I’m leaving soon.”
+
+“I heard. High Tower, huh?”
+
+“Yeah.”
+
+“You know, you don’t have to go.”
+
+“I’m actually kind of excited about it.”
+
+“You don’t have to listen to him. You can stay here with us, where—”
+
+“Mother, I’m going.”
+
+“Stay. Stay here with us.”
+
+“Mother, you need a bath.”
+
+“Ha.” She looked at her hands. “I’m all muddy. Too bad, I only have a trickle to bathe from.”
+
+“Can you keep a secret?”
+
+Mother nodded.
+
+Ersatzica pulled a bottle of oil from her pack, and dribbled it inside the lock. “Fisher taught me this.” Then she stuck her cat claw into the lock, and turned it. The lock unlocked.
+
+Mother’s face lightened up. She pushed against the gate and opened it just enough to squeeze through.
+
+Ersatzica grabbed her hand. “Let’s get you to the river.”
+
+Ersatzica led Mother to the river, which was only about waist-high. The bodies had been cleaned up already, so the river water was clean. They waded into the middle. Ersie scrubbed the dirt out of her wolf mother’s fur, splashing water where necessary to get into tough spots.
+
+“How was the passing of the torch?”
+
+“Lemilay and Majestra held on for longer than expected. They earned lots of privileges for their rule from that.”
+
+Mother nodded.
+
+“I wish you could’ve been there to see it.”
+
+“I wasn’t ever planning on attending. It’s a small grace that I even get to hear about it afterwards.”
+
+Ersie worked her way up Mother’s body, washing her back and chest fluff. “Mother, I have a question.”
+
+“Yes.”
+
+“Why did you choose to save me? If you were enemies with the cats, why would you save their offspring?”
+
+Mother looked down. Her eyebrows weighed downed her face, drooping her lips. “I suppose you should know. What do you know of your mother?”
+
+“She was a brave warrior who not only made these boots—” she lifted one up—“but also inherited the drums. You’ve told me the story before of how she invaded the wolf village to kill you, and died in the ensuing battle.”
+
+“That’s not the whole truth.” Mother sighed. “She was a good friend.”
+
+Ersatzica stopped scrubbing. “Friend?”
+
+“Yes. She and I, and a handful of other people, took on the High One—and won. Or so, we thought.”
+
+“So she died in the battle against the High One?”
+
+“No.”
+
+“Then how?” Ersie continued scrubbing, working up Mother’s neck.
+
+“She lived a wonderful life, Ersatzica. She was a good friend—the best. The workshop you inherited? It used to be hers. We celebrated for months after we defeated the High One, but…”
+
+“He came back.”
+
+Mother nodded.
+
+“Hold still.” Ersie tilted Mother’s head down, and poured water over it, washing away the green ooze. She scrubbed her lips and her face scars, rubbing away the dried blood. Then, she licked her wounds with her cat tongue.
+
+“Mmmm.”
+
+“Sorry, I know my cat tongue is a *little* rough.”
+
+“You remind me so much…” Mother paused to let Ersie do her thing. “Of your mother, Ersatzica.”
+
+Ersie finished up licking Mother’s wounds.
+
+“I have a story to tell you.”
+
+“I’m listening.”
+
+“Have you heard of Quivester?”
+
+Ersie cocked her head. “Yes!”
+
+“Did you know he ran away from home?”
+
+“No.”
+
+“Quivester was an orange-striped, red-tip, a lot like you. And like you, he was taking orders from the High One. High One said ‘come here, boy, live in the castle with this other she-cat, and give her children.’ But Quivester, he didn’t want to live in the castle. And so, he ran. He ran all the way to the wolf village, where he met a wolf, and that wolf was—”
+
+“Monassus!”
+
+“And the two became very good friends. They pledged loyalty to each other. Then one day, the High One sent guards to take Quivester back to the cat kingdom. Quivester said no. The High One sent more guards, but Monassus and the other wolves protected him, as if he was one of their own. And then you know what happened?”
+
+Ersie scrubbed behind Mother’s ears. “Tell me.”
+
+“And then one day, the cat soldiers came and killed Monassus. They said, ‘Now that your lover is dead, you have no reason to stay. Come back to the cat kingdom.’ But Quivester refused. He was loyal to Monassus, even in death. So he donned Monassus’ wolf skin, and became a wolf.”
+
+“Mmm.” Ersie nodded.
+
+“Do you understand, Ersatzica?”
+
+“I understand, Mother. But I have a story for you.”
+
+“Go ahead.”
+
+“There once was a wolf who lived by a river. And he was never allowed to cross to it.”
+
+“Nosalen.”
+
+“Let me tell it.”
+
+Mother closed her mouth.
+
+“But yes, it was Nosalen. He wanted to explore, and looked around his home. He knew every brick, every step, and every puddle. All that he didn’t know, was across the river. So one day, when the river had turned to ice, he crossed it.”
+
+“And the ice was thin, and he fell in—"
+
+“Let me tell it.”
+
+“Ok.”
+
+“He crossed the river, and the ice was thick enough to support his weight, and made it to the other side. Then you know what he did?”
+
+“What did he do?”
+
+“He found a piece of himself that was lacking. He found the answer to a question that had been driving him crazy his whole life.”
+
+“And what was that question?”
+
+“Well,” Ersie massaged her shoulders. “He found that out, too.”
+
+“And then Nosalen left his family behind. All of them missed him so much, they died of grief.”
+
+“But Nosalen never forgot about his family. And once he had the answer to his question, he returned home, and was welcomed back to his family.”
+
+“That’s going to take a long time, Ersatzica.”
+
+“I know.”
+
+“Can you promise me one thing?”
+
+“Yes, Mother?”
+
+“Promise me you’ll do things because you want to, not because the High One wants you to.”
+
+“I promise, Mother.”
+
+Mother licked her forehead. “I love you, my pup.” She embraced her in a hug.
+
+“I love you too, Mother.” Ersatzica returned the embrace.
+
+Then they went back to the prison cave, where Ersatzica placed Mother back in the cell. But didn’t relock it.
+
+“Be safe out there.” Mother nodded.
+
+“I will.” Ersatzica nodded.
+
+Ersatzica walked to the rendezvous point where a cat guard was pulling her wagon.
+
+“Ersatzica, are you ready to depart?”
+
+She looked around. She tapped on the drums. Check. She tapped on the boots. Check. She tapped on her screwdriver hidden in her chest fluff. Check. She tapped on her carrying pouch. Check. “Yes.”
+
+“This seat is for you.” The cat guard gestured to a wagon with a chair in it. It had four wheels, so it wouldn’t tilt when the guard stopped moving.
+
+“Thank you.” Ersatzica sat in it.
+
+The cat guards carried her and her things out of the wolf village, across the river, and down the road.
+
+As the wolf village left her view, she found it hard to not think of her family: Mudrich, Wryonin, Lemilay, and Mother.
