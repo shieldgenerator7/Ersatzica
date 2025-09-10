@@ -12,6 +12,8 @@ Content Warning: blood, gore, emotional abuse, physical abuse, violence, kissing
 
 [Pantrinome meets Awoomoon for the last time]
 
+[have Awoomoon tell ersie the story of how ersie got her belly scar, as if Pantrinome was attacking Awoomoon, and have this happen during bath time]
+
 # Chapter 1 – The Drums of Retriyoan
 
 Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
@@ -698,6 +700,8 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 “Muddie, do you believe in ghosts?”
 
+[have mother tell ersie the story of Nosalen to discourage her from crossing the river again]
+
 # Chapter 3 – The Boots of Pantrinome
 
 The four wolf siblings entered their bedroom.
@@ -759,6 +763,8 @@ Mudrich flung her arms around. “It works!”
 “I’m not sure.” Mudrich said.
 
 After a few minutes of testing, Mudrich discovered that they grant super strength. “Watch this! I can make the room bigger!” Mudrich punched a hole in the wall.
+
+[move the hidden room to ersie’s workshop. It explains why the workshop is only half as big and has only one window]
 
 “Stop!” Lemilay shouted. “You’re getting dust everywhere!”
 
@@ -6407,6 +6413,8 @@ Wryonin knelt in front of the moss, placing his knees where Mudrich’s knee pri
 Ersatzica tasted it too. “Wow! This is incredible!”
 
 The hammer glimmered blue.
+
+[have them exchange stories about mudrich]
 
 Afterwards, they climbed out of the hole.
 
