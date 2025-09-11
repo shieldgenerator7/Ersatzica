@@ -8,15 +8,75 @@ Content Warning: blood, gore, emotional abuse, physical abuse, violence, kissing
 
 # Prologue
 
-[cats come and raid wolf village on the night of ersatzica’s birth]
+“It was a dark and stormy night, when the cats attacked. You all were just newborn pups when it happened.” Awoomoon spoke to her children, who were still young pups.
 
-[Pantrinome meets Awoomoon for the last time]
+“It wasn’t an army, it was an elite team of assassin cats, and they came for mommy’s head. Because you know, I was the chief’s wife at the time. This was back when daddy was still alive.
 
-[have Awoomoon tell ersie the story of how ersie got her belly scar, as if Pantrinome was attacking Awoomoon, and have this happen during bath time]
+These cat assassins were trained in war, and had killed before. So many before. And they were led by none other, than the ferocious Pantrinome! Pantrinome was the fiercest of cats. She could jump at you from the shadows, stab you through the heart, and slip away before anyone knew what was happening. And she was so silent, you couldn’t hear her coming.”
+
+The wolf pups hugged each other and trembled, looking behind them to see anything in the shadows.
+
+“But, she was also the prettiest cat, too. Like, the most beautiful. She had fur the color of reeds, hair the color of red wine, and the very *tip* of her tail looked like she had dabbed it in blood.
+
+She found me, in my room. I had just given birth to you all, you all had just come into the world. And the very first thing you saw, when you opened your little eyes, was me, of course. But after that, do you know what the very first thing your cute little eyes saw?”
+
+“What?” They said in unison.
+
+“Pantrinome! The assassin cat!” Awoomoon put her hands in the air and made a growling gesture.
+
+All the pups screamed.
+
+“Did we die?” One of the pups asked.
+
+Awoomoon chuckled. “No, little one. You’re still here, right? You survived.
+
+But you did come face-to-face with the most dangerous, most beautiful cat in the world. She had drums on her hips that when she played them, she could stop your heart beat. And when she approached me, she beat the drums at me, getting ready to stop mine.
+
+She didn’t speak, but I knew what she was saying. ‘Surrender now or I will kill you… now!’
+
+And you know what I told her? I said, ‘Pantrinome! I know it is you! I know you have come to kill me, to finish your mission, but you will not succeed!’ Do you know why I knew she wouldn’t succeed?”
+
+“Ooh! Ooh!” A pup raised his paw hand.
+
+“Yes, Wryonin?”
+
+“Because you have Alpha’s blessing!”
+
+“That’s right! I had Alpha’s blessing, and I knew he would never let her hurt me.
+
+So I told her, ‘I have Alpha’s blessing. You can not hurt me.’ And then she stopped drumming, knelt down in front of me, and cried. She knew she couldn’t complete her task. So instead, she greeted you newborn pups, kissing each one of you.”
+
+“You’ve been kissed by a cat!” Mudrich teased Wryonin, making kissy lips.
+
+“No, you’ve been kissed by a cat!” Wryonin shoved her away.
+
+“Then what happened?” Ersatzica asked.
+
+“Then, your father came in. He was a big, strong, brave wolf. He had a shiny mound on his forehead, just like you Lemilay.”
+
+“Me?” Lemilay looked up at the bald spot on her forehead.
+
+“Yes. And he saw where Pantrinome had gone, and came to protect us. He thrust his sword into Pantrinome, killing her.”
+
+“No more scary cat lady!”
+
+“No more scary cat lady.” Awoomoon confirmed. “But as it turns out, the scary cat lady was also pregnant. We rescued four babies out of her, before she passed. We found homes for all the kitten babies.”
+
+“Awww…” some of the pups cooed.
+
+“Ew.” Wryonin gagged.
+
+Ersatzica raised a paw hand.
+
+“Yes, Ersatzica?”
+
+“I thought this was the story of how I got my scar?” She parted some fur on her belly to show a scar from a cut.
+
+“Oh. Yes, that.” Awoomoon looked away, flustered. “That was an accident. But all you pups are safe and sound now, because the scary cat lady is dead, and can never harm you again. And as long as you stay in Alpha’s guiding moonlight, no cat shall ever harm you.”
 
 # Chapter 1 – The Drums of Retriyoan
 
-Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
+Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white teenage wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
 
 Her workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for one more project.
 
