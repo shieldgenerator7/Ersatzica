@@ -8,7 +8,9 @@ Content Warning: blood, gore, emotional abuse, physical abuse, violence, kissing
 
 # Prologue
 
-“It was a dark and stormy night, when the cats attacked. You all were just newborn pups when it happened.” Awoomoon spoke to her children, who were still young pups.
+“It was a dark and stormy night, when the cats attacked. You all were just newborn pups when it happened.” Awoomoon waded in the river with her young children, who were still young pups. She was wrangling them to give them a bath.
+
+[make this more bath time sounding]
 
 “It wasn’t an army, it was an elite team of assassin cats, and they came for mommy’s head. Because you know, I was the chief’s wife at the time. This was back when daddy was still alive.
 
@@ -49,6 +51,8 @@ So I told her, ‘I have Alpha’s blessing. You can not hurt me.’ And then sh
 “You’ve been kissed by a cat!” Mudrich teased Wryonin, making kissy lips.
 
 “No, you’ve been kissed by a cat!” Wryonin shoved her away.
+
+[make it more obvious that awoomoon is telling the real events at first, then changes things to be more pup-friendly]
 
 “Then what happened?” Ersatzica asked.
 
