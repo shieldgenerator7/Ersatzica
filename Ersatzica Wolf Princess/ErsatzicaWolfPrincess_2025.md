@@ -82,17 +82,25 @@ Ersatzica raised a paw hand.
 
 Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white teenage wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
 
-Her workshop was a comfortable, organized chaos of projects, tools, and materials. The counters that lined the walls were full of past projects, full barrels sat in a corner, and cupboards on the wall were bursting with materials. The entire space was full, and yet she always had room for one more project.
+Her workshop was a comfortable, organized chaos of projects, tools, and materials. Counters lined the walls full of past projects, barrels sat in a corner full of future projects, and cupboards on the wall were bursting with materials for current projects. The entire space was full, and yet she always had room for one more project.
 
-[describe her screwdriver: flatblade, shaft has knife and saw, handle has file on one side, can be used as a chisel]
+Her main tool was her trusty screwdriver. It was a flatblade with a metal shaft that extended all the way through the handle, allowing it to be used as a chisel. The shaft was also flat and had two sides: a toothed saw side for cutting wood, and a flat sharp knife side for cutting leather. Finally, there was an iron file on the handle for removing burrs.
 
 She opened a cupboard and pulled out a dried skin, careful not to let anything fall out. With her trusty screwdriver, she sliced the leather, cutting off a thin strip. She sprawled the belt flat across her worktable and laid the strip on top of it. She sewed it together over the course of half an hour. Wiping the sweat off her brow, she admired her handiwork.
 
 Her brother wasn’t here to test it out, so she herself tried it on. She dug her paw hands into the bag of rocks and easily pulled one out. Check. She unsheathed and sheathed the knife. Check. She took out the bladder, pretended to drink from it, and put it back. Check. She unholstered the slingshot and tried to re-holster it, but a wooden spike on the slingshot scraped across the belt. Uncheck.
 
-She placed the culprit on the worktable, eyeing the spike. “I want to remove this spike, but he told me not to.” She looked to the slingshot for validation, but it offered no response. “But if I don’t, he’ll wear a cut into his belt again.” She held down the slingshot and held up the file part of her screwdriver. “This will only hurt for a moment.” She filed down the spike to a round bump. “There! All done.”
+She placed the culprit on the worktable, eyeing the spike. “I want to remove your spike, but he told me not to.” She looked to the slingshot for validation, but it offered no response. “But if I don’t, you’ll wear a cut into his belt again.”
 
-When she holstered the slingshot, it didn’t scrape the new patch of belt. Check.
+She tapped on the table with her screwdriver.
+
+She held down the slingshot and held up the file part of her screwdriver. “This will only hurt for a moment.”
+
+She filed down the spike to a round bump.
+
+“There! All done.”
+
+She holstered the slingshot, and it didn’t scrape the new patch of belt. Check!
 
 *KNOCK KNOCK*
 
@@ -104,7 +112,9 @@ The door burst open, releasing a short, all-white wolf girl. She ran up to Ersie
 
 “Calm down, Muddy.” Ersie pushed her back. “It’s right here.” From a barrel, she pulled out a metal hammer that was about as big as the white wolf girl was.
 
-Muddy’s fingers wiggled as she grabbed it. “This feels great!” Despite her small stature, she lifted the hammer with the heft of someone who moves dirt all day—because she does. She carelessly swung the hammer around, hitting the door and knocking the locking mechanism askew.
+Muddy’s fingers wiggled as she grabbed it. Despite her small stature, she lifted the hammer with the heft of someone who moves dirt all day—because she does. She carelessly swung the hammer around, hitting the door and knocking the locking mechanism askew.
+
+“This feels great! Much better!”
 
 “Not in here!”
 
@@ -128,7 +138,9 @@ Muddy’s fingers wiggled as she grabbed it. “This feels great!” Despite her
 
 “Not today, Muddy. I got stuff to do.”
 
-“Ok, see you later!” Muddy ran out.
+“Awww… Okay…” She looked down. “Anyway, see you later!” Muddy ran out.
+
+“Bye Muddy!”
 
 Ersie got to work on the next project: two identical drums. They had once been attached together by a belt, but that belt had since worn away. The drums were painted red with a gold trim and had impeccable craftsmanship. A blue glint shimmered across the drums. Ersie felt a closeness to them that she couldn’t explain, like the drums were welcoming her to work on them.
 
@@ -138,7 +150,7 @@ Ersie got to work on the next project: two identical drums. They had once been a
 
 Her brother Wryonin, a black and grey wolf boy, pushed the workshop door open and marched inside. “How’s it coming?”
 
-Ersatzica looked up at him as she handed him the belt. “I fixed your belt, like you asked. I stitched it up, good as new, it should last a lot longer now.”
+Ersatzica looked up at him as she handed him the belt. “I fixed your belt, like you asked. I stitched it up, good as new. It should last a lot longer now.”
 
 Wryonin wrapped the belt around his waist and felt around for the items. “Where’s the slingshot?”
 
@@ -208,7 +220,7 @@ She pressed on, taking the belt off and preparing to detach the drums again.
 
 “My stake is broken!”
 
-“How that happen?”
+“How did that happen?”
 
 “I was trying to pound it into the ground, but when I hit it with my hammer, it just snapped instead.”
 
@@ -270,7 +282,7 @@ Ersie, with the drums still attached to her side, banged on them. *BUM BUM BUM*
 
 “Oh yeah!” Muddie danced to the music.
 
-Muddie danced to the beat of Ersie’s drums .
+Muddie danced to the beat of Ersie’s drums.
 
 “Whoa!” Muddie’s eyes went wide. “Did you feel that?”
 
