@@ -12,15 +12,15 @@ Content Warning: blood, gore, emotional abuse, physical abuse, violence, kissing
 
 [make this more bath time sounding]
 
-“It wasn’t an army, it was an elite team of assassin cats, and they came for mommy’s head. Because you know, I was the chief’s wife at the time. This was back when daddy was still alive.
+“It wasn’t an army, it was an elite team of assassin cats, and they came for mommy’s head. Because you know, mommy is a very important wolf. This was back when daddy was still chief.
 
-These cat assassins were trained in war, and had killed before. So many before. And they were led by none other, than the ferocious Pantrinome! Pantrinome was the fiercest of cats. She could jump at you from the shadows, stab you through the heart, and slip away before anyone knew what was happening. And she was so silent, you couldn’t hear her coming.”
+“These cat assassins were trained in war, and had killed before. So many before. And they were led by none other, than the ferocious Pantrinome! Pantrinome was the fiercest of cats. She could jump at you from the shadows, stab you through the heart, and slip away before anyone knew what was happening. And she was so silent, you couldn’t hear her coming.”
 
 The wolf pups hugged each other and trembled, looking behind them to see anything in the shadows.
 
-“But, she was also the prettiest cat, too. Like, the most beautiful. She had fur the color of reeds, hair the color of red wine, and the very *tip* of her tail looked like she had dabbed it in blood.
+“But, she was also the prettiest cat, too. Like, the most beautiful. She had fur the color of reeds, hair the color of red wine, and the very *tip* of her tail looked like it had been dabbed in blood.
 
-She found me, in my room. I had just given birth to you all, you all had just come into the world. And the very first thing you saw, when you opened your little eyes, was me, of course. But after that, do you know what the very first thing your cute little eyes saw?”
+“She found me, in my room. I had just given birth to you all, you all had just come into the world. And the very first thing you saw, when you opened your little eyes, was me, of course. But after that, do you know what the very first thing your cute little eyes saw?”
 
 “What?” They said in unison.
 
@@ -32,11 +32,11 @@ All the pups screamed.
 
 Awoomoon chuckled. “No, little one. You’re still here, right? You survived.
 
-But you did come face-to-face with the most dangerous, most beautiful cat in the world. She had drums on her hips that when she played them, she could stop your heart beat. And when she approached me, she beat the drums at me, getting ready to stop mine.
+“But you did come face-to-face with the most dangerous, most beautiful cat in the world. She had drums on her hips that when she played them, she could stop your heart beat. And when she approached me, she beat the drums at me, getting ready to stop mine.
 
-She didn’t speak, but I knew what she was saying. ‘Surrender now or I will kill you… now!’
+“She didn’t speak, but I knew what she was saying. ‘Surrender now or I will kill you and all of your pups!’
 
-And you know what I told her? I said, ‘Pantrinome! I know it is you! I know you have come to kill me, to finish your mission, but you will not succeed!’ Do you know why I knew she wouldn’t succeed?”
+“And you know what I told her? I said, ‘Pantrinome! I know it is you! I know you have come to kill me, to finish your mission, but you will not succeed!’ Do you know why I knew she wouldn’t succeed?”
 
 “Ooh! Ooh!” A pup raised his paw hand.
 
@@ -44,9 +44,9 @@ And you know what I told her? I said, ‘Pantrinome! I know it is you! I know yo
 
 “Because you have Alpha’s blessing!”
 
-“That’s right! I had Alpha’s blessing, and I knew he would never let her hurt me.
+“That’s right! Alpha, the Wolf God of the Loyal Moon, the one true god, had given me his blessing for being a good wolf of loyalty. And because I had Alpha’s blessing, as all wolves of loyalty do, I knew she could never hurt me.
 
-So I told her, ‘I have Alpha’s blessing. You can not hurt me.’ And then she stopped drumming, knelt down in front of me, and cried. She knew she couldn’t complete her task. So instead, she greeted you newborn pups, kissing each one of you.”
+“So I told her, ‘I have Alpha’s blessing. You can not hurt me.’ And then she stopped drumming, knelt down in front of me. She knew she couldn’t complete her task. So instead, she greeted you newborn pups, kissing each one of you.”
 
 “You’ve been kissed by a cat!” Mudrich teased Wryonin, making kissy lips.
 
@@ -76,7 +76,7 @@ Ersatzica raised a paw hand.
 
 “I thought this was the story of how I got my scar?” She parted some fur on her belly to show a scar from a cut.
 
-“Oh. Yes, that.” Awoomoon looked away, flustered. “That was an accident. But all you pups are safe and sound now, because the scary cat lady is dead, and can never harm you again. And as long as you stay in Alpha’s guiding moonlight, no cat shall ever harm you.”
+“Oh. Yes, that.” Awoomoon looked away, flustered. “I got carried away. Your scar? hat was an accident. But all you pups are safe and sound now, because the scary cat lady is dead, and can never harm you again. And as long as you stay in Alpha’s guiding moonlight, no cat shall ever harm you.”
 
 # Chapter 1 – The Drums of Retriyoan
 
