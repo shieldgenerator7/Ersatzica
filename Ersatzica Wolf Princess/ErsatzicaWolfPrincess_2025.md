@@ -6282,7 +6282,7 @@ Majestra adjusted her fingers on the torch. Her arms were starting to bow under 
 
 “I do.” Lemilay nodded.
 
-“And do you, daughter of Marvelosa, take this wolf to be your lawfully assigned chief?”
+“And do you, Majestra, daughter of Marvelosa, take this wolf to be your lawfully assigned chief?”
 
 “I do.”
 
