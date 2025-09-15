@@ -68,17 +68,21 @@ If the wearer wears the wolf skin for a long period of time, they will still age
 
 It can be Ship of Theseus’d, but the new pieces don’t gain any magic properties.
 
-# Retriyoan’s Drum
+# Retriyoan’s Drums
 
 Cat
 
-A wearable drum that controls the action rate of those who sync to it.
+Wearable drums that controls the action rate of those who sync to it.
+
+Originally designed to be strapped to the user’s thigh, facing left and right, and pounded as the user ran.
 
 # Feistiven’s Tooth
 
 Wolf
 
-A tooth amulet that kills anyone who tries to kill the wearer, Final Destination style, with preference for stabbing through the heart.
+A tooth amulet that kills anyone who tries to kill the wearer. Bite marks appear in the perpetrator’s neck that would insta-kill most beings. Simply harming doesn’t trigger it, only taking an action with the intent to kill. Can only target one creature at a time. Has a range as long as a spear is typical thrown. If there are several assailants, it prioritizes the closest one. Distance between assailants doesn’t effect its attack rate.
+
+When Awoomoon’s wolf husband died, he kept his promise to always protect her by leaving a single tooth behind. This is how he shows her his loyalty, even after death. Effectively, this heirloom acts as plot armor in most situations.
 
 # Yotleph’s Skull
 
@@ -114,11 +118,23 @@ Cat
 
 Telescope that lets you see through solid objects.
 
-# Stopwatch of ?
+# Tinsel’s Time Keeper
 
-Cat?
+Cat
 
-Stopwatch that has a timer that can be set. When it goes off, every object in its vicinity gets rewound to the time when the stop watch timer was started.
+Pocket watch that is stuck at the time that Tinsel died. When you wind the knob to go forward in time, and then wind the gear mechanism, it rewinds over the course of a fixed amount of seconds so that it points to the time it’s stuck on. It rewinds time for things that are in its vicinity when the process starts, even if they leave the area as part of the process. Objects that enter the area during the process aren’t effected. How far back the objects get rewound is determined by how far ahead the minutes and seconds were set.
+
+This heirloom can used to rebuild walls, revive people, and relocate back to a previous position.
+
+This was originally logged as a useless heirloom, because winding the gear mechanism causes it to near instantly unwind and the pocket watch doesn’t tick. It took a long time before someone tried setting the time and then winding the gear mechanism. And even when that happened, there was nothing that obviously changed in the area. The only thing that changed was the food in the user’s body, causing them to vomit after the process completed.
+
+You are conscious and can feel the process happening if you are effected by it. You retain all memories even if your whole body gets rewound.
+
+Many heirlooms have an aura of effect, like Retriyoan’s Boots and the Yotleph’s Skull. This heirloom does not. If you get your hand in the area but not the rest of your body, it will only effect your hand, but will pull you by your hand to rewind time for your hand.
+
+This heirloom can’t be Ship of Theseus’d because it rewinds time for itself whenever it breaks and/or is taken apart.
+
+It was at one point considered a cursed item before its effects were fully known, because a user had a violent vomiting reaction to its effects to the point that they needed medical attention afterwards.
 
 # Garoftle’s Candle
 
@@ -228,13 +244,23 @@ Cat
 
 Picket and Roastboard were two cat brothers who grew apart when they couldn’t decide how to divvy up the land their father left. They finally made amends by building a bridge over the creek they dug and the fences they put up.
 
-When two fence posts are planted in the ground so it can stand upright, and it’s facing a fence post from the opposite brother, a bridge magically gets built over the fence posts. This effect has a range of 1 mile. The bridge building starts on both sides of the fence posts, and continues until they meet somewhere in between, usually in the middle. The bridge is about wide enough for 2 people to walk comfortably side to side. If the bridge building process encounters obstacles, it will go around them if the width of the bridge could go around it. If not, the bridge building stops from that side.
+When two fence posts are planted in the ground so it can stand upright, and it’s facing a fence post from the opposite brother, a bridge magically gets built over the fence posts. This effect has a range of 1 mile. The bridge building starts on both sides of the fence posts, and continues until they meet somewhere in between, usually in the middle. The bridge is about wide enough for 2 people to walk comfortably side to side. If the bridge building process encounters obstacles, it ignores it, largely because the obstacle will be repurposed for building materials.
 
 As long as the fence posts are planted, the bridge will continue to build itself and rebuild itself if damaged. Rock and dirt from near where the bridge is being built are used in the construction of the bridge. This defies gravity.
 
 When the pickets are removed, the effect on the materials ends. If the resulting bridge is stable, it remains. If the resulting bridge is not stable, it is effected by gravity and other outside forces, and will likely crumble.
 
 It is interesting to note that because the bridge gets built over the picket fence posts, the bridge actually protects the posts and makes them difficult to remove.
+
+It uses the closest solid it can find, and cuts rectangular bricks out of it that get levitated into place. The sturdiness of the material is not considered, meaning it’s possible for someone to step through a brick if it was made out of less sturdy materials, such as mud or flesh. It also doesn’t consider the longevity of the material. If it makes a brick out of ice, it can melt.
+
+If any bricks fall or are destroyed, it replaces them individually in the order that they fell. If this happens during the initial building process, the fixes happen after the bridge is completed. There may be a delay between the brick breaking and the rebuilding process.
+
+A brick is only replaced if at least 50% of the brick has been destroyed. If a brick has been displaced but not destroyed, it will attempt to move the brick back into its original location.
+
+Bricks can float on their own in the middle of the air while the rebuilding process is happening.
+
+The ground that supports the fence posts will not be considered for building materials.
 
 # The Antlers of Combination
 
@@ -283,6 +309,14 @@ Cat
 When the spear tip hits something and stops, it teleports its user to its location, or to some space available for them. This happens whether the spear was thrown or merely thrusted.
 
 Awoomoon’s wolf husband used this heirloom to kill Pantrinome.
+
+The teleport actually blinks the user out of existence for 1 second and then blinks them back into existence at the closest possible point near the spear without phasing into solid objects. Any gas or liquid displaced by the user appears at their original location instead, meaning this heirloom can technically be used to transport water.
+
+When the user is blinked out of existence, they see a black void for that one second, and the spear in the position it landed. They can use this time to slightly adjust where they appear back, and can grab onto the spear in the void, appearing grabbing the spear when they come back.
+
+Originally thought to be a cursed heirloom because, when thrust in melee range, it would blink the user out and back in a similar position, making it easy to predict where they would reappear at. Also, the blinking in and out was very disruptive to standard combat manuevers.
+
+Awoomoon’s wolf husband was the one who originally discovered its true power and adapted his fighting style to accommodate it.
 
 # Epaulette of The High One
 
