@@ -5674,9 +5674,7 @@ As the fight wore on, more and more cats stepped up. Occasionally a wolf would f
 
 Muddy was across the river, in an area she hadn’t been in for very long. She didn’t have any tunnels over there to dive into for safety. And she was tiring out. Ersie could see it in the way she swung her hammer. She was overexerting herself and had severely overestimated her endurance.
 
-Suddenly, one of the cats next to Mudrich turned into a giant wolf, muscles bulging out, with a howl as loud as Ersie’s drums. It fought off the cats around Mudrich, and knocked her back to the wolf side, where other wolves could escort Mudrich away from the front lines.
-
-Ersie noticed Mother fighting in the chaos, beating up the cats with her Pea-Fo moves. Ersie synced to her moves, speeding her up.
+Ersie noticed Mother fighting in the chaos, beating up the cats with her Pea-Fo moves. Ersie synced to her moves, speeding her up. She fought her way to Mudrich, and gave her an opening to get back to the wolf side.
 
 Mother seemed to move in slow motion, even with the drums boost. She moved in fluid ways, and some cats fell around her, as if being hit by an invisible force. Many cats died while charging up to her. Others hit the ground from just one punch, kick, or bite.
 
