@@ -782,7 +782,7 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 # Chapter 2 – The Cuffs of Tigrin
 
-[have them go to medic bear lersha]
+[have them go to medic bear lersha, have this scene take place there instead]
 
 ===
 
@@ -904,7 +904,9 @@ They all bowed their heads. Mudrich leaned her head into Mother’s chest floof.
 
 He blew out the candle and climbed into bed himself.
 
-===
+## === Discovery of Cuffs
+
+[have cuff scene take place next day in ersie’s workshop]
 
 “How are you feeling, Ersie?” Mudrich reached up and poked the bottom of Ersie’s top bunk.
 
@@ -1001,6 +1003,8 @@ Everyone joined in for, “In your guiding moonlight.”
 “Goodnight.”
 
 He blew out the candle and climbed into bed himself.
+
+[move census mini-arc here]
 
 # Chapter 3 – The Boots of Pantrinome
 
