@@ -652,6 +652,8 @@ Ersie scrambled to her feet. She beat the drums as she marched forward. *BUM BUM
 
 Mudrich showed Wryonin how to sync with the drums. He stiffly jogged in place to sync to it, much less fun than Mudrich’s jig. When both were synced, Ersie played faster. Mudrich and Wryonin ran off ahead.
 
+[switch to wryonin’s pov, have mudrich almost die while fighting a giant cat, and get injured]
+
 Ersie ran as fast as she could without tearing her scar. She held her belly with one hand as she beat a drum with the other. She heard a lot of commotion ahead that she couldn’t see. Lemilay ran behind her, pushing her pace.
 
 When Ersie and Lemilay got to the beach, multiple cats were laying scattered and bloodied on the beach. The delicious taste of iron and the putrid smell of guts clashed in a battle almost as epic as Mudrich’s battle with the cats, who were struggling to fight off Mudrich.
@@ -677,6 +679,8 @@ Mudrich made short work of the stranded cats. Her muddy fur coat was now also co
 “Ok, now find the telescope.”
 
 “You runts!” Lemilay yelled. “You let him get away!”
+
+[have the “stolen” object be mudrich’s hammer]
 
 “Yeah, but look at all those who didn’t. Now you just got to find which one—”
 
@@ -776,9 +780,11 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 “Muddie, do you believe in ghosts?”
 
-[have mother tell ersie the story of Nosalen to discourage her from crossing the river again]
+# Chapter 2 – The Cuffs of Tigrin
 
-# Chapter 3 – The Boots of Pantrinome
+[have them go to medic bear lersha]
+
+===
 
 The four wolf siblings entered their bedroom.
 
@@ -894,7 +900,7 @@ Everyone joined in for, “In your guiding moonlight.”
 
 He blew out the candle and climbed into bed himself.
 
-===
+# Chapter 3 – The Boots of Pantrinome
 
 The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ersatzica to fetch Nephalie.
 
