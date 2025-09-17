@@ -790,19 +790,121 @@ The four wolf siblings entered their bedroom.
 
 “So what do we tell Mother?” Wryonin asked Lemilay as he hung his utility belt on a hook on his bed.
 
-“She’s not coming today, don’t worry.” Lemilay took her brush and dusted herself off outside the doorway.
+“We’ll tell her we were ambushed by cats.” Lemilay took her brush off the wall and dusted herself off outside the doorway.
 
-“But what about next time we see her? Surely, she’s going to ask.”
+“And we did our best to get away.”
 
-“Fine. We’ll just tell her Ersatzica got kidnapped by evil cats, and that we saved her.”
+“Yes.”
 
-“But I *didn’t* get kidnapped.” Ersatzica climbed into her top bunk, above Mudrich’s.
+“But how do we explain why Erse is all wet?”
 
-“They surrounded you. Cats and wolves are both mammals.” Lemilay said.
+“She took a bath.”
 
-“Well I hope the eye piece was worth it.” Wryonin remarked.
+“Yes, that should work.”
 
-“It will be, don’t worry. Just wait and see.” Lemilay smugly rubbed the spyglass. She hung the brush up on the wall and stepped into the room, tiptoeing to her bed, bunked under Wryonin’s.
+“Everyone on the same page about this?” Lemilay looked at Mudrich and Ersatzica.
+
+They looked at each other, then nodded.
+
+“Good.”
+
+“Are you feeling ok, Muddy?” Ersie slid down from the top bunk next to Muddy on her bed.
+
+“It hurts.”
+
+Muddy whimpered.
+
+“Can you still move your hand?”
+
+*BARK!* Muddy moved her right hand, flexing her fingers in and out.
+
+“That’s good.” She licked her forehead.
+
+Footsteps approached from outside. They were heavy and steady, like someone marching right to their door. The door opened, and there stood Mother.
+
+She stood at the same height as Wryonin, but her chest floof and thick fur made her appear bigger. This is even with a lack of a tail, as half of it was missing. Scars lined her left arm, and a parting of fur on her cheek indicated a scar beneath the fur below her furious eyes, which stood out menacingly from the dark night outside.
+
+“Where’s Mudrich.” She growled, stomping into the room.
+
+Mudrich whimpered, running up to her, hugging her as tight as she could without moving her injured arm.
+
+Mother immediately noticed the bandage on her arm, and it set her off. “What happened!” She stared teeth into Wryonin’s face.
+
+He swallowed. “We were ambushed by cats.”
+
+“Where.”
+
+“By the river on the north side.”
+
+“What were you doing there? Didn’t you hear that area is off limits?”
+
+“Well, yes, but—”
+
+“Then WHY were you there?”
+
+“We-we were—”
+
+“Don’t you know how STUPID that is! You put Mudrich in danger!”
+
+“I—”
+
+“The next words out of your mouth better be ‘I’m sorry’. As her brother, it’s YOUR responsibility to protect her.”
+
+“I’m sorry.”
+
+“Good.” She turned to Mudrich. “Are you otherwise ok?”
+
+Mudrich nodded.
+
+“What happened, my pup?”
+
+“They hurt Ersie! I chased them off, then I chased them down and beat them up!”
+
+“Did any survive?”
+
+“Nope!”
+
+“Well, next time, don’t go chasing cats, ok? You’re very precious to me, and I don’t want you putting yourself in danger.”
+
+“But they put Ersie in danger. So I had to!”
+
+“Listen. It’s good that you kept Ersie safe. But you can’t go looking for trouble. Ok?”
+
+“Ok.”
+
+“Anything else I should know about while I’m here?” She glared at Wryonin in particular.
+
+Ersatzica opened her mouth to speak, but withdrew.
+
+“Yes, Ersatzica?”
+
+“Is there such a thing as a good cat?”
+
+“Where is this coming from?”
+
+“I’m just curious.”
+
+“The cat kingdom is full of evil, Ersatzica. Don’t trust any cat you meet.”
+
+“Ok.”
+
+“Alright, my pups. Time for prayer.”
+
+They all bowed their heads. Mudrich leaned her head into Mother’s chest floof.
+
+“Alpha, Wolf God of the Loyal Moon, thank you for protecting my pups today. Please help Mudrich recover from her injury. And please help guide my pups as she they grow through these difficult times. May we always walk in your guiding moonlight,”
+
+*Awoo.* (“Moon”) They all howled in unison.
+
+“Goodnight my pups.” Mother licked each on the forehead, and then closed the door behind her.
+
+“Alright, everyone ready?” Wryonin held the lantern up, checking to make sure each of his sisters was in bed. “Goodnight.”
+
+“Goodnight.”
+
+He blew out the candle and climbed into bed himself.
+
+===
 
 “How are you feeling, Ersie?” Mudrich reached up and poked the bottom of Ersie’s top bunk.
 
