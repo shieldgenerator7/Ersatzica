@@ -327,3 +327,33 @@ Fancy shoulder pads connected together. When placed on the ashes of a person, it
 Only works on ashes, not on dead bodies.
 
 The High One used this heirloom on himself to become virtually immortal, allowing him to start and rule the Cat Kingdom for centuries.
+
+# Shovel of ?
+
+Cat
+
+This cat was killed by Mudrich and Wryonin in Ch1.
+
+It glows blue when near another heirloom, even through walls. It glows brighter the closer an heirloom is. It only reacts to the closest heirloom.
+
+It reacts to the Wolfskin of Monassus even when worn.
+
+# Helmet of ?
+
+Cat
+
+This cat was killed by Mudrich and Wryonin in Ch1.
+
+When worn, it gives the wearer massive migrains. Extended wearing of the helmet can cause the wearer’s head to explode.
+
+# Sword of ?
+
+Cat
+
+This cat was killed by Mudrich and Wryonin in Ch1.
+
+While in direct physical contact with its wielder, it gets heavier over time. While not in direct contact with anyone, it gets lighter over time, eventually returning to its original weight.
+
+It doesn’t gain mass, it just becomes more and more susceptible to gravity.
+
+Wearing gloves stops it from getting heavier.
