@@ -908,6 +908,120 @@ He blew out the candle and climbed into bed himself.
 
 [have cuff scene take place next day in ersie’s workshop]
 
+The next day, Mudrich followed Ersatzica to her workshop in the morning. Her right arm was still feeling very weak.
+
+“What do you think these new heirlooms do?” Ersatzica pulled out some items from a barrel and laid them on her worktable.
+
+“Hmmm…” Mudrich looked them over, sniffing each one. “This shovel glows in the dark, this helmet is a cursed item, this sword can be used as a toothpick, and these silver ring things return to you when thrown.”
+
+Each item glimmered blue when Mudrich mentioned them.
+
+“Well, let’s test and find out.” Ersatzica handed the shovel to Mudrich.
+
+They went down to the forest to test the items out in a small clearing, which happened to have lots of mud.
+
+After some testing, they discovered that the shovel glows bright blue all the time, the sword gets heavier the longer you hold it, the helmet gives you a headache, and the silver rings do not return when thrown.
+
+“Well you were right about one thing.” Ersatzica noted.
+
+“Yeah.” Mudrich whimpered. “I’m going to go dig some holes now.”
+
+“Wait, can you help me carry these back up to my workshop first?”
+
+“Ok.” Mudrich picked up the rings, and on a whim, slid them onto her wrists, one on each arm. Then she picked up the shovel, helmet, and sword.
+
+“You got all of it?”
+
+“Yep!”
+
+They got to the bottom of the stairs, then Mudrich gasped. “Hold on a second!”
+
+“What?”
+
+“I’m holding the sword!”
+
+“You are.”
+
+“But it’s heavy!”
+
+“Huh?”
+
+“And my right arm is weak—” Then she dropped the sword. “Ok it got too heavy.”
+
+“I don’t get it.”
+
+Mudrich dropped all the items, but kept the silver rings on. “Try and pick up the sword.”
+
+“Ok.” Ersie knelt down to pick it up, but it wouldn’t come up. “It’s too heavy.”
+
+“Ok now wait a minute.” After a pause, Mudrich knelt down and picked up the sword with ease. With her injured right arm.
+
+“Muddy, how can you do that?”
+
+Muddy then took off the silver rings. She knelt down again to pick up the sword, but couldn’t. Putting the rings on again, she could pick it up again.
+
+“Ah, I see. The rings give you super strength!”
+
+“Yeah!” She raised her hands in the air, and the rings went flying off. “Oh, but they are *way* too loose.”
+
+“I can fix that.”
+
+Mudrich carried the items back to Ersie’s workshop, dropping the sword every so often to wait for it to lighten up again. There, Mudrich spotted her hammer.
+
+“Hammer, my hammer!” She slid the rings up her arm and picked her hammer up with ease. “I was worried I’d never be able to lift it again!” She hugged it, and then swung it around.
+
+“Muddy! Not in my workshop!”
+
+Muddy swung it right into a wall, knocking one of the bricks out. “Oops. Sorry, Ersie.”
+
+Ersie grumbled. “It’s ok…”
+
+“It looks like it’s just one brick. Surely we can get that easily fixed, right?”
+
+“Let me see.” Ersie knelt down to look at the hole. It was pitch black behind it, and an awful smell of feces and mold poured out of it. “What is this?”
+
+“Let me take a look!” Muddie pushed Ersie aside to stick her face in the hole, and then immediately regretted it. “Ew!” She covered her nose.
+
+“We should probably fetch Nephalie.”
+
+“Yeah, I’ll do that.” Muddie left the workshop.
+
+===
+
+When Mudrich came back, she came alone.
+
+“Where’s Nephalie?”
+
+“She’s busy. And also Mother wants to see us.”
+
+“Now?”
+
+“Mm hmm.”
+
+“But’s not bedtime yet.”
+
+“M hm mm.” Mudrich shrugged.
+
+Ersie and Muddie went to their bedroom, where Wryonin, Lemilay, and Mother were waiting. After initial greetings, Mother started the meeting.
+
+[maybe get the other scene in here]
+
+“It has come to my attention that you are growing up very fast.” Mother began. “One day, one of you will take my place as chief of the wolf village. And that day may be coming sooner than I realize. And it has come to my attention that I have not properly prepared you all for that day.”
+
+“I’m prepared.” Lemilay said.
+
+“Hush. So today, we’re going to start a series of challenges that will help prepare you for leadership. These challenges will also be used to determine who is most worthy of claiming the title.”
+
+Wryonin and Lemilay looked at each other like two combatants in an arena.
+
+“The first task will be to do a census. You will have to answer the question, ‘How many wolves are there in the village?’ You have until bedtime tonight.”
+
+“You said wolves. Did you mean ‘people’? Do you want us to also count deer, bears, and beavers?”
+
+“And peacocks.” Lemilay injected.
+
+“Sure.” Mother said.
+
 “How are you feeling, Ersie?” Mudrich reached up and poked the bottom of Ersie’s top bunk.
 
 “Ow.” Ersie shifted, peeking over the edge at Mudrich. “I’m fine. A little tired, a little wet. But otherwise, fine.”
@@ -4234,7 +4348,7 @@ Ersie stood up. “Fisher?” *Could it really be…?*
 
 A figure arose from a bush. It was too dark to see anything other than their silhouette, but it was definitely a cat. “Ersie?” He walked forward into the small clearing under the trees. He wore a hat with a feather sticking out of it.
 
-“Fisher?” She approached. As she got closer, the cat definitely was black and white, and had a bandage over an eye. “Fisher!” *It really is! It really is!* She jumped out of her wolfskin, pouncing on him with a passionate kiss. *I can’t believe he’s alive!* They lingered for a tender moment. *I may be a wolf, and he may be a cat, and this may be wrong, but I don’t care. As long as he’s ok—*then Ersie backed off. Sheepishly smiling, she said, “Sorry, I’m just so excited to see you—”
+“Fisher?” She approached. As she got closer, the cat definitely was black and white, and had a bandage over an eye. “Fisher!” *It really is! It really is!* She jumped out of her wolfskin, pouncing on him with a passionate kiss. *I can’t believe he’s alive!* They lingered for a tender moment. \*I may be a wolf, and he may be a cat, and this may be wrong, but I don’t care. As long as he’s ok—\*then Ersie backed off. Sheepishly smiling, she said, “Sorry, I’m just so excited to see you—”
 
 Fisher put a finger to her mouth, wiping a tear from her eye. “I love you, too, Ersie.” He kissed her back.
 
@@ -5158,7 +5272,7 @@ Through the antlers, Ersatzica saw her arms, and her legs. They looked exactly l
 
 Ersatzica held the antlers of truth up to the makeshift mirror, eyes closed. When I open my eyes, it’ll show me a wolf. It’ll show me a wolf. I’m a wolf. She opened her eyes. The shocked yet jubilant expression of an orange feline greeted her. Her red hair flowed over her green eyes, around her white muzzle, and down to her orange-striped shoulders. “I’m a cat.” She smiled. She stared at her reflection through the antlers.
 
-*I’m… a cat. I can’t believe it. But then, why am I surprised? Mother told me I was. So it makes sense that I would be. But why… Why am I so happy to see this? Did I want to be a cat? Have I always wanted this? Well, no… but this? This feels like* me*. But if I’m a cat, how do I stay loyal to my wolf pack?*
+*I’m… a cat. I can’t believe it. But then, why am I surprised? Mother told me I was. So it makes sense that I would be. But why… Why am I so happy to see this? Did I want to be a cat? Have I always wanted this? Well, no… but this? This feels like* me\*. But if I’m a cat, how do I stay loyal to my wolf pack?\*
 
 “You happy now?” Nephalie interrupted.
 
@@ -5530,7 +5644,7 @@ She cupped her hands to catch the water, but the drops came too slowly, and the 
 
 Ersatzica beat the drums every time a drop fell.
 
-*drip, BUM. drip, BUM.*  *drip, BUM.*
+*drip, BUM. drip, BUM.* *drip, BUM.*
 
 Then she beat the drum a little faster.
 
@@ -5962,7 +6076,7 @@ Meanwhile, the cats crossed the bloody river of corpses. It didn’t matter that
 
 *Mother can’t kill the tall cat. And their army outnumbers us. We’ll all die before we fend them off.*
 
-# Chapter 14 –Epaulette of the High One
+# Chapter 14 – Epaulette of the High One
 
 Ersatzica, convinced that the wolves were about to lose the battle, decided the best course of action was to find Lemilay.
 
