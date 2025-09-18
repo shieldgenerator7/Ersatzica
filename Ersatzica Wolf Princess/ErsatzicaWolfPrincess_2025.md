@@ -906,8 +906,6 @@ He blew out the candle and climbed into bed himself.
 
 ## === Discovery of Cuffs
 
-[have cuff scene take place next day in ersie’s workshop]
-
 The next day, Mudrich followed Ersatzica to her workshop in the morning. Her right arm was still feeling very weak.
 
 “What do you think these new heirlooms do?” Ersatzica pulled out some items from a barrel and laid them on her worktable.
@@ -970,6 +968,8 @@ Mudrich carried the items back to Ersie’s workshop, dropping the sword every s
 
 “Hammer, my hammer!” She slid the rings up her arm and picked her hammer up with ease. “I was worried I’d never be able to lift it again!” She hugged it, and then swung it around.
 
+[change other mentions of the hole to be in ersie’s workshop, not the bedroom]
+
 “Muddy! Not in my workshop!”
 
 Muddy swung it right into a wall, knocking one of the bricks out. “Oops. Sorry, Ersie.”
@@ -1004,7 +1004,7 @@ When Mudrich came back, she came alone.
 
 Ersie and Muddie went to their bedroom, where Wryonin, Lemilay, and Mother were waiting. After initial greetings, Mother started the meeting.
 
-[maybe get the other scene in here]
+[maybe get the other census announcement scene in here]
 
 “It has come to my attention that you are growing up very fast.” Mother began. “One day, one of you will take my place as chief of the wolf village. And that day may be coming sooner than I realize. And it has come to my attention that I have not properly prepared you all for that day.”
 
