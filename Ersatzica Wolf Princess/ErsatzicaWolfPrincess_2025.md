@@ -782,11 +782,41 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 # Chapter 2 – The Cuffs of Tigrin
 
-[have them go to medic bear lersha, have this scene take place there instead]
+Wryonin helped Ersatzica carry the heirlooms they looted, chewing her out the whole time. She shouldn’t have risked her life for an item like that. After depositing the items in Ersie’s workshop, they caught up to Lemilay and Mudrich in the medic bay.
 
-===
+Mudrich was sitting on a table, getting treated by Medic Lersha.
 
-The four wolf siblings entered their bedroom.
+The medic was Medic Lersha, a tall fluffy bear with eyes older than Mother’s. She had an intricate burn mark on both of her palms, and a tooth-shaped growth on her nose, that was currently dripping blood.
+
+“How are you doing, Muddy?” Ersie asked.
+
+“That cat barely even scratched me!” Muddy exclaimed.
+
+“You’re such a live wire, young pup!” Medic Lersha laughed. “But you have to take it easy. You don’t want to reopen your wound.” She held up her paw hand, exposing the burn mark on it. As it glowed golden yellow, she pressed it into the wound on Muddy’s arm.
+
+Muddy flinched.
+
+Medic Lersha licked a drop of blood off the tooth-shaped growth on her nose. “Ok, there, all done.” She said. She wrapped the wound in a bandage. “No heavy lifting until that heals, ok?”
+
+“I don’t even lift heavy things usually, anyway.”
+
+“And no digging!”
+
+“No digging??” Mudrich whimpered.
+
+“It’s for your own good, lil pup.”
+
+“Awww, alright.” Mudrich pouted.
+
+“Don’t worry, Muddy,” Ersie said. “I’m sure you’ll heal back up in no time. Medic Lersha is the best in the village!”
+
+“…she’s the only one in the village…” muttered Mudrich.
+
+“Your sister’s right,” Medic Lersha smiled. “I am the best. And you should listen to my advice.”
+
+[move the rest of the scene to the medic room]
+
+After saying goodbye to Medic Lersha, the four wolf siblings went to their bedroom.
 
 “So what do we tell Mother?” Wryonin asked Lemilay as he hung his utility belt on a hook on his bed.
 
