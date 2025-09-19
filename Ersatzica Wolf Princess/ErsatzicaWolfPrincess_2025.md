@@ -980,13 +980,11 @@ Ersie grumbled. “It’s ok…”
 
 “Let me see.” Ersie knelt down to look at the hole. It was pitch black behind it, and an awful smell of feces and mold poured out of it. “What is this?”
 
-“Let me take a look!” Muddie pushed Ersie aside to stick her face in the hole, and then immediately regretted it. “Ew!” She covered her nose.
+“I want to take a look!” Muddie pushed Ersie aside to stick her face in the hole, and then immediately regretted it. “Ew!” She covered her nose.
 
 “We should probably fetch Nephalie.”
 
-“Yeah, I’ll do that.” Muddie left the workshop.
-
-===
+“I volunteer.” Muddie left the workshop, audibly gasping as she left.
 
 When Mudrich came back, she came alone.
 
@@ -998,21 +996,13 @@ When Mudrich came back, she came alone.
 
 “Mm hmm.”
 
-“But’s not bedtime yet.”
+“But it’s not bedtime yet.”
 
 “M hm mm.” Mudrich shrugged.
 
 ===
 
-Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something.
-
-“Ersatzica, how good of you to join us.”
-
-“Where were you? I howled like three times for you.” Wryonin growled.
-
-“I was busy.”
-
-“With what?”
+Ersatzica and Mudrich arrived at their bedroom, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something. After initial greetings, Mother started the meeting.
 
 “My pups,” Mother said. “It is time to start the meeting.”
 
@@ -1070,7 +1060,7 @@ Wryonin raised his hand. “Do you want us to count the traders currently at the
 
 “Wryonin, just do your best. Ok, my pups, duty calls. I love you all. See you at bedtime.”
 
-AWOOOOO! They all howled in unison.
+*AWOOOOO!* They all howled in unison.
 
 # Chapter 3 – The Boots of Pantrinome
 
