@@ -1024,6 +1024,74 @@ Wryonin and Lemilay looked at each other like two combatants in an arena.
 
 [move census mini-arc here]
 
+Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something.
+
+“Ersatzica, how good of you to join us.”
+
+“Where were you? I howled like three times for you.” Wryonin growled.
+
+“I was busy.”
+
+“With what?”
+
+“My pups,” Mother said. “It is time to start the meeting.”
+
+They all sat up straight and paid attention.
+
+“As you know, the cats have recently advanced to the river. Any day now, they may have the courage to cross and attempt to invade our village.” She sighed. “It has come to my attention that I may have been neglecting you, my pups.”
+
+Lemilay raised her chin in agreement.
+
+Mother gave a quick glare, but continued, “With your training as chieflings. One day, one of you will take my place as chief of the wolf village. When that day comes, you must have the skills and wisdom to do so.”
+
+“I already do.” Lemilay whispered.
+
+Mother growled. “To that end, I will assign you a series of tasks. Whoever completes them the best, I will appoint them as chief-lo and will train them to take my place.”
+
+Lemilay smiled smugly, looking down on her siblings.
+
+“The first task is to do a census. This must be completed by the end of the day.”
+
+“What’s a census?” Mudrich asked.
+
+Lemilay chuckled. “It’s a survey, muddling.”
+
+Mudrich grumbled.
+
+“Mudrich, my pup, just count everyone in the village, and then tell me what number you counted.”
+
+“That’s it? That’s easy!”
+
+“I would hope so.” Lemilay chuckled.
+
+Awoomoon growled at Lemilay.
+
+She stopped chuckling, but still held her chin high.
+
+“Lemilay, you have until the end of your shift today. Everyone else, you have until bedtime.”
+
+Lemilay scoffed. “You mean I have to survey the village and do my usual job?”
+
+“I would hope it’d be easy for you?”
+
+“Fine.” Lemilay grumbled. “This just means I’ll get it done first.”
+
+“Good. Any questions?”
+
+Wryonin raised his hand. “Do you want us to count the traders currently at the bear farms and the—”
+
+“No, they’re not currently in the village.”
+
+“What about the hunters who are just gone for a few hours?”
+
+“No, they’re not currently in the village.”
+
+“Ok, so what if I count, then they come back. Should I count them then?”
+
+“Wryonin, just do your best. Ok, my pups, duty calls. I love you all. See you at bedtime.”
+
+AWOOOOO! They all howled in unison.
+
 # Chapter 3 – The Boots of Pantrinome
 
 The next day, Lemilay and Wryonin went to do their jobs, leaving Mudrich and Ersatzica to fetch Nephalie.
@@ -2600,73 +2668,7 @@ Muddie eyed her.
 
 “Come on, Mother has called us for a meeting.” Mudrich grumbled.
 
-Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something.
-
-“Ersatzica, how good of you to join us.”
-
-“Where were you? I howled like three times for you.” Wryonin growled.
-
-“I was busy.”
-
-“With what?”
-
-“My pups,” Mother said. “It is time to start the meeting.”
-
-They all sat up straight and paid attention.
-
-“As you know, the cats have recently advanced to the river. Any day now, they may have the courage to cross and attempt to invade our village.” She sighed. “It has come to my attention that I may have been neglecting you, my pups.”
-
-Lemilay raised her chin in agreement.
-
-Mother gave a quick glare, but continued, “With your training as chieflings. One day, one of you will take my place as chief of the wolf village. When that day comes, you must have the skills and wisdom to do so.”
-
-“I already do.” Lemilay whispered.
-
-Mother growled. “To that end, I will assign you a series of tasks. Whoever completes them the best, I will appoint them as chief-lo and will train them to take my place.”
-
-Lemilay smiled smugly, looking down on her siblings.
-
-“The first task is to do a census. This must be completed by the end of the day.”
-
-“What’s a census?” Mudrich asked.
-
-Lemilay chuckled. “It’s a survey, muddling.”
-
-Mudrich grumbled.
-
-“Mudrich, my pup, just count everyone in the village, and then tell me what number you counted.”
-
-“That’s it? That’s easy!”
-
-“I would hope so.” Lemilay chuckled.
-
-Awoomoon growled at Lemilay.
-
-She stopped chuckling, but still held her chin high.
-
-“Lemilay, you have until the end of your shift today. Everyone else, you have until bedtime.”
-
-Lemilay scoffed. “You mean I have to survey the village *and* do my usual job?”
-
-“I would hope it’d be easy for you?”
-
-“Fine.” Lemilay grumbled. “This just means I’ll get it done first.”
-
-“Good. Any questions?”
-
-Wryonin raised his hand. “Do you want us to count the traders currently at the bear farms and the—”
-
-“No, they’re not currently in the village.”
-
-“What about the hunters who are just gone for a few hours?”
-
-“No, they’re not currently in the village.”
-
-“Ok, so what if I count, then they come back. Should I count them then?”
-
-“Wryonin, just do your best. Ok, my pups, duty calls. I love you all. See you at bedtime.”
-
-*AWOOOOO!* They all howled in unison.
+[this section about the census has been moved to Ch2. More stuff from this chapter might need to be moved there]
 
 Afterwards, Ersie approached Mudrich. “Muddie! Muddie!”
 
