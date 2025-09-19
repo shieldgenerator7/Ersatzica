@@ -2252,6 +2252,8 @@ Lemilay took a little whiff from far away and instantly covered her nose. “Yea
 
 “Fine.” Mudrich hugged a tree, rubbing the mud off onto it, and wiped her paws on grass as they walked.
 
+[change this so theres no bath house yet, just bathing in the river]
+
 When they got back home, Ersatzica went to the bath house. Lots of other wolves were there for their weekly bath. If they were lucky, they got to take a shower in one of the few standing spots in the rain room. Being the daughter of the chief, the other wolves gladly let her take their place in line.
 
 A long, stone trough ran from a nearby waterfall into the roof of the rain room, which was halfway into the ground to ensure proper water flow. The water flowed from the trough onto the roof, which had small holes specifically designed to pour onto individuals below.
