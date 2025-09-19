@@ -1002,27 +1002,7 @@ When Mudrich came back, she came alone.
 
 “M hm mm.” Mudrich shrugged.
 
-Ersie and Muddie went to their bedroom, where Wryonin, Lemilay, and Mother were waiting. After initial greetings, Mother started the meeting.
-
-[maybe get the other census announcement scene in here]
-
-“It has come to my attention that you are growing up very fast.” Mother began. “One day, one of you will take my place as chief of the wolf village. And that day may be coming sooner than I realize. And it has come to my attention that I have not properly prepared you all for that day.”
-
-“I’m prepared.” Lemilay said.
-
-“Hush. So today, we’re going to start a series of challenges that will help prepare you for leadership. These challenges will also be used to determine who is most worthy of claiming the title.”
-
-Wryonin and Lemilay looked at each other like two combatants in an arena.
-
-“The first task will be to do a census. You will have to answer the question, ‘How many wolves are there in the village?’ You have until bedtime tonight.”
-
-“You said wolves. Did you mean ‘people’? Do you want us to also count deer, bears, and beavers?”
-
-“And peacocks.” Lemilay injected.
-
-“Sure.” Mother said.
-
-[move census mini-arc here]
+===
 
 Ersatzica and Mudrich arrive at the mess hall, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something.
 
