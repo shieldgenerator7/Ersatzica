@@ -155,6 +155,20 @@ Every chapter, Ersatzica becomes more and more cat, either physically, mentally,
 14. 
 15. Accepts she’s a cat, and parts with the wolf skin
 
+Things Ersatzica believes
+- all cats are evil (disproven by fisher)
+- most cats are evil
+- loyalty is always good (disproven by stubborn adherence to old ways, loyalty to abusers, etc)
+- alpha is the one true god (disproven by ajig, adirada)
+- alpha is an all powerful, loyal god (disproven by an unanswered prayer)
+- she was born a wolf (disproven by awoomoon)
+- loyalty is the most important virtue (disproven by other virtues that are also important)
+- wolves of loyalty go to a moon paradise when they die (disproven by yotleph)
+- all others go to soul prison when they die
+- when a loved one dies, alpha gives you a grieving gift to help you mourn (wolf explanation of heirlooms)
+- her true self is a wolf (disproven by antlers of truth)
+- wolves are better than cats (disproven by becoming a cat and seeing the value in a cat person)
+
 # Cat Invasion Plot
 
 The Cat Kingdom tries to take over the wolf village. This should advance ever chapter. These might not all be upfront and known to Ersatzica, but ramifications should be felt. In some chapters, the “advancement” may be as simple as Ersatzica learning more about their plans.
