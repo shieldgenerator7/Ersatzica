@@ -782,6 +782,8 @@ Mudrich waved her hand in front of Ersie. “Are you ok?”
 
 # Chapter 2 – The Cuffs of Tigrin
 
+## 1. Scene: muddy finds out she won’t be able to dig for awhile
+
 Wryonin helped Ersatzica carry the heirlooms they looted, chewing her out the whole time. She shouldn’t have risked her life for an item like that. After depositing the items in Ersie’s workshop, they caught up to Lemilay and Mudrich in the medic bay.
 
 Mudrich was sitting on a table, getting treated by Medic Lersha.
@@ -815,6 +817,8 @@ Medic Lersha licked a drop of blood off the tooth-shaped growth on her nose. “
 “Your sister’s right,” Medic Lersha smiled. “I am the best. And you should listen to my advice.”
 
 [move the rest of the scene to the medic room]
+
+## 2. Scene: Awoomoon confronts them about muddy’s injury
 
 After saying goodbye to Medic Lersha, the four wolf siblings went to their bedroom.
 
@@ -934,7 +938,7 @@ They all bowed their heads. Mudrich leaned her head into Mother’s chest floof.
 
 He blew out the candle and climbed into bed himself.
 
-## === Discovery of Cuffs
+## 3. Scene: ersie muddy test out heirlooms
 
 The next day, Mudrich followed Ersatzica to her workshop in the morning. Her right arm was still feeling very weak.
 
@@ -953,6 +957,8 @@ After some testing, they discovered that the shovel glows bright blue all the ti
 “Well you were right about one thing.” Ersatzica noted.
 
 “Yeah.” Mudrich whimpered. “I’m going to go dig some holes now.”
+
+## 4. Scene: ersie muddy discovers cuffs give strength
 
 “Wait, can you help me carry these back up to my workshop first?”
 
@@ -994,6 +1000,8 @@ Muddy then took off the silver rings. She knelt down again to pick up the sword,
 
 “I can fix that.”
 
+## 14. Scene: muddy knocks hole in wall
+
 Mudrich carried the items back to Ersie’s workshop, dropping the sword every so often to wait for it to lighten up again. There, Mudrich spotted her hammer.
 
 “Hammer, my hammer!” She slid the rings up her arm and picked her hammer up with ease. “I was worried I’d never be able to lift it again!” She hugged it, and then swung it around.
@@ -1031,6 +1039,8 @@ When Mudrich came back, she came alone.
 “M hm mm.” Mudrich shrugged.
 
 ===
+
+## 5. Scene: census assignment
 
 Ersatzica and Mudrich arrived at their bedroom, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something. After initial greetings, Mother started the meeting.
 
@@ -1091,6 +1101,22 @@ Wryonin raised his hand. “Do you want us to count the traders currently at the
 “Wryonin, just do your best. Ok, my pups, duty calls. I love you all. See you at bedtime.”
 
 *AWOOOOO!* They all howled in unison.
+
+## 6. Scene: ersie works on cuffs instead of census
+
+## 7. Scene: Lemilay catches ersie disobeying, tattles on her
+
+## 8. Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
+
+## 9. Scene: ersie muddy find Lemilay using spyglass to do census, tattle on her
+
+## 10. Scene: ersie muddy try to sneak into workshop, fail
+
+## 11. Scene: ersie muddy do census together
+
+## 12. Scene: census results
+
+## 13. Scene: next day, ersie fits cuffs for muddy
 
 # Chapter 3 – The Boots of Pantrinome
 
