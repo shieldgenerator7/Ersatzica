@@ -78,6 +78,20 @@ Ersatzica raised a paw hand.
 
 “Oh. Yes, that.” Awoomoon looked away, flustered. “I got carried away. Your scar? hat was an accident. But all you pups are safe and sound now, because the scary cat lady is dead, and can never harm you again. And as long as you stay in Alpha’s guiding moonlight, no cat shall ever harm you.”
 
+[place this god backstory somewhere more fitting]
+
+“Also, here’s the story of why we worship Alpha.”
+
+“Long ago, Mother Deer stood upon her moon and created the world, and all the creatures in it. She put deer people in to nurture it. The other gods came to add their own people, and together they cared for the world. One by one, the other gods got bored of this world, and took their moons to other places. Even Mother Deer, after being assured the world was ok, left us. All the gods left us, except one. In despair, the wolf chief howled up to the moon. He asked Alpha, the wolf god, to stay and watch over him and his people, when no other god would. Alpha made a promise to him, that he would stay, and watch over his people. So that whenever you need him, you can call him to help you through your struggles. And that is why we honor and worship Alpha, and why we howl to the moon.”
+
+“Why did all the other gods leave?”
+
+“And whenever a loved one dies, Alpha will take them to his moon paradise. And to console us in our grieving, he gives us a piece of his power, stored inside our loved one’s body.” Awoomoon held out the tooth necklace in her hand.
+
+“Is that heirloom?”
+
+“Yes, this is the grieving gift Alpha gave me, to make up for the loss of your father. I will always love and cherish it, just like I did him when he was alive.” She stared at it lovingly.
+
 # Chapter 1 – The Drums of Retriyoan
 
 Ersatzica found it easy to forget about the impending cat invasion while working on her brother’s utility belt. The slender, black-and-white teenage wolf girl inspected her patient on the worktable: a leather belt that had been cut through by a thousand tiny scratches. Attached to it were several items: a bag of rocks, a sheathed knife, a water bladder, and a wooden slingshot.
