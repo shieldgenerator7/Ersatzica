@@ -1072,6 +1072,106 @@ Wryonin raised his hand. “Do you want us to count the traders currently at the
 
 ## 6. Scene: ersie works on cuffs instead of census
 
+Ersie and Muddy went to Ersie’s workshop.
+
+“Told you we’d be back in a muddy!” Muddy smiled. “So, how long is this going to take?”
+
+“I’m not sure yet.” Ersie looked thoughtfully out the window.
+
+“Ersie?”
+
+“Muddy, I need you to do the census.”
+
+“Oh, that’s easy. Be back in a muddy!” Muddy dashed out the door.
+
+“Ok, let’s see…” Ersie examined the cuffs.
+
+[change all references to these “cuffs” to “bracers”]
+
+The cuffs were identical silver rings big enough to fit a tiger’s wrists. Each had a slot for half a hoof clipping, and a second, sliding slot for the other hoof clipping. The hoof clipping the owner had was still inside the slot, broken in half. And moving the sliding slot made the hoof clipping hole or halved again.
+
+That’s strange. Once broken, the transformation made by the hoof clippings is undone. So why is this bracer specifically designed to make hoof clipping pieces touch?
+
+Muddy dashed into the workshop. “I’m back.”
+
+“Muddy? Done already? But you just left!”
+
+“About that… I was hoping you could help me? Or we could do it together? I’m not great at… I don’t know what I’m doing.”
+
+“You just count everyone in the village.”
+
+“You mean like 1, 2, 3?”
+
+“Yep!”
+
+Mudrich stared blankly at Ersie.
+
+“Are you scared because it involves math?”
+
+Mudrich growled and turned away. “No, I’m just… bored.”
+
+“Look, if you do this, I can get these bracers done for you faster, and you can get your hammer back faster. Right?”
+
+Mudrich let her head flop over onto Ersie’s work table. “Yeah, I guess you’re right.”
+
+[have ersie also describe estimation?]
+
+“Maybe you’d like some tips? Here’s what you do. You start at one end of the village, and make your way to the other end. Maybe take a break when you get to our bedroom.”
+
+Muddy drooled on the work table.
+
+“And you don’t have to count *every*one, you can just estimate.”
+
+“Esta, mate?”
+
+“Yeah. Estimate. You count up all the people in one building, and then you count all the buildings of a similar size, and then multiply them together.”
+
+Muddy stared at the bracer.
+
+“Does that make sense?”
+
+Muddy stared into space.
+
+“Muddy?”
+
+[have Lemilay or Wryonin call her stupid earlier]
+
+After a pause, Muddy said, “Ersie, am I stupid?”
+
+“What? Why would you think that?”
+
+“The cats we fought yesterday called me a ‘dumb mutt’.”
+
+“Pffft, you’re going to listen to them?”
+
+“But then Wryonin said it too.”
+
+“Oh.”
+
+Mudrich licked the bracer.
+
+“Hey. You’re not dumb, Muddy.” Ersie licked her forehead. “You’re smart in your own way.”
+
+“Really?”
+
+“Yeah, I would’ve never figured out what these bracers do without you, or the drums. It takes a lot of smarts to figure that out.”
+
+“Thanks, Ersie.”
+
+“And you know what? You’re smart enough to figure out how to do the census. I know you are!”
+
+“I don’t know…”
+
+“You can do it, because you’re Muddy, the smartest wolf I know, and even if you don’t know how to do it, you’ll find a way to make it work!”
+
+“Yeah! I will find a way!” Muddy jumped up and rushed to the door.
+
+“You got this, Muddy!”
+
+“Be back in an ersie!” She ran out.
+
+Ersatzica turned her attention to the bracers. They had a leather strap in them that she could very easily adjust.
+
 ## 7. Scene: Lemilay catches ersie disobeying, tattles on her
 
 ## 8. Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
