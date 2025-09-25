@@ -1000,6 +1000,14 @@ Muddy then took off the silver rings. She knelt down again to pick up the sword,
 
 “I can fix that.”
 
+*AWOOOO!* (“Here”) Wryonin howled.
+
+“Meeting time?” Ersie sighed.
+
+[make muddy more impatient?]
+
+“Don’t worry,” Muddy said. “We’ll be back in a muddy! Or at the longest, an ersie. I can wait until then.”
+
 ## 5. Scene: census assignment
 
 Ersatzica and Mudrich arrived at their bedroom, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something. After initial greetings, Mother started the meeting.
