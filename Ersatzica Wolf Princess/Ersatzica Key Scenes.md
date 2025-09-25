@@ -20,12 +20,40 @@ Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
 
 # Chapter 2
 
-Summary: Ersatzica reworks the belt into cuffs
+Summary: Ersatzica helps muddy be able to dig again
 
--   Mudrich goes to Medic Lersha
--   Ersatzica reworks the belt into cuffs
--   Ersatzica assures Mudrich she’s not stupid “youre a different kind of smart”
--   Mudrich punches hole in wall
+-   Scene: muddy finds out she won’t be able to dig for awhile
+-   Scene: ersie muddy test out heirlooms
+-   Scene: ersie muddy discovers cuffs give strength
+-   Scene: census assignment
+-   Scene: ersie works on cuffs instead of census
+-   Scene: Lemilay catches ersie disobeying, tattles on her
+-   Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
+-   Scene: ersie muddy find Lemilay using spyglass to do census, tattle on her
+-   Scene: ersie muddy try to sneak into workshop, fail
+-   Scene: ersie muddy do census together
+-   Scene: census results
+-   Scene: next day, ersie fits cuffs for muddy
+-   Scene: muddy knocks hole in wall
+
+Important bits:
+
+-   “youre smart in your own way”
+-   Introduce
+    -   Medic Lersha
+    -   Garoftle’s Gift
+    -   No magic healing
+    -   Heirlooms
+        -   Glowing shovel
+        -   Cuffs of tigrin
+        -   Heavy sword
+        -   Headache helmet
+        -   Spyglass of Sureye
+
+Plots:
+
+1.  Mudrich can’t dig -\> Mudrich can dig
+2.  Ersie doesn’t want to do the census -\> Ersie does the census
 
 # Chapter 3
 
