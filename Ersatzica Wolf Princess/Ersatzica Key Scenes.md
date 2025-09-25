@@ -9,7 +9,7 @@ This document is a list of key scenes in the story. Its purpose is to help me or
 Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
 
 -   Wryonin complains to Ersatzica about modifications she made to his slingshot
--   Mudrich and Ersie test out the drums
+    -   Mudrich and Ersie test out the drums
 -   Cats invade the forest
 -   A howl says to retreat
 -   Ersatzica uses the drums to speed up Mudrich, Wryonin and Lemilay join in on the fight
@@ -155,7 +155,7 @@ Every chapter, Ersatzica becomes more and more cat, either physically, mentally,
 14. 
 15. Accepts she’s a cat, and parts with the wolf skin
 
-Things Ersatzica believes
+## Things Ersatzica believes
 - all cats are evil (disproven by fisher)
 - most cats are evil
 - loyalty is always good (disproven by stubborn adherence to old ways, loyalty to abusers, etc)
@@ -168,6 +168,10 @@ Things Ersatzica believes
 - when a loved one dies, alpha gives you a grieving gift to help you mourn (wolf explanation of heirlooms)
 - her true self is a wolf (disproven by antlers of truth)
 - wolves are better than cats (disproven by becoming a cat and seeing the value in a cat person)
+
+Unplaced:
+
+-   Learns her biological birth mother was the skeleton she found in that room, and that the boots belonged to her
 
 # Cat Invasion Plot
 
