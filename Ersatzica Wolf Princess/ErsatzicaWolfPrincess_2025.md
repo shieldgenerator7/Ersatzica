@@ -1000,46 +1000,6 @@ Muddy then took off the silver rings. She knelt down again to pick up the sword,
 
 “I can fix that.”
 
-## 14. Scene: muddy knocks hole in wall
-
-Mudrich carried the items back to Ersie’s workshop, dropping the sword every so often to wait for it to lighten up again. There, Mudrich spotted her hammer.
-
-“Hammer, my hammer!” She slid the rings up her arm and picked her hammer up with ease. “I was worried I’d never be able to lift it again!” She hugged it, and then swung it around.
-
-[change other mentions of the hole to be in ersie’s workshop, not the bedroom]
-
-“Muddy! Not in my workshop!”
-
-Muddy swung it right into a wall, knocking one of the bricks out. “Oops. Sorry, Ersie.”
-
-Ersie grumbled. “It’s ok…”
-
-“It looks like it’s just one brick. Surely we can get that easily fixed, right?”
-
-“Let me see.” Ersie knelt down to look at the hole. It was pitch black behind it, and an awful smell of feces and mold poured out of it. “What is this?”
-
-“I want to take a look!” Muddie pushed Ersie aside to stick her face in the hole, and then immediately regretted it. “Ew!” She covered her nose.
-
-“We should probably fetch Nephalie.”
-
-“I volunteer.” Muddie left the workshop, audibly gasping as she left.
-
-When Mudrich came back, she came alone.
-
-“Where’s Nephalie?”
-
-“She’s busy. And also Mother wants to see us.”
-
-“Now?”
-
-“Mm hmm.”
-
-“But it’s not bedtime yet.”
-
-“M hm mm.” Mudrich shrugged.
-
-===
-
 ## 5. Scene: census assignment
 
 Ersatzica and Mudrich arrived at their bedroom, where Wryonin and Lemilay were talking with Mother. Or rather, listening to her lecture them about something. After initial greetings, Mother started the meeting.
@@ -1117,6 +1077,46 @@ Wryonin raised his hand. “Do you want us to count the traders currently at the
 ## 12. Scene: census results
 
 ## 13. Scene: next day, ersie fits cuffs for muddy
+
+## 14. Scene: muddy knocks hole in wall
+
+Mudrich carried the items back to Ersie’s workshop, dropping the sword every so often to wait for it to lighten up again. There, Mudrich spotted her hammer.
+
+“Hammer, my hammer!” She slid the rings up her arm and picked her hammer up with ease. “I was worried I’d never be able to lift it again!” She hugged it, and then swung it around.
+
+[change other mentions of the hole to be in ersie’s workshop, not the bedroom]
+
+“Muddy! Not in my workshop!”
+
+Muddy swung it right into a wall, knocking one of the bricks out. “Oops. Sorry, Ersie.”
+
+Ersie grumbled. “It’s ok…”
+
+“It looks like it’s just one brick. Surely we can get that easily fixed, right?”
+
+“Let me see.” Ersie knelt down to look at the hole. It was pitch black behind it, and an awful smell of feces and mold poured out of it. “What is this?”
+
+“I want to take a look!” Muddie pushed Ersie aside to stick her face in the hole, and then immediately regretted it. “Ew!” She covered her nose.
+
+“We should probably fetch Nephalie.”
+
+“I volunteer.” Muddie left the workshop, audibly gasping as she left.
+
+When Mudrich came back, she came alone.
+
+“Where’s Nephalie?”
+
+“She’s busy. And also Mother wants to see us.”
+
+“Now?”
+
+“Mm hmm.”
+
+“But it’s not bedtime yet.”
+
+“M hm mm.” Mudrich shrugged.
+
+===
 
 # Chapter 3 – The Boots of Pantrinome
 
