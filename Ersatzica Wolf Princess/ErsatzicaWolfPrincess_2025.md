@@ -1070,6 +1070,8 @@ Wryonin raised his hand. “Do you want us to count the traders currently at the
 
 *AWOOOOO!* They all howled in unison.
 
+[chat gpt: add scene about siblings discussing the census, and whether they want to do it]
+
 ## 6. Scene: ersie works on cuffs instead of census
 
 Ersie and Muddy went to Ersie’s workshop.
@@ -1087,6 +1089,8 @@ Ersie and Muddy went to Ersie’s workshop.
 “Ok, let’s see…” Ersie examined the cuffs.
 
 [change all references to these “cuffs” to “bracers”]
+
+[chat gpt: clean up this description]
 
 The cuffs were identical silver rings big enough to fit a tiger’s wrists. Each had a slot for half a hoof clipping, and a second, sliding slot for the other hoof clipping. The hoof clipping the owner had was still inside the slot, broken in half. And moving the sliding slot made the hoof clipping hole or halved again.
 
@@ -1169,6 +1173,8 @@ Mudrich licked the bracer.
 “You got this, Muddy!”
 
 “Be back in an ersie!” She ran out.
+
+[chat gpt: have ersie give thoughts about muddy doing census]
 
 Ersatzica turned her attention to the bracers. They had a leather strap in them that she could very easily adjust.
 
