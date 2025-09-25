@@ -22,19 +22,19 @@ Summary: Intro, Ersatzica figures out drums, Mudrich gets injury and cuffs
 
 Summary: Ersatzica helps muddy be able to dig again
 
--   Scene: muddy finds out she won’t be able to dig for awhile
--   Scene: ersie muddy test out heirlooms
--   Scene: ersie muddy discovers cuffs give strength
--   Scene: census assignment
--   Scene: ersie works on cuffs instead of census
--   Scene: Lemilay catches ersie disobeying, tattles on her
--   Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
--   Scene: ersie muddy find Lemilay using spyglass to do census, tattle on her
--   Scene: ersie muddy try to sneak into workshop, fail
--   Scene: ersie muddy do census together
--   Scene: census results
--   Scene: next day, ersie fits cuffs for muddy
--   Scene: muddy knocks hole in wall
+1.  Scene: muddy finds out she won’t be able to dig for awhile
+2.  Scene: ersie muddy test out heirlooms
+3.  Scene: ersie muddy discovers cuffs give strength
+4.  Scene: census assignment
+5.  Scene: ersie works on cuffs instead of census
+6.  Scene: Lemilay catches ersie disobeying, tattles on her
+7.  Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
+8.  Scene: ersie muddy find Lemilay using spyglass to do census, tattle on her
+9.  Scene: ersie muddy try to sneak into workshop, fail
+10. Scene: ersie muddy do census together
+11. Scene: census results
+12. Scene: next day, ersie fits cuffs for muddy
+13. Scene: muddy knocks hole in wall
 
 Important bits:
 
@@ -44,11 +44,11 @@ Important bits:
     -   Garoftle’s Gift
     -   No magic healing
     -   Heirlooms
-        -   Glowing shovel
-        -   Cuffs of tigrin
-        -   Heavy sword
-        -   Headache helmet
         -   Spyglass of Sureye
+        -   Cuffs of Tigrin
+        -   glowing shovel
+        -   heavy sword
+        -   headache helmet
 
 Plots:
 
