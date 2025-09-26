@@ -1268,6 +1268,8 @@ Lemilay chuckled. “Of course not.”
 
 Fernsen smiled, and nodded.
 
+[chat gpt: raise the stakes about fixing the bracers for muddy]
+
 “Lemilay! I’m trying to make something for Muddy! The census can wait.”
 
 “Ah ah ah!” Lemilay shook her muzzle around, raising her chin higher with each shake. “That’s not for you to decide. It’s for Mother.”
@@ -1347,6 +1349,8 @@ At the end, they high fived in front of the dropoff, where the town ended and th
 “Yeah!”
 
 “So, how many is that?” Muddy asked.
+
+[chat gpt: make muddy more stumped about the math]
 
 “It’s 200 from now, plus the 50 you had from the start…” Ersie thought out loud. “And 30 people per building… so, seven thousand and five hundred people.”
 
