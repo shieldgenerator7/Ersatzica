@@ -1296,6 +1296,62 @@ Ersatzica stormed off. *Lemilay is such a bitch. She’s always tripping me up, 
 
 ## 11. Scene: ersie muddy do census together
 
+*AWOOOO!* (“Here!”) Ersatzica did the special sibling howl that only they know.
+
+*AWOOOO!* (“Here!”) Muddy answered, from across the town.
+
+Ersatzica easily found her, counting buildings. “Hey, Muddy.”
+
+“Hi Ersie.” Muddy was running around, in between other wolves walking about, pointing at random things left and right.
+
+“What are you doing?”
+
+“43, 44, 45.” She huffed.
+
+“You’re doing estimation!” Ersie smiled.
+
+“Yep! I know it’s about 30 wolves per barracks. And there’s lots of barracks… about uh…” Mudrich stared at the brick at her feet. “Ersie you made me lose count.”
+
+“It’s an estimate anyway, so it doesn’t have to be accurate.”
+
+“Ok. What did you want Ersie?”
+
+“I tried fixing the bracers, but Lemilay had me kicked out of my own workshop.”
+
+“The vial!”
+
+“And now I’m here.”
+
+“Want to help me with the census?”
+
+“I guess so. The sooner we get this done, the sooner I can get back to working on the bracers for you.”
+
+“How should we do this?”
+
+“I’ll count the buildings on this side, and you do that side.”
+
+“Deal.”
+
+It was much easier to count the buildings going long ways through the town without having to constantly go side to side through the crowds.
+
+Lemilay howled “Hour” twice before they got to the end.
+
+At the end, they high fived in front of the dropoff, where the town ended and there was a newer brick wall that kept people from falling off into the river 100ft below.
+
+“How many did you count?”
+
+“100”
+
+“Same!”
+
+“Yeah!”
+
+“So, how many is that?” Muddy asked.
+
+“It’s 200 from now, plus the 50 you had from the start…” Ersie thought out loud. “And 30 people per building… so, seven thousand and five hundred people.”
+
+“7500? Wow.” Our village is larger than I thought.
+
 ## 12. Scene: census results
 
 ## 13. Scene: next day, ersie fits cuffs for muddy
