@@ -1192,6 +1192,10 @@ Mudrich licked the bracer.
 
 Ersatzica turned her attention to the bracers. They had a leather strap in them that she could very easily adjust.
 
+The straps extended when the slider was pushed to make the hoof clipping pieces touch.
+
+Ersie took the leather strap off, then prepared to cut it so it was smaller. The bracer only gave super strength while in the closed position, but in that position, it was too big to fit on Muddy’s wrists.
+
 ## 7. Scene: Lemilay catches ersie disobeying, tattles on her
 
 ## 8. Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
