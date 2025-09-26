@@ -1198,6 +1198,96 @@ Ersie took the leather strap off, then prepared to cut it so it was smaller. The
 
 ## 7. Scene: Lemilay catches ersie disobeying, tattles on her
 
+*KNOCK KNOCK*
+
+The hairs on Ersie’s neck stood on end. “Who is it?”
+
+“Chiefling Ersatzica, I have orders from Chief Awoomoon.”
+
+*Crap! It was Imraen! He’s probably going to kick me out!* “Ok, just a minute.”
+
+The door was shunted open. “Chiefling Ersatzica, I understand that you are not currently working on the census?”
+
+“I’m in the planning stages. I’m getting some tools ready to—”
+
+“Chief Awoomoon has ordered you to do the census. And my orders are to enforce yours.”
+
+“Yeah, I’ll be out in a bit, just need to—”
+
+“I apologize, Chiefling Ersatzica.” Imraen picked up Ersatzica by the waist and slung her over his shoulder.
+
+Ersie quickly grabbed the bracer just before he did so, tightly grasping it as she was lifted up.
+
+Imraen set her down gently outside her workshop. “Go complete your task.”
+
+“I forgot something in there. Can I—”
+
+Imraen closed the workshop door, and stood in front of it, getting as comfy as a guard on watch duty could.
+
+“So can I…”
+
+Imraen glanced at her.
+
+“Ok. I’ll be right back.”
+
+Ersatzica went to Mother’s office. It wasn’t locked, but she was also not there. Typical. Ersie went to the town square, where Lemilay was singing a song and giving a backrub to a scruffy wolf about her same age.
+
+“There’s no distance too far, let me be the bridge to your heart—” Lemilay sang.
+
+“Lemilay, have you seen Mother?” Ersie said.
+
+“When I’m with you, I feel a connection—”
+
+“Lemilay!”
+
+“What? Can’t you see I’m singing?”
+
+“Where’s Mother?”
+
+“How should I know? You should—”
+
+“You’ve got Hindsight and the spyglass. You can find out.”
+
+“I’m busy.”
+
+“With Fernsen?” Ersatzica eyed her and the scruffy wolf at her hands..
+
+“I give backrubs to everyone.”
+
+“Sure.”
+
+“What do you want her for anyway? She’s probably busy—”
+
+“Did you tattle on me about the census?”
+
+Lemilay chuckled. “Of course not.”
+
+“I knew it was you.”
+
+“No, it wasn’t.” Lemilay smiled. “It was Fernsen. Right, Fernsen?”
+
+Fernsen smiled, and nodded.
+
+“Lemilay! I’m trying to make something for Muddy! The census can wait.”
+
+“Ah ah ah!” Lemilay shook her muzzle around, raising her chin higher with each shake. “That’s not for you to decide. It’s for Mother.”
+
+“Argh! Well, why aren’t you doing the census?”
+
+“I am.” Lemilay smugly jiggled the spyglass.
+
+“We’ll see about that. Fernsen, where did you last see Chief Awoomoon?”
+
+“Don’t tell her.”
+
+Fersen shrugged.
+
+“Fine. I’ll just howl for her.”
+
+“She’s not going to like that…” Lemilay sing-songed. “Might as well just do the census like you’re supposed to.”
+
+Ersatzica stormed off. *Lemilay is such a bitch. She’s always tripping me up, intentionally. I don’t want to say I wish she wasn’t my sister, but… if I wasn’t related to her, maybe my life would be easier.*
+
 ## 8. Scene: Awoomoon locks up Ersie’s workshop, posts a guard in frront
 
 ## 9. Scene: ersie muddy find Lemilay using spyglass to do census, tattle on her
