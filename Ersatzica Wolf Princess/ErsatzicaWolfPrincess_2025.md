@@ -1358,6 +1358,154 @@ At the end, they high fived in front of the dropoff, where the town ended and th
 
 ## 12. Scene: census results
 
+Bedtime approached, and Ersatzica entered the barracks to find her siblings already there.
+
+“Ersie!”
+
+“Muddie!”
+
+“but you can’t count them, they’re not people—“ Wryonin argued with Lemilay. “oh hi, Ersatzica—they can’t lift anything, and they can’t be separated from their mother—”
+
+“But they will increase the population!” Lemilay protested.
+
+“What are they arguing about this time?” Ersatzica sat next to Muddie in her bed, picking a spot with less dirt.
+
+“The census.”
+
+“So… about that.” Ersie pulled out a piece of paper. “I did a… recount, and these are the new numbers I got.”
+
+“Having fun estimating, huh?”
+
+“You could say that.”
+
+Mudrich glanced at the sheet. “Looks good, Ersie.”
+
+“How many people did I count?”
+
+“250!”
+
+“No, that’s not what it says.”
+
+Mudrich squinted. “One… three…”
+
+“No, that one’s a two.”
+
+“Ugh!” Mudrich flopped back onto the bed. “Just tell me what it says, Ersie!”
+
+“You got the first one right, that’s a one. Then a two, then a seven, then a five. See?”
+
+“Yeah, I guess so.”
+
+“It’s important that you—”
+
+“I don’t care, Ersie.”
+
+Ersie fell silent, letting the other argument fill up the space.
+
+“But if I have to rescue a pregnant wolf, I only have to use one shoulder, not two!”
+
+“But then she’ll weigh more than a normal wolf, reducing how many others you can carry!”
+
+“Look, if you were pregnant, I’d only see one wolf, not two.”
+
+“Well, I sure would feel like there’s a second wolf there.”
+
+Wryonin’s ears pricked. “She’s here!”
+
+Wryonin and Lemilay hushed up and sat straight up in their respective beds. Ersie and Muddie sat up in Muddie’s bed. All watched the door.
+
+The handle turned, and the door creaked open. Outside was Mother.
+
+“Hello, my pups.”
+
+“Hello, Mother.” Lemilay responded.
+
+“Lemilay, did you redo your count?” Mother sat in the middle of the room, facing them all.
+
+“Yes, I redid my census.” She grumbled. “I’m not a baby, Mother.”
+
+Mother sighed. “Mudrich, did you do your count?”
+
+“250!”
+
+“Thank you, Mudrich.”
+
+Lemilay laughed out loud. To herself, she whispered, “Ha! The moon beams down on me.”
+
+“It’s not over yet, Lemilay.” Wryonin slapped her with his tail.
+
+“So, Lemilay, what was the result of your census?” Mother asked.
+
+Lemilay held her chin high. “There are 849 residents. 163 battle-ready wolves. 50 wolves that will be battle ready within a year. Our population will increase by 34 within the year, from births alone.”
+
+Mother’s eyebrows lit up. “Hmm. Is that the info you collected with the spyglass?”
+
+Lemilay looked to the side. “Yes.”
+
+“Then it doesn’t count. We don’t spy on our own people, Lemilay.”
+
+“Yes, Mother.”
+
+“Wryonin?” Mother turned to Wryonin.
+
+But he turned to Lemilay. “How did you get that many? I only counted 781! And there’s only 53 that are battle ready.”
+
+“Did you count pregnant wolves? And those wolves who would be willing to fight if they had to?” Lemilay smiled smugly.
+
+“I go to training every day. If they were willing to fight, why aren’t they at training?”
+
+“Shh!” Mother hushed them. “Well done, Wryonin. Mudrich, what is your count?”
+
+“250?”
+
+“How did you get that number?”
+
+“Estimation!”
+
+Mother smiled. “Good job, Mudrich. Ersatzica?”
+
+Ersatzica grinned sheepishly. “I got 815.”
+
+Mudrich looked shock. “815! But I thought—”
+
+Ersatzica covered her mouth. “I got 815.”
+
+“And how did you get that number?” Mother asked.
+
+“Estimation.”
+
+“Good job, Ersatzica.”
+
+“But Mother, she’s lying.” Lemilay protested. “That’s not how she got that number.”
+
+“You’re missing the point, Lemilay.” Mother stood up. “Why do you think I asked you to do the census?”
+
+“To see who should be the next chief.” Lemilay puffed out her chest.
+
+Mudrich raised a hand. “To test us.”
+
+“Obviously,” Wryonin said. “It’s so we can plan an evacuation procedure for when the cats invade.”
+
+Mother turned to Ersatzica. “Why do you think?”
+
+“To… plan an evacuation procedure?”
+
+“Hmm.” Mother opened the door. “It’s a chance to get to know your wards. Everyone of these lives will be your responsibility, if you become chief. It’s important for you to know each and every one of them. Let’s bow our heads.”
+
+“Wait!” Lemilay interrupted. “Who won this challenge?”
+
+“You’re missing the point, Lemilay. Let’s bow our heads.”
+
+“Fine.”
+
+They all bowed their heads and closed their eyes.
+
+“Alpha, Wolf God of the Loyal Moon,” Mother began, solemnly. “Watch over and guide us, help us unite our people, so that they may be strong and endure the challenges ahead of us. Please give us humility,”—she licked Lemilay on the forehead—“compassion,”—she licked Wryonin—“wisdom,”—Mudrich—"and strength”—Ersatzica. “May we walk in the light of your guiding moon to the destiny you have for each of us. Awoo.”
+
+AWOOOOOOOO! (“Acknowledged”) They all howled in unison up to the sky.
+
+“Good night, my pups.” Mother closed the door behind her.
+
 ## 13. Scene: next day, ersie fits cuffs for muddy
 
 ## 14. Scene: muddy knocks hole in wall
@@ -3103,154 +3251,6 @@ Mudrich waited before speaking. “I’m sure glad I’m not Lemilay right now.�
 “Thanks.”
 
 [ersie goes to see fisher again?]
-
-Bedtime approached, and Ersatzica entered the barracks to find her siblings already there.
-
-“Ersie!”
-
-“Muddie!”
-
-“but you can’t count them, they’re not people—“ Wryonin argued with Lemilay. “oh hi, Ersatzica—they can’t lift anything, and they can’t be separated from their mother—”
-
-“But they will increase the population!” Lemilay protested.
-
-“What are they arguing about this time?” Ersatzica sat next to Muddie in her bed, picking a spot with less dirt.
-
-“The census.”
-
-“So… about that.” Ersie pulled out a piece of paper. “I did a… recount, and these are the new numbers I got.”
-
-“Having fun estimating, huh?”
-
-“You could say that.”
-
-Mudrich glanced at the sheet. “Looks good, Ersie.”
-
-“How many people did I count?”
-
-“250!”
-
-“No, that’s not what it says.”
-
-Mudrich squinted. “One… three…”
-
-“No, that one’s a two.”
-
-“Ugh!” Mudrich flopped back onto the bed. “Just tell me what it says, Ersie!”
-
-“You got the first one right, that’s a one. Then a two, then a seven, then a five. See?”
-
-“Yeah, I guess so.”
-
-“It’s important that you—”
-
-“I don’t care, Ersie.”
-
-Ersie fell silent, letting the other argument fill up the space.
-
-“But if I have to rescue a pregnant wolf, I only have to use one shoulder, not two!”
-
-“But then she’ll weigh more than a normal wolf, reducing how many others you can carry!”
-
-“Look, if *you* were pregnant, I’d only see one wolf, not two.”
-
-“Well, I sure would feel like there’s a second wolf there.”
-
-Wryonin’s ears pricked. “She’s here!”
-
-Wryonin and Lemilay hushed up and sat straight up in their respective beds. Ersie and Muddie sat up in Muddie’s bed. All watched the door.
-
-The handle turned, and the door creaked open. Outside was Mother.
-
-“Hello, my pups.”
-
-“Hello, Mother.” Lemilay responded.
-
-“Lemilay, did you redo your count?” Mother sat in the middle of the room, facing them all.
-
-“Yes, I redid my *census*.” She grumbled. “I’m not a *baby*, Mother.”
-
-Mother sighed. “Mudrich, did you do your count?”
-
-“250!”
-
-“Thank you, Mudrich.”
-
-Lemilay laughed out loud. To herself, she whispered, “Ha! The moon beams down on me.”
-
-“It’s not over yet, Lemilay.” Wryonin slapped her with his tail.
-
-“So, Lemilay, what was the result of your census?” Mother asked.
-
-Lemilay held her chin high. “There are 849 residents. 163 battle-ready wolves. 50 wolves that will be battle ready within a year. Our population will increase by 34 within the year, from births alone.”
-
-Mother’s eyebrows lit up. “Hmm. Is that the info you collected with the spyglass?”
-
-Lemilay looked to the side. “Yes.”
-
-“Then it doesn’t count. We don’t spy on our own people, Lemilay.”
-
-“Yes, Mother.”
-
-“Wryonin?” Mother turned to Wryonin.
-
-But he turned to Lemilay. “How did you get that many? I only counted 781! And there’s only 53 that are battle ready.”
-
-“Did you count pregnant wolves? And those wolves who would be willing to fight if they had to?” Lemilay smiled smugly.
-
-“I go to training every day. If they were willing to fight, why aren’t they at training?”
-
-“Shh!” Mother hushed them. “Well done, Wryonin. Mudrich, what is your count?”
-
-“250?”
-
-“How did you get that number?”
-
-“Estimation!”
-
-Mother smiled. “Good job, Mudrich. Ersatzica?”
-
-Ersatzica grinned sheepishly. “I got 815.”
-
-Mudrich looked shock. “815! But I thought—”
-
-Ersatzica covered her mouth. “I got 815.”
-
-“And how did you get that number?” Mother asked.
-
-“Estimation.”
-
-“Good job, Ersatzica.”
-
-“But Mother, she’s lying.” Lemilay protested. “That’s not how she got that number.”
-
-“You’re missing the point, Lemilay.” Mother stood up. “Why do you think I asked you to do the census?”
-
-“To see who should be the next chief.” Lemilay puffed out her chest.
-
-Mudrich raised a hand. “To test us.”
-
-“Obviously,” Wryonin said. “It’s so we can plan an evacuation procedure for when the cats invade.”
-
-Mother turned to Ersatzica. “Why do *you* think?”
-
-“To… plan an evacuation procedure?”
-
-“Hmm.” Mother opened the door. “It’s a chance to get to know your wards. Everyone of these lives will be *your* responsibility, if you become chief. It’s important for you to know each and every one of them. Let’s bow our heads.”
-
-“Wait!” Lemilay interrupted. “Who won this challenge?”
-
-“You’re missing the point, Lemilay. Let’s bow our heads.”
-
-“Fine.”
-
-They all bowed their heads and closed their eyes.
-
-“Alpha, Wolf God of the Loyal Moon,” Mother began, solemnly. “Watch over and guide us, help us unite our people, so that they may be strong and endure the challenges ahead of us. Please give us humility,”—she licked Lemilay on the forehead—“compassion,”—she licked Wryonin—“wisdom,”—Mudrich—"and strength”—Ersatzica. “May we walk in the light of your guiding moon to the destiny you have for each of us. Awoo.”
-
-*AWOOOOOOOO!* (“Acknowledged”) They all howled in unison up to the sky.
-
-“Good night, my pups.” Mother closed the door behind her.
 
 “Compassion.” Scoffed Wryonin, holding the candle while his sisters got comfy in their beds. “Cats didn’t show compassion to Yotleph. Not to Nosalen, and not to Monassus.”
 
