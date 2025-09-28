@@ -1508,6 +1508,30 @@ AWOOOOOOOO! (“Acknowledged”) They all howled in unison up to the sky.
 
 ## 13. Scene: next day, ersie fits cuffs for muddy
 
+When the morning hour howl woke her up, Ersie threw off her covers and bolted out the door, skipping breakfast, as usual. She ran to her workshop, where she rushed to the bracers.
+
+She examined them. They were in the same condition as they were last night, with the leather strap detached, but everything else intact.
+
+It was only a matter of time before someone called for her so Mother could give them the next assignment. She would have to hurry before she got called away again.
+
+She slid the slider on the bracer closed. Check. Wearing the bracer granted super strength. Check. Bracer stayed on arm. Uncheck.
+
+She was about to cut the leather strap so it would be the right size when closed, but then realized there would be no way to turn it off without taking it off. *Why would anyone want to turn off the super strength?* She thought about this, and as she did, her eyes wandered to the corner of her worktable, where Ordaent’s Lock sat. *I use this to turn off heirloom effects all the time. So who knows? Maybe there will be a case where you would want to turn off the super strength.* With that, she continued.
+
+*But if the strap is always small, how is she supposed to get it on? Hmm…*
+
+Ersatzica played with the strap, opening and closing the slider a bit. Then she realized that the open-close mechanism can be reversed. Usually the strap is bigger when the slider is closed, and smaller when the slider is open. But she can reverse how the strap connects so the opposite is true. She attached the leather strap on.
+
+The slider is open and the strap is big. Check. The slider is closed and the strap is small. Check.
+
+*Nice!*
+
+She did note that now turning off the super strength made the bracers likely to fall off, but that was ok. Surely Mudrich could live with that, while Ersie came up with a better solution.
+
+*AWOOOOO!* (“Here!”) It was Wryonin’s family-summoning call. It was as if he had waited for her to finish.
+
+Ersie bounced along to the meeting place, wearing the bracers giddily.
+
 ## 14. Scene: muddy knocks hole in wall
 
 Mudrich carried the items back to Ersie’s workshop, dropping the sword every so often to wait for it to lighten up again. There, Mudrich spotted her hammer.
