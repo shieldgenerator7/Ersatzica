@@ -1358,6 +1358,8 @@ At the end, they high fived in front of the dropoff, where the town ended and th
 
 ## 12. Scene: census results
 
+[rewrite this to fit into new context (old context was Ch6)]
+
 Bedtime approached, and Ersatzica entered the barracks to find her siblings already there.
 
 “Ersie!”
@@ -1507,6 +1509,10 @@ AWOOOOOOOO! (“Acknowledged”) They all howled in unison up to the sky.
 “Good night, my pups.” Mother closed the door behind her.
 
 ## 13. Scene: next day, ersie fits cuffs for muddy
+
+[alude to more daily challenges happening, so this time pressure doesn’t come out of nowhere]
+
+[slightly rewrite this to put more time pressure on ersie, like wryonin’s howl happening while she is working]
 
 When the morning hour howl woke her up, Ersie threw off her covers and bolted out the door, skipping breakfast, as usual. She ran to her workshop, where she rushed to the bracers.
 
