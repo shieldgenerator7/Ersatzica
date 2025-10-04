@@ -2155,7 +2155,7 @@ The moon shone warmly through the rain clouds, illuminating down on Ersatzica.
 
 She looked up to it. “Alpha, Wolf God of the Loyal Moon, please help me.”
 
-# Chapter 5 – Yotleph’s Skull
+===
 
 Ersatzica slept under the stars that night in the river.
 
@@ -2200,6 +2200,10 @@ Now that she had a base for the new water to freeze to, she could start working 
 The foot was getting very warm by the time she got there.
 
 But at the top, she found that the bank was a bit taller than the current river level, and that trying to freeze the river water in this position didn’t help much. She was stuck.
+
+Then, above her, on the top of the river bank, a black and white cat stood, looking down at her.
+
+# Chapter 5 – Yotleph’s Skull
 
 “Take my hand, Your Majesty.” A clawed paw hand invited her to the cat side of the river.
 
