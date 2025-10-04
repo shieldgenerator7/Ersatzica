@@ -2399,6 +2399,104 @@ As the day wore on, it was time to go to bed. Ersatzica asked Fisher to escort h
 
 [TODO: Fill in this in more detail]
 
+Fisher led Ersatzica to her room.
+
+"Well that was fun Fisher."
+
+"I'm glad you had a good time, Majestra. I enjoyed myself too."
+
+Ersatzica blushed, her orange cheeks turning as red as her hair. "Will you be here tomorrow?"
+
+"I can come by first thing in the morning." Fisher grabbed her hand.
+
+"Unhand her!" The guard outside her room yelled.
+
+Fisher reflexively jumped back.
+
+"No, no, it's fine." She calmed down the guards. "He's with me."
+
+"If you say, so, Your Majesty."
+
+"See you tomorrow." Ersatzica smiled at him, then turned to the door. She turned the knob, but it was locked. "It's locked."
+
+"Yeah, just use your key."
+
+"Um..."
+
+"You lost that in the river too?"
+
+"Yes." Ersatizca landed her head on the door.
+
+"No worries, Majestra. I have the key!"
+
+"You do?"
+
+"Yeah, I found it for you near the river bank. Let me in there." He got up next to Ersatzica, and revealed a single cat claw out of view of the guards. He inserted it into the keyhole below the handle, and with some expert jiggling of the handle, he unlocked it. "There you go, Majestra."
+
+Ersatzica's eyes were wide. "I didn't know you could do that." She felt the glare of the guards. "I mean, I didn't know you could find a key so well after it got lost. Thank you so much, Fisher!" She gave him another big hug.
+
+Fisher smiled awkwardly. "Sleep well, Majestra."
+
+"See you tomorrow." Ersatzica walked into her room. It was dark. "Oh, Fisher?"
+
+"Yes, Majestra?"
+
+"Where's the lantern?"
+
+"Lantern? We have lights." He reached around and hit a slider that put a hoof clipping together. The entire ceiling of the small square room lit up in a warm yellow-orange glow.
+
+"Wow, that's fancy!"
+
+Fisher chuckled. "Anything else I can help you with?"
+
+Ersatzica looked around. "Where are the other beds?"
+
+"What do you mean?"
+
+"How are you going to sleep in here without a bed?"
+
+"I don't sleep in your room."
+
+"Then who does?"
+
+"You do."
+
+"By myself?"
+
+"Yes?" Fisher tilted his head.
+
+"Oh. I see."
+
+"Didn't you request this yourself?"
+
+"Well, I suppose... I did." Ersatzica thought for a moment. "Could you sleep in here with me?"
+
+"Tonight?"
+
+"Please?"
+
+Fisher shrugged. "Why not?" He stepped a foot inside.
+
+The guards put their weapons in his face. "No one is allowed entry except for the Majesty Majestra."
+
+Fisher backed up. "Fine, fine." He grabbed the door on his way out. "I'll see you tomorrow, Majestra." He closed the door.
+
+*The room around Ersatzica closed in on her. The ceiling smiled evilly down upon her, and the spaces between the bricks in the walls closed up. The door faded away, becoming just another section of solid wall. Years passed, and Ersatzica slowly withered away, becoming nothing more than another cat trapped in a pair of boots in a sealed room. When a brick was finally smashed open from the outside, Ersatzica was no more, and in her place, lay a dried up, poop-smelling skeleton, inhabiting the boots.*
+
+Ersatzica breathed frantically. She rolled off the bed and fell onto the floor. She dashed to the door. She frantically turned the handle with her full hand, grabbing it with her claws. The claws scraped the door handle but didn't grip it. She screamed. She scratched at the door. She kicked the door.
+
+The door opened, nearly hitting her in the face.
+
+"Are you ok, Majestra?" Fisher asked.
+
+Ersatzica hugged him. "Oh thank Alpha, Fisher."
+
+"What's wrong?"
+
+"I don't... I don't... Is there somewhere else I can sleep tonight?"
+
+[]
+
 Then the next morning, Ersatzica followed Fisher to the beach.
 
 “Your next mission isn’t until tomorrow. Are you sure?”
