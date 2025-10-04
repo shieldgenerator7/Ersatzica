@@ -1533,6 +1533,7 @@ The slider is open and the strap is big. Check. The slider is closed and the str
 *Nice!*
 
 She did note that now turning off the super strength made the bracers likely to fall off, but that was ok. Surely Mudrich could live with that, while Ersie came up with a better solution.
+[have muddy come to workshop to get bracers]
 
 *AWOOOOO!* (“Here!”) It was Wryonin’s family-summoning call. It was as if he had waited for her to finish.
 
@@ -1604,9 +1605,9 @@ Muddie punched the wall, and again. In rhythm with the drums.
 
 *POUND POUND POUND*
 
-Muddie punched the last brick with extra fervor, sending it flying into the room. Ersie handed her the lantern as they both entered. Ersatzica taped her nose and Mudrich’s nose shut.
+Muddie punched the last brick with extra fervor, sending it flying into the workshop. Ersie handed her the lantern as they both entered. Ersatzica taped her nose and Mudrich’s nose shut.
 
-Dust and dirt rolled out of the chamber into their bedroom, depositing mostly onto Mudrich’s bed. Ersatzica and Mudrich coughed as they breathed it in. It was as if they had discovered a long-lost tomb.
+Dust and dirt rolled out of the chamber into the workshop, depositing into the entryway. Ersatzica and Mudrich coughed as they breathed it in. It was as if they had discovered a long-lost tomb.
 
 Inside, the floor was littered in rat feces and dotted with rat corpses. Cobwebs decorated every corner. A puddle or two reflected the lantern light.
 
@@ -1638,9 +1639,9 @@ Ersatzica turned back to the skeleton, and the boots.
 
 The boots had two latches each. She held the boots in place as she unlatched them, one by one. The mouth of the boots opened up, and she gently slid the boots off.
 
-They were covered in soot, dust, and cobwebs. She brought them into the bedroom, dusting them off by hand, then fetched Lemilay’s brush from the wall to get in the crevices. Despite that, they were still dirty, and quite a bit rusty.
+They were covered in soot, dust, and cobwebs. She brought them into the workshop, dusting them off by hand. Despite that, they were still dirty, and quite a bit rusty.
 
-“Don’t worry, I got you.” She hid them under Muddy’s bunk.
+“Don’t worry, I got you.” She placed them on her worktable, carelessly shoving aside her tools to clear a spot for them.
 
 When Nephalie arrived with Mudrich, she was quite disgusted. “You pups really outdid yourselves this time, huh?” The deer girl walked in, rubbing her hoof hands together. “Might as well punch down the whole building while you’re at it.”
 
@@ -1660,7 +1661,11 @@ Mudrich piled the bricks up near the hole.
 
 Nephalie rolled her eyes. “That’s not neat enough, but…” She flexed her hoof hands. “I guess it’s good enough for me to work my magic.”
 
-Mudrich bounced up and down. “This is my favorite part.”
+Mudrich bounced up and down. “This is my favorite part.” Mudrich knelt down next to Nephalie, practically sticking her nose in Nephalie's face.
+
+"Mudrich, give me some space!" She shoved her back.
+
+Mudrich resisted, but relented, settling for being right over her shoulder.
 
 Nephalie placed her hoof hands over the bricks, middle finger separated. The hoof on the end of her middle finger grew rapidly. The bricks morphed and stretched, growing up from the floor to fill in the hole in the wall. The result looked like someone stretched out a white blob of goo and let it dry. Ugly, but functional.
 
@@ -1670,7 +1675,7 @@ Mudrich wagged her tail as she accepted the hoof clippings. “Thank you, Neffie
 
 “It’s Nephalie. And don’t do this again, *please*.” She left.
 
-Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it had been. Then she carried the boots to Ersie’s workshop.
+Mudrich handed Ersatzica the hoof clippings, who stuck them in a jar glued to the wall.
 
 “So what do you think these boots do?” Mudrich said.
 
@@ -1686,17 +1691,17 @@ Mudrich handed Ersatzica the hoof clippings. She moved the bed back to where it 
 
 “Well, you can change that, can’t you? Make the cat boots into wolf boots?”
 
-“Well, no, I can’t… unless I adjust the distance between the… and I also change the size of the sole… and.. Yeah, actually! I might be able to.”
+“Well, no, I can’t… unless! I adjust the distance between the… and I also change the size of the sole… and.. Yeah, actually! I might be able to.”
 
 “Then do it! I want to test them out!” Mudrich drooled.
 
 “Hold on Muddie! It’s going to take a while. They probably won’t be ready today.”
 
-“Ok.” Muddie pushed open the door to Ersie’s workshop, then set the boots down on her desk. “See you in a muddy!”
+“Ok.” Muddie stepped outside. “See you in a muddy!”
 
 “It’ll be longer than a muddy.”
 
-“Ok, then see you in an ersie!”
+“Ok, see you in an ersie!”
 
 “Bye, Muddy.”
 
@@ -1822,7 +1827,7 @@ Ersatzica quickly hid in a corner and unlatched the boots. “Oh, hi Mudrich!”
 
 “Do you smell a cat?”
 
-“Mudrich, I’ve been doing nothing all day but working on an heirloom that an old cat *died*.”
+“Mudrich, I’ve been doing nothing all day but working on an heirloom that an old cat *died* in. Who, by the way, is still in the other room.”
 
 “Oh… right.” Mudrich tapped on the door. “Well, anyway, did you get the boots fixed?”
 
@@ -1852,11 +1857,11 @@ Ersatzica quickly hid in a corner and unlatched the boots. “Oh, hi Mudrich!”
 
 “Yeah, heh, voice changing boots.”
 
-“I was hoping for super speed. You know, to go with these super strength cuffs!”
+“I was hoping for super speed. You know, to go with these super strength cuffs! I want the drums, but always speeding--”
 
 “Yeah, hey Muddy, can you give me some time? I’ll be right over as soon as I’m done with this.”
 
-“Ok, but don’t take too long. Wryonin says he wants to have a word with us about the whole secret room thing.”
+“Ok, but don’t take too long.”
 
 “Sure thing. Ok bye.”
 
@@ -2620,7 +2625,7 @@ It was her siblings!
 
 Mudrich mournfully held up a wolf skin in the air as she howled as loud as her heart would allow.
 
-“That looks like the Wolf Skin of Monassus.” Fisher said excitedly. “I guess you really would have better luck asking the wolves!”
+“That looks like the Wolf Skin of Monassus.” Fisher said excitedly. “I guess you really would have better luck asking the wolves! But... how do *they* have it?”
 
 “Those are my siblings!” Then she turned to Fisher and hugged him. “Thank you Fisher! I couldn’t have survived without you.”
 
