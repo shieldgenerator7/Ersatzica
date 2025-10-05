@@ -2495,6 +2495,86 @@ Ersatzica hugged him. "Oh thank Alpha, Fisher."
 
 "I don't... I don't... Is there somewhere else I can sleep tonight?"
 
+"You could... sleep in my bed." Fisher said.
+
+Ersie blushed. "I'm not ready for that."
+
+"I mean, you can have it, for tonight at least."
+
+"Then where would you sleep?"
+
+"I'll just sleep in Tigrin's bed. He's not back from his mission yet, so I'm sure he won't mind." Fisher smiled, then looked spooked for a second. "But don't tell him I slept in his bed. The big guy would go all 'tiger mode' on me if he found out."
+
+"Tiger mode? As in big bulky and angry? Using bracers to get big?"
+
+"Yep! That's him."
+
+*Tigrin. That must be the big cat that Mudrich killed.* "Don't worry, I'm sure he will never find out."
+
+"Ok, follow me." Fisher led her to his sleeping quarters.
+
+The building was a deer-made structure at ten muddies tall. It looked like a rock stretched out like glue. Fisher opened the door, letting her in. Inside, all the walls were lined with what looked like tree bark, and lots of shelves organized in a criss cross pattern. On each shelf, slept a cat. Most of them were black and white, but there were a few orange ones, who didn't have a red-tipped tail.
+
+Ersatzica gazed up at the architechtural wonder that was this dormitory. "Wow."
+
+"You've never seen the inside of a dormitory before?"
+
+"No."
+
+"You red-tips are so sheltered, aDirada says."
+
+"How do you get up there?"
+
+Fisher showed her his paws, and suddenly produced his claws. Then he swiped the wall, and his claws stuck in the wall. He showed her his feet, also exposing his feet claws. Then he climbed the wall, up to his bed. He looked down when he got to an empty shelf. "You coming?"
+
+"Right. Cat's claws. Cat's claws let you climb."
+
+Fisher laughed. "You act like you haven't been a cat for the last... how old are you? 16? For the last 16 years."
+
+Ersatzica laughed nervously. "I'm... just a bit rusty."
+
+*If Fisher can do it, if other cats can do it, then I can too. Because I'm a cat.* Ersatzica shook her head. *No, I'm not a cat, but I have to pretend to be a cat. And cats climb walls.*
+
+Ersatzica looked at her clawless hand. She curled her fingers, and her claws unsheathed themselves. This was a tiny transformation of its own, her new body changing shape at her will.
+
+She put her clawed hand on the wall like Lemilay hangs her brush on the wall. She put her other hand on the wall and lifted up. She got herself off the ground, but couldn't find any foot holds, becuase her feet were covered in the boots.
+
+She accidentally kicked the boots up against the wall, and three small spikes came out of the boots. "Huh, would you look at that, they're also useful for climbing." Ersatzica used the claws in the boots in conjunction with her claw hands to climb the wall to get to Fisher.
+
+"Here's my--your bed for the night."
+
+The shelf felt barely big enough to fit her, let alone a regular person.
+
+"It's kind of small, isn't it?"
+
+"I fit on it just fine." Fisher climbed onto it. It also was texture with tree bark. He curled up into a ball, fitting his tail around his head. His hat stayed on his head the whole time, even when he tilted his head sideways. "See? Like that."
+
+Ersatzica stared in disbelief.
+
+"Or you could sleep like this." He laid on his stomach, tucking his arms and legs under his body, and curling his tail around his front.
+
+Ersatzica stared.
+
+"Well this is how regular cats sleep, Majestra. We don't all sleep in fancy beds like you do. What do you want from me?"
+
+"It's not that, it's..." Ersatzica said. "How do you keep from falling off?"
+
+"You just... don't?" Fisher tilted his head. "And even if you did, you'd just land on your feet, right?"
+
+Ersatzica laughed nervously. "Yeah. Right. I'd just land on my feet. So where are you sleeping?"
+
+Fisher jumped to the shelf next to, and slightly above his shelf. "Right here." That shelf was slightly bigger. "If you need anything in the night, anything at all, just give me a tap--but not a scratch, please."
+
+"Ok." Ersatzica climbed onto the shelf and curled up.
+
+"Are you ok there?"
+
+"Yes. Thank you, Fisher."
+
+"Good night, Majestra."
+
+"Good night, Fisher."
+
 []
 
 Then the next morning, Ersatzica followed Fisher to the beach.
