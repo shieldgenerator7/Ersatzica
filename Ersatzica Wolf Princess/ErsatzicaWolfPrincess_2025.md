@@ -3247,7 +3247,7 @@ A black and white cat suddenly approached. “Ersatzica!” He smiled.
 
 “Well, I’m *supposed* to be fulfilling my duties, but as long as I get it done, it doesn't matter if I take a break, right?”
 
-“Haha.” Fisher laughed. “I guess you’re right.” He climbed into the boat. “But we should make this quick, I don’t want Mystra to find me talking with you.”
+“Haha.” Fisher laughed. “I guess you’re right.” He climbed into the boat. “But we should make this quick, I don’t want Magestra to find me talking with you.”
 
 “Right.”
 
