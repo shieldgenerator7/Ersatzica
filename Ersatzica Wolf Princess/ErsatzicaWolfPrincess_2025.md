@@ -3293,6 +3293,22 @@ Fisher pulled out a book from his basket, and opened to a particular page.
 
 “I don’t know. But I’ll see if I can find more stories about him.”
 
+"He sounds like a true wolf of loyalty."
+
+Fisher scoffed.
+
+"Huh?"
+
+"What?"
+
+"Do you have something against loyalty or something?"
+
+Fisher clawed at a white linen strap on his ankle. "What good is loyalty when everyone around you hates your guts?"
+
+Ersatzica fell silent.
+
+"Sorry. I mean, no, I don't have anything against loyalty."
+
 *AWOOOOOO!* (“Here!”)
 
 “Oh! That’s my sister calling. I have to go.”
@@ -6291,11 +6307,15 @@ Lemilay stood over him, head held high. “Fisher? That sounds like a cat name.�
 
 “I’m a cat by choice. There’s nothing wrong with that.”
 
-“If you’re a wolf, prove it. Prove your loyalty. Obey my orders and run. Go help the other villagers who are evacuating.”
+“If you’re a wolf, prove it. Prove your loyalty. Obey my orders and run. Go help the other villagers who are evacuating. Or are you not a wolf of loyalty?”
 
-“I won’t let you hurt Ersie.” He stood up, fists ready.
+"I am a wolf of loyalty, but I'm loyal to Ersie."
 
-“Fisher, she knows Pea-Fo! You don’t stand a chance!” Ersie cried.
+"Ha!"
+
+"I didn't use to think loyalty was important. But it was Ersie who gave me something--*someone* to be loyal to. So, no, I won’t let you hurt Ersie.” He stood up, fists ready.
+
+“Fisher, forget loyalty! Save yourself! She knows Pea-Fo! You don’t stand a chance!” Ersie cried.
 
 “We’ll see about tha—”
 
