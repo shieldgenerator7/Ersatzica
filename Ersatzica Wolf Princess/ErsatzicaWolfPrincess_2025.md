@@ -4825,7 +4825,7 @@ Fisher sighed. “Well, that was something, huh, Ersie?”
 
 “What is it?”
 
-‘I’m a wolf, I hold to that. But I wasn’t born that way. I was born a cat, and I’ve been wearing this wolfskin all my life.”
+“I’m a wolf, I hold to that. But I wasn’t born that way. I was born a cat, and I’ve been wearing this wolfskin all my life.”
 
 “And you only just recently discovered this?”
 
@@ -5675,7 +5675,7 @@ But when she got to the entrance, she heard them talking.
 
 ”About 5.”
 
-I always knew they were coming, but this soon? I have to warn the others! I thought the river would hold them back, but with this news, I’m not sure if we can hold them off long enough to survive. Ersatzica ran to the river. But how am I going to tell them as a cat? I’ll have to find the deer village by myself. Or, maybe Nephalie knows where the deer village is?
+*I always knew they were coming, but this soon? I have to warn the others! I thought the river would hold them back, but with this news, I’m not sure if we can hold them off long enough to survive.* Ersatzica ran to the river. *But how am I going to tell them as a cat? I’ll have to find the deer village by myself. Or, maybe Nephalie knows where the deer village is?*
 
 With the help of Nosalen’s foot, she easily crossed the river on an ice bridge. The boots slipped a little on the ice, but it wasn’t anything she couldn’t handle.
 
