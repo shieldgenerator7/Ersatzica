@@ -106,11 +106,11 @@ Her brother wasn’t here to test it out, so she herself tried it on. She dug he
 
 She placed the culprit on the worktable, eyeing the spike. “I want to remove your spike, but he told me not to.” She looked to the slingshot for validation, but it offered no response. “But if I don’t, you’ll wear a cut into his belt again.”
 
-She tapped on the table with her screwdriver.
+She tapped on the table with her screwdriver. “Hm.” She nodded.
 
 She held down the slingshot and held up the file part of her screwdriver. “This will only hurt for a moment.”
 
-She filed down the spike to a round bump.
+She filed down the spike to a round bump. Even as her satisfied smile grew, her ear pricked, waiting intently for an angry voice to appear behind her.
 
 “There! All done.”
 
@@ -122,7 +122,7 @@ She holstered the slingshot, and it didn’t scrape the new patch of belt. Check
 
 Ersie took off the belt she had just finished repairing. “Come in.”
 
-The door burst open, releasing a short, all-white wolf girl. She ran up to Ersie, bouncing up and down, dried mud patches flopping to the ground. “Did you finish it? Did you did you?”
+The door burst open, releasing a short, all-white wolf girl, who was absolutely covered in mud. She ran up to Ersie on all fours, bouncing up and down, dried mud patches flopping to the ground. “Did you finish it? Did you did you?” She stood up to give Ersie a big hug, complete with sloppy wet kisses.
 
 “Calm down, Muddy.” Ersie pushed her back. “It’s right here.” From a barrel, she pulled out a metal hammer that was about as big as the white wolf girl was.
 
