@@ -4845,7 +4845,49 @@ Ersatzica nodded.
 
 “It’s just a cut, Ersie, I’ll be fine.”
 
-She kissed it one more time. “Ok.”
+She kissed it one more time. “Ok.” She snuggled up to him. “So.”
+
+“So?”
+
+“You’ve told me a lot of stories about a lot of things, and I just realized, you’ve never told me any stories about yourself.”
+
+“Ah, you don’t want to hear about me. My life is so booooring. All I do is sit by the river all day and pretend to catch fish.”
+
+“Oh come on, tell me.”
+
+“There’s nothing to tell.”
+
+“Sure there is.”
+
+“Like what?”
+
+“Like, why are you out here? You must’ve come a long way from home.”
+
+Fisher shrugged. “I wanted to have some place to relax.”
+
+“Really?”
+
+Fisher stuffed his face with a fish. “Uh huh, really.”
+
+“Ok, what about your hat?” Ersie reached for it.
+
+Fisher grabbed it, preventing her from taking it. “It’s a… family heirloom. It… reminds me of my grandpa. I don’t like people touching it.”
+
+“But it’s so funny. I’ve never seen a hat that stays on when upside-down.”
+
+“Well, it’s an heirloom. And… that’s what it does.”
+
+“Stays on when upside-down?”
+
+“Yep. And also, there’s another effect.”
+
+“What’s that?”
+
+“It makes me look good in front of good looking kitties.” He smugly smiled.
+
+Ersatzica laughed, blushed, and smiled all at the same time. “I love you.” She laid her head on his shoulder.
+
+He put his arm around her shoulder, slowly stroking her arm fur.
 
 They sat in silence for a moment, enjoying each other’s company. Then they shut their eyes, and fell asleep.
 
