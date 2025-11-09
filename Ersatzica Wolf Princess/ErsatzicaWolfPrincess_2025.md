@@ -536,7 +536,45 @@ Wryonin’s ears twitched. “They’re here! Everyone, run!” Wryonin took off
 
 Lemilay twitched. Then she ran, dropping the telescope. *AWOOOOOO!* (“Intruders!”)
 
-Mudrich ran after them.
+Mudrich put her nose to the sky, sniffing the air.
+
+“Muddy?”
+
+“They’re here!” Mudrich looked in the direction they were coming from. She picked up her hammer, tossing it around in her hands.
+
+Ersatzica grabbed her hand. “No. We have to leave. Get back to town.”
+
+Mudrich nodded. *Bark!* She ran off into the woods, motioning Ersatzica to follow.
+
+They ran to a wooden stake next to a tree, sticking out over tall grass. Mudrich parted the grass to reveal a hole she had dug.
+
+*Bark! Bark!* Mudrich laid down her hammer, allowing it to be hidden in the tall grass. Then she dove headfirst into the hole, crawling through it.
+
+Ersatzica knelt down in front of the hole. The day was ending, and the hole was completely dark inside. She could smell Muddy’s scent coming from the hole, and the sounds of her crawling and grunting through it. But she couldn’t see her, or the hole’s floor. Every other time she followed Muddy in, there had been enough daylight to see at least the entrance.
+
+She poked her head in, and squeezed her arms in. She crawled into it halfway, before she got caught on something. It was the drums. They widened her hips to the point that she couldn’t fit into the narrow hole. She froze.
+
+The cool night air came early, blowing through the hole and ruffling her fur, sending her scent wafting through the forest to the invading cats. She stopped to listen, pricking her ears behind her. Birds cawed, flapping their wings and unsettling branches as they fled. Twigs snapped. The cling-clank of metal on metal rustled off in the distance, but approaching ever closer.
+
+Ersatzica tried to force it, but brute forcing her body—and thus the drums—into the hole. But they wouldn’t budge. So she crawled out of the hole.
+
+She reached for the belt buckle to take the drums off. *The drums sat in the bushes, forgotten. Rain rusted out the metal flashings, and leaves and dirt rotted the tensioned fabric. A wild animal ran through the bushes, stepping on them as it went, crushing them. And then, finally, a cat soldier, covered head to toe in red and gold plating, like shingle tiles, came and pierced the drums with a sword, and threw the pieces in the river.* She rebuckled the belt.
+
+“I got you.”
+
+The clinking got louder.
+
+Ersatzica looked around. She didn’t have any good hiding spots. But she did have Mudrich’s hammer. She felt around for it in the dark. Even knowing where it was, it took her a while to find it.
+
+It was a silver-grey pole spot-welded to another pole, that was then welded to a hollow metal box made from five metal wedges that came together to form a box without a lid, with the opening being one of the ends that would normally be used for hammering. Ersatzica had constructed it for Mudrich to be used for moving dirt, but it didn’t end up getting used for that purpose. It was one of her first projects, and she learned a lot from the failures of its design.
+
+She grabbed the handle close to the box and shoved it into the ground next to the hole. It didn’t go in easily, so she stood on the other end to force it in with all her weight. Then with half the box in the ground, stopped by the handle, she lifted up on the handle to dig a piece of dirt out. She plopped it on the ground, giving her a solid dirt brick. Yes, this was the intended way to use this hammer. No, this was not how it was normally used by its owner.
+
+She silently made a few more dirt bricks, keeping watch for the cat invaders. Then when she had enough, she unbuckled the belt, crawled feet-first into the hole (careful to make sure not to rub her belly scar on the dirt), and pulled in the hammer and drums. Then she pulled the bricks in, covering the hole. There were some gaps left with which she could watch the sunset.
+
+Then she waited.
+
+The clinking got louder, soon accompanied by footsteps and arguing voices. They got ever closer, as her scent led them right to her. Hopefully, her hiding spot was good enough.
 
 Ersatzica walked quickly, trying to be quiet as she panicked. All of her siblings were far ahead of her now. She heard several twigs snapping, getting closer. She jumped and ran, fleeing from the sound. The jostling around from her steps unsettled the scar on her stomach. She clutched her belly as she stopped. It threatened to bleed.
 
