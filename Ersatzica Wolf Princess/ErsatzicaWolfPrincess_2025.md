@@ -558,7 +558,7 @@ The cool night air came early, blowing through the hole and ruffling her fur, se
 
 Ersatzica tried to force it, but brute forcing her body—and thus the drums—into the hole. But they wouldn’t budge. So she crawled out of the hole.
 
-She reached for the belt buckle to take the drums off. *The drums sat in the bushes, forgotten. Rain rusted out the metal flashings, and leaves and dirt rotted the tensioned fabric. A wild animal ran through the bushes, stepping on them as it went, crushing them. And then, finally, a cat soldier, covered head to toe in red and gold plating, like shingle tiles, came and pierced the drums with a sword, and threw the pieces in the river.* She rebuckled the belt.
+She reached for the belt buckle to take the drums off. *The drums sat in the bushes, forgotten. Rain rusted out the metal flashings, and leaves and dirt rotted the tensioned fabric. A wild animal ran through the bushes, stepping on them as it went, crushing them. And then, finally, a cat soldier, covered head to toe in red and gold plating, like shingle tiles, came and pierced the drums with a sword, and threw the pieces in the river.* Her belly scar hurt. She held it with one hand while she rebuckled the belt with the other.
 
 “I got you.”
 
@@ -568,13 +568,17 @@ Ersatzica looked around. She didn’t have any good hiding spots. But she did ha
 
 It was a silver-grey pole spot-welded to another pole, that was then welded to a hollow metal box made from five metal wedges that came together to form a box without a lid, with the opening being one of the ends that would normally be used for hammering. Ersatzica had constructed it for Mudrich to be used for moving dirt, but it didn’t end up getting used for that purpose. It was one of her first projects, and she learned a lot from the failures of its design.
 
-She grabbed the handle close to the box and shoved it into the ground next to the hole. It didn’t go in easily, so she stood on the other end to force it in with all her weight. Then with half the box in the ground, stopped by the handle, she lifted up on the handle to dig a piece of dirt out. She plopped it on the ground, giving her a solid dirt brick. Yes, this was the intended way to use this hammer. No, this was not how it was normally used by its owner.
+She grabbed the handle close to the box and shoved it into the ground next to the hole. It didn’t go in easily, so she stood on the other end to force it in with all her weight. Then with half the box in the ground, stopped by the handle, she lifted up on the handle, turning the hammer around the edge of the box, leveraging the box out of the ground, full of dirt. She swung the hammer on the ground, plopping out a dirt block. Yes, this was the intended way to use this hammer. No, this was not how it was normally used by its owner.
 
-She silently made a few more dirt bricks, keeping watch for the cat invaders. Then when she had enough, she unbuckled the belt, crawled feet-first into the hole (careful to make sure not to rub her belly scar on the dirt), and pulled in the hammer and drums. Then she pulled the bricks in, covering the hole. There were some gaps left with which she could watch the sunset.
+She assessed her progress. Dirt block from hammer? Check. Hole wide enough to fit in with the drums? Uncheck. Time enough to dig hole? Uncheck, probably. Time enough to make more dirt blocks? Check, with Alpha’s aid.
+
+She silently made a few more dirt bricks, keeping watch for the cat invaders. Then when she made enough, she unbuckled the belt, crawled feet-first into the hole (careful to make sure not to rub her belly scar on the dirt), and pulled in the hammer and drums. Then she pulled the bricks in, covering the hole. There were some gaps left with which she could watch the sunset.
 
 Then she waited.
 
 The clinking got louder, soon accompanied by footsteps and arguing voices. They got ever closer, as her scent led them right to her. Hopefully, her hiding spot was good enough.
+
+A figure suddenly blocked the sunlight. “Tigrin, you’ll want to see this.”
 
 [TODO: remove this section, or rewrite it]
 
