@@ -576,6 +576,8 @@ Then she waited.
 
 The clinking got louder, soon accompanied by footsteps and arguing voices. They got ever closer, as her scent led them right to her. Hopefully, her hiding spot was good enough.
 
+[TODO: remove this section, or rewrite it]
+
 Ersatzica walked quickly, trying to be quiet as she panicked. All of her siblings were far ahead of her now. She heard several twigs snapping, getting closer. She jumped and ran, fleeing from the sound. The jostling around from her steps unsettled the scar on her stomach. She clutched her belly as she stopped. It threatened to bleed.
 
 She looked back at the source of the noise. The intruders weren’t yet visible. She looked at her belly, just barely holding together. She looked at the drums. She wiped the dust off the tops. “Find the beat, find the beat. I just gotta find the beat.”
@@ -618,7 +620,7 @@ She shifted so the drums fell a bit behind her, and she beat the drums with her 
 
 A blur of white came out of nowhere, striking the cat holding Ersatzica and launching it forward and splatting against a nearby tree.
 
-“What in the name of Teal—” said a cat who also got punted into a tree by the white blur.
+“What in the name of Ajig—” said a cat who also got punted into a tree by the white blur.
 
 Ersie just kept beating the drums.
 
@@ -1570,8 +1572,7 @@ The slider is open and the strap is big. Check. The slider is closed and the str
 
 *Nice!*
 
-She did note that now turning off the super strength made the bracers likely to fall off, but that was ok. Surely Mudrich could live with that, while Ersie came up with a better solution.
-[have muddy come to workshop to get bracers]
+She did note that now turning off the super strength made the bracers likely to fall off, but that was ok. Surely Mudrich could live with that, while Ersie came up with a better solution. [have muddy come to workshop to get bracers]
 
 *AWOOOOO!* (“Here!”) It was Wryonin’s family-summoning call. It was as if he had waited for her to finish.
 
