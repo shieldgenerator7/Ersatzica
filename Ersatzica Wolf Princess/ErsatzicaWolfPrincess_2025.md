@@ -580,6 +580,176 @@ The clinking got louder, soon accompanied by footsteps and arguing voices. They 
 
 A figure suddenly blocked the sunlight. “Tigrin, you’ll want to see this.”
 
+It was only then that she realized she was breathing heavily. The physical exertion and the panic had adrenaline running through her body, making her breathe heavier and louder and. Her breathing felt limited by her belly scar.
+
+“Did you find it?” A giant cat said.
+
+“I don’t know.”
+
+The giant cat reached in through the crack and grabbed onto the hammer. Ersatzica was still holding onto it, and when it breached the bricks, she was pulled up with it.
+
+“Augh!” The big cat yelled, flinging the hammer away.
+
+Ersatzica landed in the soft mud on her side, with the drums landing next to her.
+
+“Wolf!” The big cat yelled. “Grab the net!”
+
+A third cat jumped into the tree above her and dropped a net on her.
+
+Ersatzica struggled to get out in vain.
+
+The big cat grabbed her like a taco and slung her over his shoulder. “Alright, let’s go back.”
+
+*I‘ve just been captured! They’re going to take me back to their tent and cook me!*
+
+She couldn’t move any of her muscles, except her tail, which was outside the net. She could barely open her muzzle, but maybe it was enough to…
+
+*AWOOOO!* (“Help!”)
+
+“None of that!” The big cat grabbed onto her muzzle, clasping it shut. He carried her towards the river, towards the cat side.
+
+Ersatzica felt around for the drums. She found one in her hands. She rotated it so the top was out towards the net. She reached around with her tail to hit the drum. It was stressful, but she managed to do it. She hit the drums at a beat that matched the big cat’s footsteps. Then she slowed the beat down.
+
+The big cat suddenly tripped. His foot landed in a hole and pierced straight through to the bottom. It was one of Muddy’s tunnels!
+
+Ersatzica landed with a thud on the ground. The net was looser now, so she could move her hands. *BUM BUM BUM.*
+
+The big cat landed on all fours, with one foot stuck in the hole. “A Phantom Guard trap? On this side of the river?”
+
+“No, it’s a Mudrich trap!” Ersatzica exclaimed.
+
+*AWOOOO!* (angry gibberish)
+
+A white blur jumped over the big cat and a silver box came crashing down towards its head. The big cat turned in time to dodge, taking the blow to his shoulder instead.
+
+*BUM BUM BUM*
+
+Mudrich bounced off the cat, landing on the ground with a fierce growl.
+
+“Mudrich!” Ersie smiled.
+
+Mudrich turned to Ersie, and wagged her tail. *Bark!* Then her warrior gaze turned back to the cat.
+
+The big cat shrugged off the blow and pulled his foot out of the hole. Then he stood at his full height on two legs. He was three times the height of Mudrich. He walked menacingly towards Mudrich.
+
+*AWOOO!* Mudrich charged at him.
+
+He swatted her away. “Annoying.”
+
+“Mudrich!” Ersatzica could only hope she was okay. *BUM BUM BUM*
+
+*BUM BUM BUM*
+
+Ersatzica beat the drums, hoping Mudrich could still sync to them. Then she sped them up, just a little.
+
+The big cat picked up Ersatzica again.
+
+Ersatzica held the drums in such a way as to be able to continue playing, even with the net wrapped tightly around her.
+
+*BUM BUM BUM*
+
+Th big cat took one step—
+
+*BAM!* A white blur hit the big cat in the knee.
+
+The big cat roared. He stopped and watched for Mudrich.
+
+*BUM BUM BUM*
+
+*BOP!* Mudrich hit him in the back, near the base of the tail, nearly sending him falling forward.
+
+“Hey you cowards, get over here and help me with this wolf!”
+
+A cat peeked out from behind a tree. “It’s just one, and it’s little; we figured you can handle it.”
+
+*WHOP!* Mudrich hit him in the shin.
+
+“Oh, I can handle it. But… my hands are full.” The big cat grunted. “Take the prisoner and the drums. I’ll deal with the tiny wolf.” He tossed Ersatzica over to the tree.
+
+Even as the other cat loomed over her and dragged her by the net, all Ersatzica could do was watch the fight between Mudrich and the big cat.
+
+*BUM BUM BUM*
+
+Mudrich darted in and out, landing blow after blow onto the big cat, while dodging his strikes.
+
+A tree or two got in the way, and then another. Soon she wouldn’t be able to see her sister.
+
+*AWOOOO!* (“Help!”)
+
+Mudrich turned to her howl, and ran towards her. But she left herself open.
+
+The big cat grabbed her the shoulder and threw her to the ground.
+
+Then another tree blocked Ersatzica’s view. Some pounds and thuds, but she couldn’t see.
+
+She struggled in the net. It was looser than before, but still tight enough to get tangled in.
+
+Another cat joined the first, and together, they pulled Ersatzica along the uneven ground just a bit faster.
+
+Pinecones and twigs were getting scooped up into her fur. They dragged her through a mud patch, getting mud all over her. She found a few deer hoof clippings in the mud, but they were too soft to be used to break the net.
+
+“Let me go! Let me go!” Ersatzica cried.
+
+“Should we let her go?” One of the cats asked.
+
+“Now why would we do that?”
+
+“We came here for the drums, right? So we just take them and let her leave.”
+
+“Tigrin said to take the drums *and* the prisoner. Besides, the wolf won’t let us take the drums without a fight. And we stand no chance against it.”
+
+“But maybe the wolf would be willing to let us have it, and get away?”
+
+“Well pulling it sure is a *drag*.” They stopped pulling. “What do you say, wolf?”
+
+Ersatzica was still breathing heavily. It took her a moment to even realize they were giving her a choice. *If I give them the drums, I can go free.* She looked at the drums. A blue shimmer streaked across them, visible even as she beat them in rhythm. *Who knows what the cats want with the drums, and what they will do to them.* “Don’t worry, I won’t let anything happen to you.” She rubbed the drums for a brief moment before resuming the rhythm.
+
+“Huh? Is that a ‘yes’?”
+
+“No! I won’t let you hurt the drums!”
+
+The cat sighed. “Back to dragging it is.”
+
+===
+
+Wryonin panted as he reached the bottom of the stairs. He looked behind him. Lemilay was right on his tail, but no one else. “Where are Mudrich and Ersatzica?”
+
+Lemilay looked back, and then again with her Hind Sight. She shrugged.
+
+Wryonin’s gut dropped. “You left them!” He ran back through the forest.
+
+“You did too.” Lemilay retorted.
+
+*AWOOOO!* (“Help!”) It was Ersatzica! She must’ve been found by the cats! Hopefully she was still alive.
+
+*AWOOO!* (angry gibberish) And that was Mudrich! She was caught too—but no, that was an angry howl, not a whimper howl. She’s probably still alive. *AWOOOO!* Another angry howl. Yep, she’s alive, and probably fighting them.
+
+Wryonin ran through the forest, unholstering his slingshot. As he reached down for ammo, he winced. He expected to be sliced by the spike on his slingshot, but this time, that didn’t happen. “Huh, maybe Ersatzica was right.” He loaded a smooth stone into his slingshot.
+
+Growling and snarling came from behind a line of trees. The wind whistled subtly through the trees, rustling the leaves and branches. He didn’t have line of sound to the—what was it? It weighed about twice as much as Mudrich, based on its footsteps. It also had a deep voice, and it came from several feet off the ground. It’s probably a bear.
+
+*AWOOOO!* (Help!) That was Ersatzica! She’s still alive, but restrained in some way, by the sound of it. He had to hurry.
+
+The sun was going down, making visibility under the tree canopy difficult at range. But the wind was still audible. Wryonin’s ears pricked. He had line of sound to the skirmish in the woods. Two heavy individuals were wrestling, banging up against trees and the ground. He couldn’t make out which one was Mudrich.
+
+*AWOOOO!* (“Here!”) Wryonin howled, hoping to get the attention of the bear. Both of the heavy individuals stopped fighting for a moment.
+
+*AWOOO!* (angry gibberish)
+
+“Gotcha!” The heavy individual that didn’t howl was definitely not Mudrich. Wryonin steadied his aim and slingshot the rock through the forest, threading the needle through the trees to the battlefield that he couldn’t see, landing square on his target.
+
+*PLOK!* After a short moment, *THUD!*
+
+Wryonin smirked.
+
+Only one heavy individual moved around, and that sounded very much like a certain short stocky wolf he knew. And that individual ran off.
+
+He ran into the battlefield, and found a big orange tiger cat lying on the ground. Its eyes open and tongue out, it looked like it was dead, or at least dazed. Its right foot was covered in mud, and it had several bruises all over it. In its claws, and teeth, blood dripped out of clumps of white fur. Mudrich!
+
+*AWOOO!* (“Here!”) Wryonin followed the irregular wolf prints of his sister.
+
+===
+
 [TODO: remove this section, or rewrite it]
 
 Ersatzica walked quickly, trying to be quiet as she panicked. All of her siblings were far ahead of her now. She heard several twigs snapping, getting closer. She jumped and ran, fleeing from the sound. The jostling around from her steps unsettled the scar on her stomach. She clutched her belly as she stopped. It threatened to bleed.
