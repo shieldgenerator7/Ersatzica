@@ -4,13 +4,21 @@ Christmas 2025 Episode
 
 Gift Giving
 
-Hello! Welcome to the Church of Agranari.
+# Teaser
+
+What kind of gift should you give to your friends? A funny gift, a useful gift, or just plain old hard cash? That’s what we will explore in today’s video!
+
+# Intro
+
+Hello! Welcome to the Church of Agranari. I’m shieldgenerator7, follower of aDirada-Do.
 
 Let’s begin with a short prayer. I’m going to pray to aDirada-Do, but you may pray to another god.
 
 *Deer aDirada-Do, thank you for being there for us when we need you. Please help open our minds today to consider others’ points of view and reconsider our own positions. And please help us see and understand one another. Thank you.*
 
-So, onto today’s topic. Gift giving! Who doesn’t like giving gifts, especially around Christmas time! But, you may ask, what kind of gift should you give to your friends? A funny gift, a useful gift, or just plain old hard cash? There’s lots of factors to dig into, but we won’t cover all of it today. Let’s see what some of the gods say about this.
+So, onto today’s topic. Gift giving! Who doesn’t like giving gifts, especially around Christmas time! But, you may ask, what kind of gift should you give to your friends? A funny gift, a useful gift, or just plain old hard cash? Let’s see what some of the gods say about this.
+
+# Topic
 
 ## Minor Rabbit God of Speed and Efficiency
 
