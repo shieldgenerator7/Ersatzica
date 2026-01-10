@@ -572,7 +572,7 @@ She grabbed the handle close to the box and shoved it into the ground next to th
 
 She assessed her progress. Dirt block from hammer? Check. Hole wide enough to fit in with the drums? Uncheck. Time enough to dig hole? Uncheck, probably. Time enough to make more dirt blocks? Check, with Alpha’s aid.
 
-She silently made a few more dirt bricks, keeping watch for the cat invaders. Then when she made enough, she unbuckled the belt, crawled feet-first into the hole (careful to make sure not to rub her belly scar on the dirt), and pulled in the hammer and drums. Then she pulled the bricks in, covering the hole. There were some gaps left with which she could watch the sunset.
+She silently made a few more dirt bricks, keeping watch for the cat invaders. Then when she made enough, she unbuckled the belt, crawled feet-first into the hole (careful to make sure not to rub her belly scar on the dirt), and pulled in the hammer and drums. Then she pulled the bricks in, covering the hole. There were some gaps left through which she could watch the sunset.
 
 Then she waited.
 
@@ -624,13 +624,13 @@ A white blur jumped over the big cat and a silver box came crashing down towards
 
 *BUM BUM BUM*
 
-Mudrich bounced off the cat, landing on the ground with a fierce growl.
+Mudrich bounced off the cat, landing on the ground with a fierce growl, her hammer digging through the dirt.
 
 “Mudrich!” Ersie smiled.
 
-Mudrich turned to Ersie, and wagged her tail. *Bark!* Then her warrior gaze turned back to the cat.
+Mudrich turned to Ersie, and wagged her tail. *Bark!* Then her warrior gaze turned back to the cat. She ran at him and hit him with her hammer.
 
-The big cat shrugged off the blow and pulled his foot out of the hole. Then he stood at his full height on two legs. He was three times the height of Mudrich. He walked menacingly towards Mudrich.
+The big cat shrugged off the blow and pulled his foot out of the hole. Then he stood at his full height on two legs. He was three times the height of Mudrich. He walked menacingly towards her.
 
 *AWOOO!* Mudrich charged at him.
 
@@ -676,9 +676,9 @@ A tree or two got in the way, and then another. Soon she wouldn’t be able to s
 
 *AWOOOO!* (“Help!”)
 
-Mudrich turned to her howl, and ran towards her. But she left herself open.
+Mudrich turned to her howl, and ran towards her. But in doing so, she left herself open.
 
-The big cat grabbed her the shoulder and threw her to the ground.
+The big cat grabbed her by the shoulder and threw her to the ground.
 
 Then another tree blocked Ersatzica’s view. Some pounds and thuds, but she couldn’t see.
 
@@ -714,7 +714,7 @@ The cat sighed. “Back to dragging it is.”
 
 Wryonin panted as he reached the bottom of the stairs. He looked behind him. Lemilay was right on his tail, but no one else. “Where are Mudrich and Ersatzica?”
 
-Lemilay looked back, and then again with her Hind Sight. She shrugged.
+Lemilay looked back, and then again with her Hindsight. She shrugged.
 
 Wryonin’s gut dropped. “You left them!” He ran back through the forest.
 
