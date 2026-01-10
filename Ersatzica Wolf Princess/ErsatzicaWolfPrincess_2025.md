@@ -750,6 +750,102 @@ He ran into the battlefield, and found a big orange tiger cat lying on the groun
 
 ===
 
+*AWOOOO!* (“Help!”) Ersatzica howled as she beat the drums.
+
+“She’s calling for help! Shut her up!” said one of the cats.
+
+The other cat stopped dragging her and reached for Ersatzica’s muzzle.
+
+She growled and tried to bite its hand.
+
+“Ah!” The cat pulled its hand back.
+
+“Come on!”
+
+“I’m not going near that muzzle. You do it.”
+
+“Fine. I *will*.” The cat took some rope from the net and pulled it around her muzzle, then tied it into a knot, effectively prohibiting her from howling without touching her muzzle. “There.”
+
+Then they went back to pulling. They hoisted her up into a boat. Ersatzica hit the back of her head on a seat. She craned her neck to reduce the pain, and try to find a comfy spot. The drums landed in a place she couldn’t pound with her tail or her hands. The treetops above her rocked back and forth as the two cats got on, stepping around her. They paddled across the river.
+
+*This is it. This is really it, huh? There’s no way I can get out of this?*
+
+“Come on, hurry.”
+
+The cats paddled regularly at first, but soon began to panic.
+
+“What’s that!” A cat jumped and put all four limbs on his seat, while the other one let his feet stay in the bottom of the boat.
+
+“It’s glare on the water, just keep paddling.”
+
+“No, it’s a shark! It’s a furry shark!”
+
+The other cat glanced back. “I didn’t sign up for this! Paddle!” He paddled even harder across the river.
+
+The first cat cranked his arms so fast that his grip slipped on the paddle, and it fell into the water.
+
+Ersatzica used the distraction, whatever it was, to great effect. She wriggled her nose and vibrated her jaw to loosen the tie on her muzzle. Soon, she slipped her entire muzzle out of the net and let out a loud *AWOOOOOO!* (“Help!”)
+
+The two cats screamed.
+
+A white ball of wet fur jumped aboard the boat like a fish flopping in the waves. It landed on Ersatzica, knocking the wind out of her. It was Mudrich!
+
+Mudrich tore through the net on Ersatzica, freeing her head, growling as she went. But Ersatzica was still stuck under the net.
+
+One of the cats drew its claws and scratch Mudrich’s back, barely even drawing blood.
+
+Growling, Mudrich lunged at the cat, crushing its head in her jaw.
+
+Meanwhile, the rowboat still drifted toward the cat shore.
+
+“Muddy, let’s go!” Ersie struggled to get out of the net, but the new whole just made things worse.
+
+The other cat took the opportunity to push Mudrich off the side of the boat, taking the other cat with her.
+
+Then the boat came ashore, as Muddy and the other cat were washed away down river, fighting it out.
+
+Ersatzica turned to the cat still in the boat. It was bleeding from the arm. As soon as the rowboat beached itself on the cat shore, it got out and ran.
+
+Ersatzica struggled with the net by herself, while also trying to spot Mudrich in the river. *Did she make it out before going over the waterfall?*
+
+It wasn’t long before another cat approached. This one was black and white, and wore a green hat with a red feather.
+
+She growled at him.
+
+He got closer, and put his palms forward. “I don’t mean any harm.”
+
+She barked at him.
+
+“Hold on just a second.” He grabbed the net, and pulled it off the boat.
+
+At first, she thought he was trying to pull her off the boat. But after she got her head unstuck from the hole Mudrich made, the net came right off.
+
+“Stay in the boat.” The cat said. He shoved it off the embankment with a strained push, and the boat sailed into the middle of the river. The cat watched as the boat drifted away.
+
+Ersatzica looked ahead. The river was dropping down a waterfall soon. She took up the paddles and paddled her way across the river. She beached it on a rock outcropping that caught the boat before it went too far. She breathed a sigh of relief.
+
+As she shook the water off her, Mudrich bounded up to her and gave her a bunch of wolf kisses.
+
+“Mudrich!” Ersatzica hugged. “Oh Mudrich! Thank you so much! You saved me!”
+
+Mudrich yipped and yapped, happy to be near her sister. “Ersie!” She finally used her words. “Let’s never get near those mean cats again.”
+
+“Yeah.”
+
+They met up with Wryonin and went up to the wolf village to report to Awoomoon.
+
+“Lemilay, why weren’t you there?” Wryonin asked.
+
+“I was there, in a way. I was watching, to make sure you guys were ok.”
+
+“So you weren’t doing anything?”
+
+“Somebody had to go get help.” Lemilay said.
+
+[TODO: have people from wolf village save ersie and muddy from going over the waterfall, with Lemilay standing by them]
+
+All Ersie could think about was the cat who freed her. He knew she was an enemy, and a prisoner, and yet, he still freed her. Why?
+
 # Chapter 2 – The Cuffs of Tigrin
 
 ## 1. Scene: muddy finds out she won’t be able to dig for awhile
