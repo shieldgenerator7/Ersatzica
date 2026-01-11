@@ -11,7 +11,7 @@ Agranari Church video ideas
 -   Ajig
 -   Abrazo
 -   Spider Goddess
--   Aywoo
+-   Awyoo
 -   Are the gods “real”?
 -   Afterlife
 -   Intro to church of Agranari
@@ -29,4 +29,4 @@ Agranari Church video ideas
 -   Ajig jobs
 -   Abrazo jobs
 -   Spider Goddess jobs
--   Aywoo jobs
+-   Awyoo jobs
