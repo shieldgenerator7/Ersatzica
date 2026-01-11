@@ -86,9 +86,11 @@ Here's some more food for thought.
 -   You can have multiple new year’s resolutions. It doesn’t have to be just one.
 -   If something’s not working, or if your situation changes, you can adjust your new year’s resolution during the year. Talk with your resolution buddy to make changes that stay true to your original intent without giving up on the goal altogether.
 
-# Outro
+# Conclusion
 
 When you do make goals, including new year’s resolutions, Alpha wants you to stay loyal to them. You can do this more easily by having a new years resolution buddy, having goal checkin meetings, making SMART goals, tracking your progress, and rewarding yourself for sticking to it.
+
+# Ending Prayer
 
 Because a lot of new years resolutions tend to be about improving one’s self and getting into good habits, they tend to be about changing one’s self for the better. To that end, let’s say a prayer to aDirada-Do, who has the power to bend reality, and who can help change us into who we want to be.
 
@@ -97,6 +99,8 @@ Because a lot of new years resolutions tend to be about improving one’s self a
 To end the episode, let’s also say a prayer to Alpha, who has the power to see the past, and thus know if we’re being loyal to our goals.
 
 *Alpha, Wolf God of the Loyal Moon, please shine a light to guide us on our path, help us see where we’ve been before, and where we’re going, so we can achieve our goals, and stay loyal to our promises, both to each other, and to ourselves. May we ever be loyal to you. Awoo.*
+
+# Outro
 
 This week’s song recommendation is “Man I want to be” by Chris Young  
 <https://youtu.be/fWcs1GmJRQs>
