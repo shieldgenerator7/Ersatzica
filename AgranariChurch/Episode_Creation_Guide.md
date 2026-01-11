@@ -51,8 +51,8 @@ Tool: Audacity
 
 # Cheat Sheet
 
-Scripts Folder AgranariChurch/Scripts/
-
-Episode Title Format [XXX]-[EpisodeTitle] 002-NewYearsResolution
-
-Episode folder AgranariChurch/Episodes
+| **Key**              | **Value**               | **Example**            |
+|----------------------|-------------------------|------------------------|
+| Scripts Folder       | AgranariChurch/Scripts/ |                        |
+| Episode Title Format |  [XXX]-[EpisodeTitle]   | 002-NewYearsResolution |
+| Episode folder       | AgranariChurch/Episodes |                        |
