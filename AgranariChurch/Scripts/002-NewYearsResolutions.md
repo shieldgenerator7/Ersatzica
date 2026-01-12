@@ -108,3 +108,9 @@ This week’s song recommendation is “Man I want to be” by Chris Young
 That’s it for this episode. Thank you for attending. See you next week!
 
 Oh! And if you’d like to share your new year’s resolutions, or methods for sticking to them that have worked for you, id love to hear about them in the comments! Bye for now!
+
+# Sources
+
+<https://upload.wikimedia.org/wikipedia/en/thumb/9/9d/Chris_Young_I_Want_To_Be.png/250px-Chris_Young_I_Want_To_Be.png>
+
+<https://i.ebayimg.com/images/g/pIsAAOSw31pfaQRk/s-l1200.jpg>
