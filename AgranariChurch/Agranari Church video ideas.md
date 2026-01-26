@@ -19,6 +19,8 @@ Agranari Church video ideas
 -   Worthy of love despite being imperfect
 -   Hardwork and rest (apsunil’s reward, apsunil’s punishment)
 -   Recycling, reuse, reduction
+-   Composting
+-   Reducing waste
 -   Bikes, cars, buses
 -   Random convergence
 -   Self-fulfilling prophecy
@@ -32,3 +34,8 @@ Agranari Church video ideas
 -   Awyoo jobs
 -   Forgiveness
 -   Sabbath
+-   Gratefulness
+-   Identity
+-   Obedience vs Cooperation
+-   Practical jokes & pranks (fox cleverness)
+-   Laziness
