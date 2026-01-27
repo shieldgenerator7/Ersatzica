@@ -35,7 +35,8 @@ Agranari Church video ideas
 -   Forgiveness
 -   Sabbath
 -   Gratefulness
--   Identity
 -   Obedience vs Cooperation
 -   Practical jokes & pranks (fox cleverness)
 -   Laziness
+-   Playing well (ex: dnd gra)
+-   Self-reflection
