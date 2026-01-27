@@ -2,7 +2,10 @@ Church of Agranari
 
 # Episode Creation Instructions
 
-These instructions were based on the process used for episode 2, about New Year’s Resolutions.
+These instructions were based on the process used for the following episodes:
+
+-   002 - New Year’s Resolutions
+-   004 - Identity
 
 ## Script
 
@@ -16,6 +19,9 @@ Tool: Microsoft Word w/ Writage
         2.  Starting prayer
     3.  Topic
     4.  Conclusion
+        1.  Topic Conclusion
+        2.  Hall of Gods
+            1.  What do the other gods say about the topic?
     5.  Outro
         1.  Ending Prayer
         2.  Recommended song
@@ -64,8 +70,10 @@ Tool: DaVinci Resolve
 3.  Add media
     1.  workspace: Media
     2.  Add images and audio from episode folder
+        1.  And add to this project file’s media pool specifically (click and drag to “timeline” area)
 4.  Edit video
     1.  Place audio in first, edit it
+        1.  Adjust audio buses (between 0 and 5 maybe)
     2.  Place deer avatar
         1.  Zoom 0.55
         2.  Position (-1285, -300)
@@ -82,7 +90,12 @@ Tool: DaVinci Resolve
 
 Title: a question
 
-Description: include sources and tools
+Description:
+
+-   Question
+-   Link to Recommended song
+-   Resources used in video
+-   Tools
 
 Thumbnail: 1280 x 720, black with white logo in bottom left corner, with icon of main topic front and center (theres a PDN in episode 1’s folder that you can use easily)
 
@@ -96,12 +109,13 @@ End card to other video if you feel like it
 
 ## DaVinci Resolve
 
-1.  Change project settings to be vertical
+1.  Change project settings to be vertical (Shift+9)
     1.  Edit teaser to be vertical
-        1.  Workspace: Deliver
+        1.  Mark in (I) and Mark out (O)
+        2.  Workspace: Deliver
             1.  Type: MP4
             2.  Resolution: Custom / Vertical / 1080x1920
-        2.  Render
+        3.  Render
 
 ## YouTube
 
