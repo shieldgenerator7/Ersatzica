@@ -121,3 +121,57 @@ Today’s recommended song is “Who Am I” by Casting Crowns.
 It’s a song I listened to back when I was a Christian and I still find it comforting today. Besides its main meaning, it can be interpreted as someone still being true to the core of themselves despite their identity changing throughout their lifetime.
 
 That’s all for today. What do you self-identify as? If you’re comfortable sharing, I’d love to hear about it in the comments below. Have a good week!
+
+# Resources
+
+y2mate
+
+<https://v6.www-y2mate.com/convert/>
+
+Marvel Avengers clip
+
+<https://www.youtube.com/watch?v=4-ftbs8TppY>
+
+MLP:FiM logo
+
+<https://www.clipartmax.com/middle/m2i8N4H7i8H7Z5G6_my-little-pony-friendship-is-magic-2017-logo-my-little-pony-friendship/>
+
+Starlight Glimmer pic
+
+<https://www.deviantart.com/lightly-san/art/Glimmer-817165680>
+
+Trans flag
+
+<https://en.wikipedia.org/wiki/Transgender_flag>
+
+Jurassic Park logo
+
+<https://en.wikipedia.org/wiki/Jurassic_Park_%28franchise%29>
+
+Puss in Boots clip 1
+
+<https://www.youtube.com/watch?v=Omh9P96k1MI>
+
+Puss in Boots poster
+
+<https://blacknerdproblems.com/wp-content/uploads/2023/03/Puss-in-Boots-The-Last-Wish-Cover-1024x576.webp>
+
+Puss in Boots clip 2
+
+<https://www.youtube.com/watch?v=0ruZKYWDrAw>
+
+Puss in Boots clip 3
+
+<https://www.youtube.com/watch?v=YqboXekvCow>
+
+Puss in Boots clip 4
+
+<https://www.youtube.com/watch?v=6G_r74ewOGs>
+
+Puss in Boots clip 5
+
+<https://www.youtube.com/watch?v=-5z9fdw4Avk>
+
+Who Am I
+
+<https://www.youtube.com/watch?v=3rT8Re1EIQc>
