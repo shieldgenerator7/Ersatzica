@@ -193,3 +193,97 @@ Mudrich then mumbled something unintelligible.
 Mudrich nodded her head.
 
 “Let’s go!” Ersie grabbed the satchel, loaded it with her screwdriver and a pillow from the display case, and followed Muddy out the door.
+
+The sun outside was bright, making Ersatzica squint as her eyes adjusted to the daylight.
+
+The town was made up of brick buildings painted white, all in a line. There were three rows of buildings: the north line, the midline, and the south line. Ersie’s workshop was in the midline, connected to the medical building.
+
+Mudrich ran ahead of her down the street. Ersatzica scooted along after her, saying hi to the medic bear as she passed a window.
+
+The street was as long as the town was. It was a thin, long town. There were mountains just outside Ersie’s workshop on either side. The town squeezed between the mountains, as wide as the road that led through the mountains to the rest of the peninsula.
+
+Ersie and Mudrich ran through the town where the mountains laid down and the town rose up, created sheer drop offs on either side. On one side was the swamp were the waste of the townspeople seeped into the river, getting washed away by the waterfall right before the basin. The otherside of the town had a slippery stone staircase that led down to a forest area hugged tightly by the other half of the river.
+
+At the edge of town, a waist-high wall stopped people from running off into the river down below. On the other side, a ledge of similar width and at a similar height to the town stood in the fog.
+
+As Mudrich and Ersie ran to the staircase down to the forest, a howl rang out from the town fountain. Ersie looked over to see her sister Lemilay howling from the arms of the statue in the middle of the fountain. It had been an hour exactly since the last howl.
+
+Wolves gathered around the fountain as Lemilay took a deep breath and sang a song, which they all sang along to. One wolf, who had been peeing over the ledge into the swamp, coughed as he joined the song.
+
+Lemilay side-eyed Ersatzica, smiling smugly. Ersatzica rolled her eyes and tapped her forehead. Lemilay frowned, but continued singing.
+
+“C’mon, Ersie!” Mudrich pulled her onto the staircase.
+
+They ran down the staircase, tiptoe-ing around the numerous missing steps and crumbling slopes. Ersie’s foot slid off a step and she landed on her other knee, teetering on the edge. Mudrich pulled her back onto the stairs, and they continued on down.
+
+Once they reached the bottom of the stairs, Mudrich howled as she put her hammer in her mouth and got on all fours, running into the forest.
+
+Ersatzica ran after her, but the scar on her belly started to hurt. She held it as she stopped.
+
+A scent on the wind told her Wryonin was nearby. She followed it to a tree, where Wryonin was doing target practice. A crudely-drawn picture of a cat was painted on a tree with mud. Stones whizzed by the tree, followed by a frustrated growl.
+
+“Hello Wryonin.” Ersatzica looked up at him.
+
+He growled, pulling his dangling legs and tail up onto a branch out of view of Ersatzica.
+
+“Are you coming to meet Uncle Yotleph with us?”
+
+Silence.
+
+“Wryonin?”
+
+“Go away, Ersatzica!”
+
+“Are you coming?”
+
+“What do you think?”
+
+“Well, you can’t not come.”
+
+“Well how can I come if I can’t hit a single shot?”
+
+“But you’re so good with the slingshot!”
+
+“Not since you painted it! I haven’t hit a single shot all day, thanks to you!”
+
+“What? You’re blaming me?”
+
+“You’re the one that did it!”
+
+“I was just trying to help!”
+
+“Well, you did. Now go away.”
+
+“But…” Ersatzica stopped herself. Her throat rumbled and her tail swished like a clock.
+
+*How can he blame me for his own failures? I did something nice for him, and he can’t even appreciate it. And poor Caw! He’s being rejected by his wolf, abandoned in his death.*
+
+“What about Caw? That slingshot is Alpha’s grieving gift for you. Rejecting it is like rejecting Caw.”
+
+“This slingshot was given to me by Uncle Yotleph. *This*—” he held up a black feather. “—is my grieving gift of Caw.” He stroked it, brows furrowed, eyes starting to water. He growled.
+
+“No, it’s not!” Ersatzica looked at the feather and the slingshot. A blue streak flashed across the slingshot, but not the feather.
+
+“Yes it is!”
+
+Ersatzica barked, stomped her foot, and walked off in a huff.
+
+===
+
+*Pad. Pad. Crunch. Pad.* The footsteps of the wolf girl filtered through the trees, leaving Wryonin to his thoughts.
+
+The feather glistened in the sunlight filtering through the tree tops, showing off the purple hues lying just outside the visible spectrum. It was as beautiful as it was when it was a part of Caw.
+
+There would never be another bird like her. She knew exactly what he needed and when he needed it. She was a part of him, and now she was gone.
+
+The feather wasn’t enough. There was no part of her that would be.
+
+And how dare Ersatzica think that it would be ok to do that? The slingshot was special to him too, and now it was ruined, and he couldn’t do anything about it. Just like he couldn’t do anything about Caw.
+
+A black blur flew next to him in the trees. He looked at it, and realized it was just a shadow.
+
+Wryonin took a deep breath. *WoooOOOoooo*. The wind howled. He slung a rock at the tree, aiming for the cat drawing. He hit the tree, but well above the drawing.
+
+The wind died down, and Wryonin aimed again. He missed the tree entirely this time.
+
+When Caw was still alive, he would hit the target everytime.
